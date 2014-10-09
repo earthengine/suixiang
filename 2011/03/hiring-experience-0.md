@@ -9,8 +9,8 @@
 </head>
 <body>
 <div id="main" style="width:100%;">
-<h1><a href="../../index.html" title="回到首页">俺的招聘经验[0]：概述</a></h1>
-<div class="post-info"><span class="date-header">2011-03-25</span><a href="../../tags/E7AEA1E79086.html" class="tag">管理</a> </div>
+<h1><a href="../../index.md" title="回到首页">俺的招聘经验[0]：概述</a></h1>
+<div class="post-info"><span class="date-header">2011-03-25</span><a href="../../tags/E7AEA1E79086.md" class="tag">管理</a> </div>
 <hr>
 <div class="post">
 &#12288;&#12288;最近3个月，国内外的热点话题巨多（从<a href="../../2011/01/what-we-can-depend-on.md">钱云会</a>、到中东革命、再到<a href="../../2011/02/jasmine-revolution-227-notice.md">茉莉花</a>），搞得俺兴致大发，接连写了不少政治帖。今天想换个口味，写一篇关于技术人员招聘的帖子。一来，是照顾一下俺读者群的那些IT从业人员——毕竟他们是俺博客最早的一批订阅者；二来，俺也很久没写管理方面的内容了。<br />&#12288;&#12288;本系列介绍的主题是招聘经验。虽说讲的都是IT人员招聘的事儿，但大伙儿完全可以举一反三，把某些经验应用到其它行业的招聘中。如果你是一名求职者，或许也能从中了解到某些（和俺类似的）招聘者的思维方式。<!--program-think--><br /><br />&#12288;&#12288;俺在两年前写过一篇“<a href="../../2009/04/defect-of-hire.md">招聘的误区</a>”，谈的是整个招聘过程中，一些常见的弊端和误解——也就是“不该如何做”。（那篇帖子侧重于宏观、战略层面）。而本系列主要讲是“该如何做”（偏重于微观、战术层面）。因此，没看过“<a href="../../2009/04/defect-of-hire.md">招聘的误区</a>”的同学，建议先去看看，然后再来看本系列。<br /><br />为了方便阅读，把本系列帖子的目录整理如下（需翻墙）：<a name="index"> </a><br />1. <a href="../../2011/03/hiring-experience-1.md">面试 vs 笔试</a><br />2. <a href="../../2011/03/hiring-experience-2.md">考察技术 vs 考察非技术</a><br />3. <a href="../../2011/05/hiring-experience-3.md">开放性问题 vs 封闭性问题</a><br />4. <a href="../../2011/11/hiring-experience-4.md">通过笔试答题能看出啥？</a><br />5. <a href="../../2012/12/hiring-experience-5.md">面试前的准备工作</a><br />6. 面谈的技巧<br />7. (未完待续)<div class="blogger-post-footer">

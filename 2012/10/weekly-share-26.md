@@ -9,8 +9,8 @@
 </head>
 <body>
 <div id="main" style="width:100%;">
-<h1><a href="../../index.html" title="回到首页">每周转载：关于西哈努克的幸福生活（网文3篇）</a></h1>
-<div class="post-info"><span class="date-header">2012-10-22</span><a href="../../tags/E8BDACE8BDBD.html" class="tag">转载</a> </div>
+<h1><a href="../../index.md" title="回到首页">每周转载：关于西哈努克的幸福生活（网文3篇）</a></h1>
+<div class="post-info"><span class="date-header">2012-10-22</span><a href="../../tags/E8BDACE8BDBD.md" class="tag">转载</a> </div>
 <hr>
 <div class="post">
 &#12288;&#12288;昨天写了长篇博文《<a href="../../2012/10/history-of-red-khmers.md">最“纯正”的共产主义政权——红色高棉简史</a>》，重点介绍共产运动造的孽。<br />&#12288;&#12288;今天再转载几篇有关西哈努克的网文，让大伙儿体会一下，什么是“宁赠友邦，不予家奴”。<br /><br />（以下链接需<b>翻墙</b>访问）<a name='more'></a><!--program-think--><br /><br /><h2><a href="https://plus.google.com/u/0/113559088971921339544/posts/1zLALJmpmsn" target="_blank" rel="nofollow">谁是中国最幸福的人？</a></h2><br /><h2><a href="https://plus.google.com/u/0/113559088971921339544/posts/EZfRBpuVdxm" target="_blank" rel="nofollow">1973年上海招待西哈努克亲王 百只鸡做的菜倒掉两回</a></h2><br /><h2><a href="https://plus.google.com/u/0/113559088971921339544/posts/244KQbqGSXB" target="_blank" rel="nofollow">西哈努克在中国的豪华行宫</a></h2><br /><b>俺博客上，和本文相关的帖子（需翻墙）</b>：<br /><a href="../../2012/10/history-of-red-khmers.md">最“纯正”的共产主义政权——红色高棉简史</a><div class="blogger-post-footer">

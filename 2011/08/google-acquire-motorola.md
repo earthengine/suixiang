@@ -9,11 +9,11 @@
 </head>
 <body>
 <div id="main" style="width:100%;">
-<h1><a href="../../index.html" title="回到首页">Google收购摩托罗拉移动，仅仅是为了专利吗？</a></h1>
-<div class="post-info"><span class="date-header">2011-08-17</span><a href="../../tags/IT.html" class="tag">IT</a> <a href="../../tags/IT.E4B89AE7958CE8AF84E8AEBA.html" class="tag">IT.业界评论</a> </div>
+<h1><a href="../../index.md" title="回到首页">Google收购摩托罗拉移动，仅仅是为了专利吗？</a></h1>
+<div class="post-info"><span class="date-header">2011-08-17</span><a href="../../tags/IT.md" class="tag">IT</a> <a href="../../tags/IT.E4B89AE7958CE8AF84E8AEBA.md" class="tag">IT.业界评论</a> </div>
 <hr>
 <div class="post">
-　　前天Google宣布收购摩托罗拉移动，IT业界为之震动。此次并购的深远影响，不亚于09年<a href="../../2009/04/oracle-buy-sun.html" target="_blank">Oracle收购Sun</a>。俺对这种业界八卦一向是有兴趣滴，下面就来聊聊此事。为了打字方便，以下把"摩托罗拉移动"简称Moto。<!--program-think-->
+　　前天Google宣布收购摩托罗拉移动，IT业界为之震动。此次并购的深远影响，不亚于09年<a href="../../2009/04/oracle-buy-sun.md" target="_blank">Oracle收购Sun</a>。俺对这种业界八卦一向是有兴趣滴，下面就来聊聊此事。为了打字方便，以下把"摩托罗拉移动"简称Moto。<!--program-think-->
 <br />
 <br /><h2>★Google的专利困境</h2>
 <br />　　关注此事的同学都应该听说，最近几个月，Google在专利方面非常郁闷。
@@ -43,7 +43,7 @@
 <br />　　据说，当Google跟Moto谈判时，微软也在谈。但是微软跟Google的出发点不同——微软只是想花钱搞到Moto的专利。如果说，Google的唯一目的就是专利，那它完全可以像微软那样，只花几十亿美金去搞专利，没必要把整个公司都买下来。所以，Google在看中专利的同时，可能还看中了Moto的其它资产。
 <br />
 <br /><h3>◇此地无银的官方声明</h3>
-<br />　　Google的官方声明（原文在"<a href="http://googleblog.blogspot.com/2011/08/supercharging-android-google-to-acquire.html" target="_blank" rel="nofollow">这里</a>"）一再强调，收购是为了专利，并且信誓旦旦地保证：会让Android继续保持开放，Google自己不会进入硬件领域同现有的Android硬件厂商竞争。眼下的这一幕，不禁让人想起Google最近几年来的一些言行。
+<br />　　Google的官方声明（原文在"<a href="http://googleblog.blogspot.com/2011/08/supercharging-android-google-to-acquire.md" target="_blank" rel="nofollow">这里</a>"）一再强调，收购是为了专利，并且信誓旦旦地保证：会让Android继续保持开放，Google自己不会进入硬件领域同现有的Android硬件厂商竞争。眼下的这一幕，不禁让人想起Google最近几年来的一些言行。
 <br />
 <br />　　当初Google把Firefox的主力程序员挖走，业界就有小道消息说，Google要自己搞浏览器。Google官方立马辟谣说不会。结果捏，现在Chrome的市场份额第三，直追名列第二的Firefox。
 <br />　　当初业界传闻Google要搞办公软件，Google官方立马辟谣说不会。结果捏，不久就推出了Google Docs。

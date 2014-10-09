@@ -9,8 +9,8 @@
 </head>
 <body>
 <div id="main" style="width:100%;">
-<h1><a href="../../index.html" title="回到首页">从Twitter的突发新闻报道看草根记者的崛起</a></h1>
-<div class="post-info"><span class="date-header">2009-01-24</span><a href="../../tags/IT.html" class="tag">IT</a> <a href="../../tags/IT.E4B89AE7958CE8AF84E8AEBA.html" class="tag">IT.业界评论</a> </div>
+<h1><a href="../../index.md" title="回到首页">从Twitter的突发新闻报道看草根记者的崛起</a></h1>
+<div class="post-info"><span class="date-header">2009-01-24</span><a href="../../tags/IT.md" class="tag">IT</a> <a href="../../tags/IT.E4B89AE7958CE8AF84E8AEBA.md" class="tag">IT.业界评论</a> </div>
 <hr>
 <div class="post">
 　　在几天前的“纽约客机哈德森河成功迫降”事件中，<a href="http://twitter.com/" target="_blank" rel="nofollow">Twitter</a>又一次拔得头筹（为什么说“又”捏？因为之前的孟买恐怖袭击，Twitter已经抢先传统媒体了）。在率先到达出事地点的救生艇上，贾尼斯·克鲁姆斯同学(Janis Krums)用自己的iPhone手机拍摄了照片并上传到Twitter，成为了飞机迫降后的首张现场照片。<!--program-think--><br /><center><img src="../../images/2009/01/OQAAAMCiMJLILFXPo9I596XFFaKVi4Rh8CSlI2dqgbu_zHZAgj9s84Vwqxx0ZYoB_-2pjZx6OPXX5ezkZmsRm2psH1kA15jOjCp42VmirYpZIqzJsIFmI9a-Lnaf" alt="不见图、请翻墙" /></center><br />　　最近已经有好几次突发事件是由Twitter抢先报道，草根记者大有后来居上的势头。这主要得益于可拍照、可上网手机的普及和SNS（社会化网络）的流行，使得大伙儿都可以成为爆料的记者。这方面的优势，传统媒体是很难超越的（毕竟电视台、报社、杂志的人手有限）。从目前的发展趋势看，将来传统媒体的优势将被局限在报道的<b>全面性</b>和<b>深入性</b>等方面，而不得不放弃实时性的优势。<div class="blogger-post-footer">
