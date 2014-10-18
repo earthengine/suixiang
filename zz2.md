@@ -1,0 +1,4947 @@
+<meta content="text/html; charset=UTF-8" http-equiv="Content-Type">
+<div style="font-size: 100%;" class="post hentry uncustomized-post-template">
+<a name="3544317389143776752"></a>
+<h1 class="post-title entry-title">
+<a href="2014/10/weekly-share-74.md">每周转载：香港占中民主运动的外媒报道和【大量】照片（9-29至10-2）</a>
+</h1>
+<div class="post-header">
+<div class="post-header-line-1">
+<div style="padding-bottom: 2em;" class="post-inner-index"><div><b style="font-size:120%;">文章目录</b></div><a href="#head-1">★背景知识</a><br><a href="#head-2">★9.29（周一）——占中第2天</a><br><a href="#head-3">★9.30（周二）——占中第3天</a><br><a href="#head-4">★10.1（周三）——大陆沦陷日，占中第4天</a><br><a href="#head-5">★10.2（周四）——占中第5天</a><br></div>
+</div>
+</div>
+<div class="post-body entry-content">
+　　由于照片太多，昨天先转载了<a href="2014/10/weekly-share-73.md">“09-22到09-28”的外媒报道和照片</a>。今天再发一篇涵盖“09-29到10-02”这个时间段。<br>
+　　本文引用的照片，大都来自权威的境外媒体（为了尊重照片作者，都注明了引用链接）；还有少数照片是俺在网上搜的，不清楚原始出处。如果有人发现俺转载的照片侵犯其版权，欢迎到本文留言告知。谢谢！<a name="more"></a><!--program-think--><br>
+<br>
+<a name="head-1"></a><h2>★背景知识</h2><br>
+　　和昨天一样，先放上相关的维基词条。不太清楚此次运动的网友，可以先了解一下相关的背景。<br>
+<br>
+<a href="https://zh.wikipedia.org/wiki/%E9%A6%99%E6%B8%AF%E7%89%B9%E5%88%A5%E8%A1%8C%E6%94%BF%E5%8D%80%E5%9F%BA%E6%9C%AC%E6%B3%95" target="_blank" rel="nofollow">香港特别行政区基本法 @ 维基百科</a><br>
+<br>
+<a href="https://zh.wikipedia.org/wiki/%E9%A6%99%E6%B8%AF%E9%81%B8%E8%88%89%E5%88%B6%E5%BA%A6" target="_blank" rel="nofollow">香港选举制度 @ 维基百科</a><br>
+<br>
+<a href="https://zh.wikipedia.org/wiki/2016%E5%B9%B4%E5%8F%8A2017%E5%B9%B4%E9%A6%99%E6%B8%AF%E6%94%BF%E6%B2%BB%E5%88%B6%E5%BA%A6%E6%94%B9%E9%9D%A9" target="_blank" rel="nofollow">2016年及2017年香港政治制度改革 @ 维基百科</a><br>
+<br>
+<a href="https://zh.wikipedia.org/wiki/%E4%BD%94%E9%A0%98%E4%B8%AD%E7%92%B0" target="_blank" rel="nofollow">和平占领中环运动/占中运动 @ 维基百科</a><br>
+<br>
+<a href="https://zh.wikipedia.org/wiki/622%E5%85%A8%E6%B0%91%E6%8A%95%E7%A5%A8" target="_blank" rel="nofollow">6-22 民间全民公投 @ 维基百科</a><br>
+<br>
+<a href="https://zh.wikipedia.org/wiki/2014%E5%B9%B4%E9%A6%99%E6%B8%AF%E5%AD%B8%E7%95%8C%E5%A4%A7%E7%BD%B7%E8%AA%B2" target="_blank" rel="nofollow">9-22 学界大罢课 @ 维基百科</a><br>
+<br>
+<a href="https://zh.wikipedia.org/wiki/%E9%9B%A8%E5%82%98%E9%9D%A9%E5%91%BD" target="_blank" rel="nofollow">雨伞革命/遮打革命/Umbrella Revolution @ 维基百科</a><br>
+<br>
+<a href="https://zh.wikipedia.org/wiki/%E7%9C%9F%E6%99%AE%E9%81%B8%E8%81%AF%E7%9B%9F" target="_blank" rel="nofollow">真普选联盟/真普联 @ 维基百科</a><br>
+<br>
+<a href="https://zh.wikipedia.org/wiki/%E9%A6%99%E6%B8%AF%E5%B0%88%E4%B8%8A%E5%AD%B8%E7%94%9F%E8%81%AF%E6%9C%83" target="_blank" rel="nofollow">香港学联 @ 维基百科</a><br>
+<br>
+<a href="https://zh.wikipedia.org/wiki/%E5%AD%B8%E6%B0%91%E6%80%9D%E6%BD%AE" target="_blank" rel="nofollow">学民思潮 @ 维基百科</a><br>
+<br>
+<a name="head-2"></a><h2>★9.29（周一）——占中第2天</h2><br>
+<b>由于前一天警方使用了催泪弹，激起公愤。第二天有更多香港市民上街抗议。<br>
+尤其是当日夜间的集会场面很壮观。</b><br>
+<br>
+<h3>◇《纽约时报》的报道和照片（洋文）</h3><br>
+以下照片转载自——<a href="http://www.nytimes.com/2014/09/30/world/asia/the-hong-kong-protests-what-you-should-know.md" target="_blank" rel="nofollow">Protests in Hong Kong Have Roots in China’s ‘Two Systems’ @ NYTimes</a><br>
+（编程随想注：这批照片的尺寸太大，考虑到大伙儿的翻墙流量不高，缩小一半放上来）<br>
+<br>
+<center><img src="zz2_files/OWzTND9EqjWkR_wFw8nGcd2OXr8nNff2BQDxwvpvqO5IHJI10bPiY9W4LGM.jpeg" alt="不见图 请翻墙"></center><br>
+<center><img src="zz2_files/nE18Hy0bkRcD_kweHzmFIiK_Dr-TMPiosG-HKqliWlDGyvSnh1okuG6hUTx.jpeg" alt="不见图 请翻墙"></center><br>
+<center><img src="zz2_files/U2-KJNYe1M67EEfEvP_IIQ9mPw1xcd-rhQ6VWy7dm24IU71NRkhIw7kOFoG.jpeg" alt="不见图 请翻墙"></center><br>
+<center><img src="zz2_files/8riNcQTyEk3W_6b9lg3yBU8jdWgJfpRcV-AMoL9o9zcVp8UGKsr0Ng5RHtB.jpeg" alt="不见图 请翻墙"></center><br>
+<center><img src="zz2_files/PTNWhY6iDeoOAlQYTc_UdQ3zIPEnV0AkwJJyGEHRJ_6dy5JlzI0za8V7Nuu.jpeg" alt="不见图 请翻墙"></center><br>
+<center><img src="zz2_files/TZNGnpSegsboSoZdSCFsobfT3jQf8oXROqs2n2JzCpgarzQ3x5IY2T_6SNy.jpeg" alt="不见图 请翻墙"></center><br>
+<h3>◇德国之声的报道和照片</h3><br>
+以下照片转载自——<a href="http://www.dw.de/g-17961291" target="_blank" rel="nofollow">“占中”第二天</a><br>
+<br>
+<center><img src="zz2_files/cd-C1OhvypPKIIuOXX3Ch8RRNKpIQqgOhSkTuaP5djGqyeD9OV78ao3FBGx.jpeg" alt="不见图 请翻墙"></center>香港示威者周一继续其“占中”行动，成千上万的示威者不仅封锁了香港岛中心的金融区交通要道，抗议行动也扩展至了对面的九龙半岛。<br>
+<br>
+<center><img src="zz2_files/0DFq4UZ-q-0ujmbso9dRjzvDb8CUAUwiCCxiKxj6uXrM7ccz3Tap1jK7AIa.jpeg" alt="不见图 请翻墙"></center>占中运动已经蔓延至旺角及铜锣湾，造成主要道路出现堵塞。<br>
+<br>
+<center><img src="zz2_files/Yh7LKRG3sPvQM1RiOGzaTg1t3v0U0HrYTvgwiaHe7ryaJaU6XJUkKLFmpKs.jpeg" alt="不见图 请翻墙"></center>为了表达抗议之情，香港金钟海富中心一处悬挂的中国国旗被人倒挂。<br>
+<br>
+<center><img src="zz2_files/mB7DqgJb8X-_njWq0kq7EcQKi9BcDTxRgdJ9BWNJTIoIsChCv26DcVXDFc4.jpeg" alt="不见图 请翻墙"></center>集会现场<br>
+<br>
+<center><img src="zz2_files/JL0sQtrXksuoxgc8dS8gmhDLmbdzrqZvTt1LWdzcIFjiNQRrc1uxXPX-WCR.jpeg" alt="不见图 请翻墙"></center>有人在脸书上发起号召：在接下来的10月1日为香港佩戴黄丝带，支持香港争取真普选的活动<br>
+（佩戴黄丝带代表香港人对普选的和平追求）<br>
+<br>
+<center><img src="zz2_files/Id7mXJ03DvyUBDMd-M57Md3xp5g71LRGCWtJ-zyGCp3GWuhf1Ywd4q-lWy3.jpeg" alt="不见图 请翻墙"></center>街头的警察<br>
+<br>
+<a href="http://www.dw.de/a-17964321" target="_blank" rel="nofollow">胡椒喷雾取代真正的民主 @ 德国之声</a><br>
+<center><img src="zz2_files/oKwgaRTGuoiuVY44k6SSOOCQkGPPv8Vq9wtuk6FGrOgAM0Ghqigoysnkhqx.jpeg" alt="不见图 请翻墙"></center><br>
+<a href="http://www.dw.de/a-17961070" target="_blank" rel="nofollow">郑宇硕：我们不甘心作顺民 @ 德国之声</a><br>
+<center><img src="zz2_files/-e-wMF6JJV1suilcrz7vezphjd3JgkdPtsibF_H20m3Nt2C_GGLRMl92c9z.jpeg" alt="不见图 请翻墙"></center><br>
+<h3>◇《芝加哥论坛报》的报道和照片</h3><br>
+以下照片转载自——<a href="http://www.chicagotribune.com/news/nationworld/chi-hong-kong-protests-20141002-story.md" target="_blank" rel="nofollow">Hong Kong leader refuses to resign but offers talks with protesters @ Chicago Tribune</a><br>
+（编程随想注：这篇报道有超过50张照片，俺挑选了其中一部分【可能是】29日夜间集会相关的照片）<br>
+<br>
+<center><img src="zz2_files/wrMXGXIpSLArpBvAo9_Z2R1gQ2N838nA1gpZ1FGffhEqvPU25WiB_Y9uB2B.jpeg" alt="不见图 请翻墙"></center><br>
+<center><img src="zz2_files/pv65o-Mr3Y1ESuPJDzMooNeKfqBhe3k-i1iWEagrCNo8WnJMa-vu3-GjNmN.jpeg" alt="不见图 请翻墙"></center><br>
+<center><img src="zz2_files/bZRNVkKhFb8vvTCOpYNEfD-Z0aZYtqmW_rCk4THTBaM5mbtt2NgjUeF_krO.jpeg" alt="不见图 请翻墙"></center><br>
+<center><img src="zz2_files/GJGYeqas_0nqrp3HqMAiIQ47TfDmW3HKWmJfl_7SefE8IzZ7atP8InFQ35F.jpeg" alt="不见图 请翻墙"></center><br>
+<center><img src="zz2_files/1hCuAXw6Q1dEFw7roSOcSs_h9B2zScPdaekWDAPtpoYq5oK7bsHMc9R8V5Y.jpeg" alt="不见图 请翻墙"></center><br>
+<h3>◇美国之音的报道和照片</h3><br>
+<a href="http://www.voachinese.com/content/us-media-hongkong-20140929/2466601.md" target="_blank" rel="nofollow">美国媒体看香港“占中” @ 美国之音/VOA</a><br>
+<center><img src="zz2_files/izjuCX2hxke9IEOCmyf2M5ObIwEZaqn-g2lsD2bihQKZ6I37Pna32yGCiNz.jpeg" alt="不见图 请翻墙"></center><br>
+<a href="http://www.voachinese.com/content/media-watch-hk-protest-and-mainland-reaction-20140929/2466039.md" target="_blank" rel="nofollow">媒体观察——公民抗命，香港暴热，大陆冰冷 @ 美国之音/VOA</a><br>
+<center><img src="zz2_files/fdb6LY84xUDEqOEKuGteg55DZzskuySps5N636mCekKCMKDVGaF9n2ge4rc.jpeg" alt="不见图 请翻墙"></center><br>
+<a href="http://www.voachinese.com/media/video/voaweishi-20140929-voaconnects-haiyan/2465901.md" target="_blank" rel="nofollow">（视频）现场直击：香港占中扩大，群众集结各地 @ 美国之音/VOA</a><br>
+<br>
+<h3>◇其它外媒报道</h3><br>
+<a href="http://cn.wsj.com/gb/20140929/bch075501.asp" target="_blank" rel="nofollow">香港抗议人群扩大 防暴警察撤离 @ 华尔街日报/WSJ</a><br>
+<center><img src="zz2_files/70tM2cZycauXrKgUSjXM_okmEPBiEPQCJc7uPLqJcKQrnmK1Vli31yLMnVY.jpeg" alt="不见图 请翻墙"></center>（周一，抗议人群堵塞了香港市中心的一条主干道）<br>
+<br>
+<a href="http://www.dw.de/a-17963686" target="_blank" rel="nofollow">香港占中——大卫与歌利亚之战 @ 德国之声</a><br>
+<br>
+<a href="http://www.dw.de/a-17963798" target="_blank" rel="nofollow">面对香港占中的集体沉默 @ 德国之声</a><br>
+<br>
+<a href="http://cn.wsj.com/gb/20140929/rlw172859.asp" target="_blank" rel="nofollow">香港动荡之际 Instagram内地服务中断 @ 华尔街日报/WSJ</a><br>
+<br>
+<a href="http://www.chinese.rfi.fr/%E4%B8%AD%E5%9B%BD/20140929-%E9%A6%99%E6%B8%AF%E9%80%80%E4%BC%91%E8%AD%A6%E5%AF%9F%E6%95%A6%E4%BF%83%E6%89%A7%E5%8B%A4%E8%AD%A6%E5%AF%9F%E4%B8%8D%E8%A6%81%E6%8A%8A%E6%9E%AA%E5%8F%A3%E5%AF%B9%E5%87%86%E7%A4%BA%E5%A8%81%E6%B0%91%E4%BC%97" target="_blank" rel="nofollow">香港退休警察敦促执勤警察不要把枪口对准示威民众 @ 法广/RFI</a><br>
+<br>
+<a href="http://cn.wsj.com/gb/20140929/rlw112805.asp" target="_blank" rel="nofollow">香港抗议活动受到台湾民众支持 @ 华尔街日报/WSJ</a><br>
+<br>
+<h3>◇其它网络上找来的照片</h3><br>
+<center><img src="zz2_files/7jKhubXO5sogYni0yCQewreQMOdUpNLJVq-2LB0xndi4dHFe4Z_odh9Uk4h.jpeg" alt="不见图 请翻墙"></center>当晚在香港政府总部外的群众<br>
+<br>
+<center><img src="zz2_files/1nYdVHt4XeikuiiFTTpAEVP3jRYCM98zkvZB_UCot95wLOSx4DLwoZerxqk.jpeg" alt="不见图 请翻墙"></center>黑暗中的光点是民众挥舞手机当手电筒，表达民众诉求的照片<br>
+<br>
+<center><img src="zz2_files/rN79FjLfPs7DdyalBwsLjo-kzd-pGwd4qenko1pGbogVsdCX9VVKzRZmJPV.jpeg" alt="不见图 请翻墙"></center>同上<br>
+<br>
+<center><img src="zz2_files/IML4j9pBVMlnPwKCQX9PTUhdNhV5eSBxudTyODVzL4QYVYy3mJXVYtEksVL.jpeg" alt="不见图 请翻墙"></center>同上<br>
+<br>
+<center><img src="zz2_files/0lJN6x52J3Yu2MEO4JhAu8_PQavDNBtWfSi-MzhaZxTiMqHMyN_Wzy4VP-k.jpeg" alt="不见图 请翻墙"></center>标语中写着 Beyond 的歌词：风雨中抱紧自由<br>
+<br>
+<center><img src="zz2_files/Ubd32ctZRL5UABuauv4UxJUsV3QGqrXJ8si7VcsKoeY8CWhoI7dnPJxSp9I.jpeg" alt="不见图 请翻墙"></center>示威民众高举特首梁振英的魔鬼面具<br>
+<br>
+<a name="head-3"></a><h2>★9.30（周二）——占中第3天</h2><br>
+<b>香港占领中环行动9月30日进入第三天，行动由金钟政总外一带，蔓延至铜锣湾、旺角等地方。<br>
+各区估计有五千至数万名市民聚集。大批市民自发带备物资到集会场地。<br>
+当日晚间下起暴雨，民众在风雨中坚守，正应了 Beyond《光辉岁月》的歌词——风雨中抱紧自由</b><br>
+<br>
+<h3>◇德国之声的报道和照片</h3><br>
+以下照片转载自——<a href="http://www.dw.de/g-17965309" target="_blank" rel="nofollow">图说占中第三天 @ 德国之声</a><br>
+<br>
+<center><img src="zz2_files/lAlVnZYRXsQlhEBbjsJwzIorZ-mD5h5KZJdGx7NrcD0rvLUd-iDtdkBTKRA.jpeg" alt="不见图 请翻墙"></center>部分示威者构筑街垒，并囤积食物和饮水，为未来数天做准备。<br>
+<br>
+<center><img src="zz2_files/FZUAusUcbqc-dory155sZB4PiIyAFixzFOUSRZAY0kJhrYH3O7OYzkeAyl3.jpeg" alt="不见图 请翻墙"></center>香港特首梁振英表示，“定调占中无法逼中央就范”，要求香港市民做好长期应对的心理准备。<br>
+<br>
+<center><img src="zz2_files/ocEFcMfnN0kslg_dslaJGPDQMk69mJVDQ-tVqCL5XrB2r4V2LcJ8S-K3OGQ.jpeg" alt="不见图 请翻墙"></center>香港大学所做最新民调显示，特首梁振英最新评分为43.2，继续低于45分的警戒线。<br>
+<br>
+<center><img src="zz2_files/DVBBEhnA1t5lAJ1YSxv8gIs5BNZYXylF-9QcYITfX1vYI_kX0RP4s63_gr1.jpeg" alt="不见图 请翻墙"></center>除了黄丝带之外，雨伞也成为香港抗议活动中的主要标志。<br>
+<br>
+<h3>◇自由亚洲电台的报道和照片</h3><br>
+以下照片转载自——<a href="http://www.rfa.org/mandarin/yataibaodao/gangtai/xl1-09302014103849.md" target="_blank" rel="nofollow">占中第三日 “三罢”持续 “十一”将迎来抗命高潮 @ 自由亚洲电台/RFA</a><br>
+<br>
+<center><img src="zz2_files/qcgb4WotafJznYh-I9QxXd3r4WYwuo7aaKycDbJVL3SrAx7JZZdmXiycjPe.jpeg" alt="不见图 请翻墙"></center>通往政府总部的天桥挂满条幅标语<br>
+<br>
+<center><img src="zz2_files/u30DplyQmvt_IYPmCP7-MIp_S9L7C3dUdHyxurbt3OdCujy5TR4p4aaonwC.jpeg" alt="不见图 请翻墙"></center>旺角集会现场<br>
+标语上写着：和平集会 梁振英下台 我要真普选<br>
+<br>
+<center><img src="zz2_files/0WGI2H2_8kfX7gK76i9U5MXRB3pbWKFC_a-sfs89HMdXJku1rNcsiyYfgnG.jpeg" alt="不见图 请翻墙"></center>金钟集会现场<br>
+人潮已经由演艺学院的高速公路蔓延至中环。现场有广播呼吁，周三是国庆节，要提高警惕<br>
+<br>
+<center><img src="zz2_files/dhKkTEXJsLIe3ujlTcTQ10H909vLzRBlsCh8XdHIlY4N-3tF8OpmMptAdhM.jpeg" alt="不见图 请翻墙"></center>集会市民自发清理垃圾<br>
+<br>
+<center><img src="zz2_files/5VHNfuz800rEu7A8ZBgUG4wI6fvVCmamKtaY8AVNNZD3Hgl9Qxao21H5S07.jpeg" alt="不见图 请翻墙"></center>集会现场的夜景<br>
+<br>
+<h3>◇其它外媒报道</h3><br>
+<a href="http://www.chinese.rfi.fr/%E4%B8%AD%E5%9B%BD/20141001-%E5%8D%A0%E4%B8%AD%E7%AC%AC%E4%B8%89%E5%A4%A9%EF%BC%9A%E4%B9%A0%E6%80%BB%E7%A7%B0%E4%B8%80%E5%9B%BD%E4%B8%A4%E5%88%B6%E4%B8%8D%E5%8F%98%E3%80%81%E5%AD%A6%E7%94%9F%E6%9A%B4%E9%9B%A8%E4%B8%8B%E4%B8%8D%E6%92%A4%E3%80%81%E6%A2%81%E6%8C%AF%E8%8B%B1%E4%B8%8D%E9%80%80%E3%80%81%E6%B2%AA%E7%90%BC%E6%97%85%E6%B8%AF%E5%9B%A2%E4%B8%8D%E5%8A%9E" target="_blank" rel="nofollow">占中第三天：习总称一国两制不变、学生暴雨下不撤、梁振英不退、沪琼旅港团不办 @ 法广/RFI</a><br>
+<center><img src="zz2_files/njgmDpcxcwQOPIwFWaVZhTdsteub2rBlU6AjE0peTF5rH98jmIauV9pZtzQ.jpeg" alt="不见图 请翻墙"></center>（30日夜间，香港占中示威者冒着大雨坚守阵地）<br>
+<br>
+<a href="http://cn.nytimes.com/china/20140930/c30block/" target="_blank" rel="nofollow">中国官方对香港“占中”报道严加管控 @ 纽约时报</a><br>
+<br>
+<a href="http://www.voachinese.com/content/hk-protest-echoed-in-china-20140930/2467597.md" target="_blank" rel="nofollow">大陆人士挺港遭禁 习近平面临抉择关口 @ 美国之音/VOA</a><br>
+<br>
+<a href="http://minzhuzhongguo.org/ArtShow.aspx?AID=45141" target="_blank" rel="nofollow">香港占领中环第三天：民众雨中坚守 @ 民主中国</a><br>
+<center><img src="zz2_files/IriaeC8gSZiObKZAR2QaD8KkDGBTOMo3G9xGLv6C26x6-q-iAk11Tht0adL.jpeg" alt="不见图 请翻墙"></center>（暴雨降临金钟“占领区”，市民们纷纷举起了雨伞，并未离开）<br>
+<br>
+<a href="http://cn.nytimes.com/china/20140930/c30beijing/" target="_blank" rel="nofollow">香港民主示威对习近平构成挑战 @ 纽约时报</a><br>
+<br>
+<a href="http://cn.nytimes.com/china/20140930/c30firechat/" target="_blank" rel="nofollow">香港示威 令FireChat走红 @ 纽约时报</a><br>
+<br>
+<a href="http://www.chinese.rfi.fr/%E6%94%BF%E6%B2%BB/20140930-%E7%94%B7%E5%AD%90%E6%B7%B1%E5%A4%9C%E9%A3%9E%E8%BD%A6%E5%86%B2%E5%85%A5%E6%97%BA%E8%A7%92%E5%8D%A0%E4%B8%AD%E4%BA%BA%E7%BE%A4%E5%B9%B8%E6%97%A0%E4%BA%BA%E4%BC%A4" target="_blank" rel="nofollow">男子深夜飞车 冲入旺角占中人群 幸无人伤 @ 法广/RFI</a><br>
+（有人怀疑这名男子驾车冲入示威人群，受到幕后指使）<br>
+<br>
+<h3>◇其它网络上找来的照片</h3><br>
+<center><img src="zz2_files/scuSkHkURW7VDCsJ4QTTX5AipbWYzSrURtihH6F8kIcCXr0VK9qik6h1cK2.jpeg" alt="不见图 请翻墙"></center>人们举起横幅要求梁振英下台，寻求真普选。<br>
+（编程随想注：这个横幅，前面的照片有出现过）<br>
+<br>
+<center><img src="zz2_files/U6_07Dj9cJMg3TLjCE2SGymHxRePaOKj1yYKaZ_8o8SG4IvsiWHxuL5w8YS.jpeg" alt="不见图 请翻墙"></center>当日香港有暴雨，示威民众做好防雨准备，大批市民自发带同樽装水、食物、口罩等物资到场声援。<br>
+<br>
+<center><img src="zz2_files/O3Iz3CxaWyrGQ2PMUeqrQZg8zUfwsSeOKNAHmx2-jAy3j5cjTFTh97d-Dnp.jpeg" alt="不见图 请翻墙"></center>傍晚下起雨，人们在雨中继续抗议。<br>
+<br>
+<center><img src="zz2_files/xtm8pYgj8Ar5WqJZCDgAbmcSmnwsxtCsU07jzcwGLFgdfduGMm55k72yxdJ.jpeg" alt="不见图 请翻墙"></center>市民继续在街头聚集，秩序大致良好。<br>
+<br>
+<center><img src="zz2_files/gghnbihx2id6qrymZ0Y6OOmW-DTFmRSs94KM3SyAmTDL0t-J-w3GD3wnOxq.jpeg" alt="不见图 请翻墙"></center>旺角街头的某车的车牌——pk689——pk是港语粗话，689是梁振英当选特首的选票。<br>
+<br>
+<center><img src="zz2_files/OOF4T-XibAIPZOZVixQglZ0Mbqpal5YrWrrekDI1rPF0FXRJbJOPZe-2l-i.jpeg" alt="不见图 请翻墙"></center>在旺角购物区一辆公共汽车上贴的小纸条。大部分是要求梁振英下台、争取普选。<br>
+<br>
+<center><img src="zz2_files/6bldCu3URb2L35zE9DEa1xoSR8USa0GlmEX0Z841ywTWfpi9gVLhV7fY4Hr.jpeg" alt="不见图 请翻墙"></center>同上，贴了多张“689下台”的标签<br>
+<br>
+<center><img src="zz2_files/srnOE7Yd1d-2vhC6V5TqnwQaBtvmWitlihyTPTPS4kP7YYdrFMllSzChvAo.jpeg" alt="不见图 请翻墙"></center>数十名香港大学医学院学生组成急救站，协助有医疗需要的示威人士；<br>
+亦有人送上食物表示支持，数十名学生充当义工，维持秩序，又不停向集会人士洒水降温。<br>
+<br>
+<center><img src="zz2_files/xXgquaQ0CTQvvN7-dJhICk-PQ0g-7DtSqKR3nAML4G6ecBVu0Y_7C7U__07.jpeg" alt="不见图 请翻墙"></center>当日傍晚下起雨，人们在雨中整理杂物。<br>
+<br>
+<a name="head-4"></a><h2>★10.1（周三）——大陆沦陷日，占中第4天</h2><br>
+<b>这天是咱们天朝的沦陷日（1949年，大陆沦陷于共产运动之手）。<br>
+按照惯例，党国各级衙门都会搞点庆祝活动，97后的香港也不例外。<br>
+但是今年发生了如此大规模的民众抗议活动，香港当地衙门不得不取消了“燃放烟花活动”。<br>
+貌似这也是97之后的头一遭，梁书记肯定很生气。</b><br>
+<br>
+<h3>◇德国之声的报道和照片</h3><br>
+<a href="http://www.dw.de/a-17966983" target="_blank" rel="nofollow">“和平占中”进入第四天 @ 德国之声</a><br>
+<center><img src="zz2_files/cjJoAijOgjv3GdLAlLdNtKzpc5hqQwqPLykkvIxO3Se2Gz044xCiGEntaqE.jpeg" alt="不见图 请翻墙"></center>十一那天，旺角某十字路口的“占中”集会<br>
+<br>
+以下照片转载自——<a href="http://www.dw.de/g-17967417" target="_blank" rel="nofollow">十一国庆日 香港占中继续 @ 德国之声</a><br>
+<br>
+<center><img src="zz2_files/3BGj3v8robX6FVHY1A4fASZE-DSXOPCieJbAsHDJkR-s7DuQVy_RncD-_ri.jpeg" alt="不见图 请翻墙"></center>占中示威民众彻夜冒雨守候在金紫荆广场前，等待清晨的升旗仪式。<br>
+按照传统，每年港府都会在10月1日举行升国旗、升区旗仪式。<br>
+<br>
+<center><img src="zz2_files/dNcf8RHU4vRK-jbJ12Der90zMfF_4Bu-4H08bGo8HU7zCUAu1jxvEmRZHbu.jpeg" alt="不见图 请翻墙"></center>升旗仪式现场，示威民众静默举牌撑伞抗议。<br>
+<br>
+<center><img src="zz2_files/haE6fAnfFED6ZY_-JiwkcVvUtkR5oZzAiKknG3GA0ltS5Tl1RWrAWgdccKJ.jpeg" alt="不见图 请翻墙"></center>而当直升机悬挂着国旗飞越示威人群与严阵以待的警察时，示威者中发出了阵阵嘘声。<br>
+<br>
+<center><img src="zz2_files/iBWUUrbQOCBhw_NkGedRY9yNQ8SUS-RI5aPR00yhWe3iLNgZw-KLqbXbOep.jpeg" alt="不见图 请翻墙"></center>当国旗升到杆顶时，许多占中示威者都转身背对国旗，并以双手做出交叉手势。<br>
+<br>
+<center><img src="zz2_files/N0Sornwhw5N6rJPl3zAO1XK_e-WF3PcF2ihHq58IKd1qe5GvWh8kiAcjQgJ.jpeg" alt="不见图 请翻墙"></center>在香港大街上，占中示威者将抗议行动扩大至九龙半岛的商业购物区尖沙咀。<br>
+示威者的一大诉求，便是要求特首梁振英下台。<br>
+<br>
+<center><img src="zz2_files/qku8nvyxG8C2vhO3Fx588fNPz0vEsck6E2aY0ll5b_I2f9GQNLW3Wk8gE6D.jpeg" alt="不见图 请翻墙"></center>不过街头的人群中也不只是激进人士。这名学生，呼吁各方保持冷静。<br>
+<br>
+<center><img src="zz2_files/QLdze_HcmwAuKsajwmG6H1OZ14UQrxDvJOFXzbQiKeqEZO9agHMBkDc-Gjl.jpeg" alt="不见图 请翻墙"></center>街头同样也有亲北京的民众在示威，这导致了与占中示威者之间的言语冲突。<br>
+图中这名支持民主派的示威民众正在痛斥对面的亲北京人士。<br>
+<br>
+<center><img src="zz2_files/WYDlVQwLJDxGJgs_JG6Bx35XLnBhg2kwqW8jrFsm-gX4qt1LvnePC0rPWiz.jpeg" alt="不见图 请翻墙"></center>不少占中示威民众，则象前些天一样，继续清理街头留下的垃圾，保持场地整洁。<br>
+<br>
+<h3>◇《每日邮报》的报道和照片（洋文）</h3><br>
+以下照片转载自——<a href="http://www.dailymail.co.uk/news/article-2775508/Lightning-rain-fail-deter-resolute-Hong-Kong-protesters.md" target="_blank" rel="nofollow">Hong Kong protesters threaten to occupy government buildings amid China hack fears @ Daily Mail Online</a><br>
+<br>
+<center><img src="zz2_files/0meXPKlfrRaCJj0zjc7Etg_uY9HkcQKqFRrvV6quCTxC6t_emFScQSvRCM9.jpeg" alt="不见图 请翻墙"></center>这张是在香港政府总部外的集会<br>
+<br>
+<center><img src="zz2_files/I4B6u2hbQuyK8NtRHjoduTYtaVIILleNJ1U0sMX3Y-HrDiZtB7H1VqmlUFY.jpeg" alt="不见图 请翻墙"></center>同上<br>
+<br>
+<center><img src="zz2_files/jrYklMT5k0ZeW6DtfcZevWxfyiAIY_EJHV-uWH3BZ-KtPlZ8C-MHragrpjv.jpeg" alt="不见图 请翻墙"></center>上万人在夜晚的街道上挥舞闪亮的手机<br>
+<br>
+<center><img src="zz2_files/vA1I1UqICE5OeHXDAjNxEu6amLAYGNGjsUWn8ZPNqtxbi9dmYaISrPQ6jQG.jpeg" alt="不见图 请翻墙"></center>同上<br>
+<br>
+<center><img src="zz2_files/OTJ4_sE0ZBXPMpdlTaEs4WYvKFT_8Fn1I3Lb4B1vVcXPpAT0cCQgf2oaGLR.jpeg" alt="不见图 请翻墙"></center>劳工抗命<br>
+<br>
+<center><img src="zz2_files/Aagqgtgn5eykSrSQ8s_tqZjLm4Rzog6Fy8Elgbr0yZj1fF2Qyly4PyixLOu.jpeg" alt="不见图 请翻墙"></center>香港民众制作的标语牌，要求以梁书记为首的四人帮下台<br>
+<br>
+<center><img src="zz2_files/HvbN3D2hloMkXI2G24lwu7qqE7DOvPLu_BgmctqfLoiSme73tPlFRhchO2I.jpeg" alt="不见图 请翻墙"></center>“我爱香港”的标语牌<br>
+<br>
+<center><img src="zz2_files/bNxxWnDocCk70IFcAgafbIKWK7_E9mmGphxyFkLxi0FLnnSqrHQQXfXL7vk.jpeg" alt="不见图 请翻墙"></center>写在马路上的标语——【公民不服从】<br>
+<br>
+<center><img src="zz2_files/-Da4xtSh9LPIULcFba_5234x4xxl_cYLZwZXWyDmxA797aoFgC3P48hrnq8.jpeg" alt="不见图 请翻墙"></center>烛光之夜<br>
+<br>
+<center><img src="zz2_files/BrkrKQNYx4NYtShAz4GwHWiRK4oZX0XXAx6aT7TcV7DoW2_5Te_XJWZpLF8.jpeg" alt="不见图 请翻墙"></center>抗议者占领了通往尖沙咀的主干道<br>
+<br>
+<center><img src="zz2_files/bONcJd_HrWA6s07FtscS0F4HWdxJPZ9QRIU-NJKlhPkf_jprDZI8qQ50py7.jpeg" alt="不见图 请翻墙"></center>在旺角集会的民众<br>
+<br>
+<center><img src="zz2_files/nmZxciPFdf45LXRr3mVzhiRP56GGypQCg7H65taQcwTzGiT3xtaj2Icoe2i.jpeg" alt="不见图 请翻墙"></center>同上<br>
+<br>
+<center><img src="zz2_files/eudsmcVaCdV0XVkA-VxO5DWgdpAvRpAuBoxR9LfY5evXmacAuwu_J9goUWc.jpeg" alt="不见图 请翻墙"></center>一个女学生呼吁民众在公告板上写下自己的诉求<br>
+<br>
+<center><img src="zz2_files/ILIoq-03WAd_0RvkwvhyySpBZJQ42SlgA9m-5hNVIZhGrgtHEJDx1XDggBD.jpeg" alt="不见图 请翻墙"></center>公告牌上的贴纸<br>
+<br>
+<center><img src="zz2_files/wcYFkr84Fpo5vHN7A0YOoyDfPID_bjW09S58uc0VBhduVRKvADvBYHrSAub.jpeg" alt="不见图 请翻墙"></center>同上<br>
+<br>
+<center><img src="zz2_files/teAQv30f4gcmxBw9_eOrzWqGcw76rUVGH9c4krRXlqmdTqyF140thb6HLTR.jpeg" alt="不见图 请翻墙"></center>天桥上的横幅标语<br>
+<br>
+<center><img src="zz2_files/K5V-lJmfUwaWFshVhYOuOI8GzTSlqQ4cWldLghnSXcZR4SPsrcavh3a2PKE.jpeg" alt="不见图 请翻墙"></center>举牌的女学生（前面出现过）<br>
+<br>
+<center><img src="zz2_files/NuJaBUnohqvwsb8TMgYCdrPDXMfi17a13vXtTndc9rVRArh50Qcw5aRIifK.jpeg" alt="不见图 请翻墙"></center>带上儿子上街抗议<br>
+<br>
+<center><img src="zz2_files/_kwdGEEgR_uVCkRJaK53Prg_KaCUHqUhF4-b3xuS-EIl89IAQM7mfkRgYVM.jpeg" alt="不见图 请翻墙"></center>天气太热，洒水降温<br>
+<br>
+<h3>◇大陆、台湾及西方国家华人的声援</h3><br>
+以下照片转载自——<a href="http://boxun.com/news/gb/china/2014/10/201410010004.shtml" target="_blank" rel="nofollow">在京访民60余人自发相聚公开声援香港占中 @ 博讯网</a><br>
+<br>
+<center><img src="zz2_files/glnWpop1zovStwCSBrIfeMHYOnZtaKBv6Zi63bK5AFo4w4G8f1e4BurtYdD.jpeg" alt="不见图 请翻墙"></center><br>
+<center><img src="zz2_files/xdiC35HN4-VgB132yEgwYlQH9HEnyvigTeRi6wOYden6jar4K3cfco0SFDO.jpeg" alt="不见图 请翻墙"></center><br>
+<a href="http://www.bbc.co.uk/zhongwen/simp/china/2014/10/141001_tw_hk_protest" target="_blank" rel="nofollow">台湾举办晚会支持香港“占中”抗议 @ BBC</a><br>
+<br>
+以下照片转载自——<a href="http://taiwanjustice.com/%E5%8F%B0%E5%8C%97%E8%90%AC%E4%BA%BA%E6%92%90%E9%A6%99%E6%B8%AF%E3%80%80%E6%9E%97%E9%A3%9B%E5%B8%86%EF%BC%9A%E9%80%99%E5%A0%B4%E4%BB%97%E6%B8%AF%E4%BA%BA%E5%B7%B2%E5%8B%9D%E5%88%A9%E3%80%90%E8%81%B2/" target="_blank" rel="nofollow">台北萬人撐香港 @ 台湾公义网</a><br>
+<br>
+<center><img src="zz2_files/J6i_TouG-2itL0A46-VGTClTw7DCueLfg70txyHUYMAyQP1MHXm9Fr0j8hZ.jpeg" alt="不见图 请翻墙"></center>今晚自由廣場前聚集上千人，齊為香港和平占中運動表達聲援。<br>
+<br>
+<center><img src="zz2_files/Cplb9_DR3EwBGPXk7tWCPVnn3UHI2ONouXvLvx_92z6ZP3nJorxBQv8gLGO.jpeg" alt="不见图 请翻墙"></center>眾人在夜色中高唱「海闊天空」、「自由花」等歌曲，場面十分感人。<br>
+<br>
+<center><img src="zz2_files/lc_MqP__8CJJRbActz6lSOypcgVSpHvFgyoiCEQiiaPNERRzrctThT5CVV6.jpeg" alt="不见图 请翻墙"></center>一些青年還自製海報標語，身穿黑衣，別上黃絲帶，以具體行動表達聲援香港占中運動的精神。<br>
+<br>
+<center><img src="zz2_files/vNua-LwEe8faCFS88eRLQA9ts7vSO7ca-050SYt56NcIC4B9vgoktygPvax.jpeg" alt="不见图 请翻墙"></center>「今日香港、明天臺灣」、「速離否則反抗」，這些文字讀來令人驚心動魄，也表達了台灣民眾反抗暴政的決心。<br>
+<br>
+<center><img src="zz2_files/nXKK6156on5IiV6W--_3LQW1GJSfPkGAj7C9I1WODIKq_X8qqYZo-oAfK-S.jpeg" alt="不见图 请翻墙"></center>舞台上的標語「台港連線，隔岸聲援，香港危城告急，十月公民抗命」，顯示了這場活動的宗旨，也為台灣與香港串起追求民主的決心。<br>
+<br>
+以下照片转载自——<a href="http://www.rfa.org/mandarin/yataibaodao/gangtai/zaa-10022014115652.md" target="_blank" rel="nofollow">数千华人在伦敦中国大使馆前集会声援香港“雨伞革命” @ 自由亚洲电台/RFA</a><br>
+（编程随想注：这批照片的尺寸太大，考虑到大伙儿的翻墙流量不高，俺缩小到 1/4 放上来）<br>
+<br>
+<center><img src="zz2_files/-8UiV4aP7Znf7zt1Ahp4IPFN8eoEp0pF7dWeIsZ3nwC8AJz204OuDdYQAw-.jpeg" alt="不见图 请翻墙"></center><br>
+<center><img src="zz2_files/rqfMjHwZwBDeF_tjApwXEtx7f-51nVK4U03fcp8sEd3pYeYNSyTOt159EQZ.jpeg" alt="不见图 请翻墙"></center><br>
+<center><img src="zz2_files/vn6q9I_YeCi7sXERfqg1qV8Utd95lZEZlOXlTU3wdomRJUzZCO5yyoke1xr.jpeg" alt="不见图 请翻墙"></center><br>
+<a href="http://www.rfa.org/cantonese/news/world-reax-09302014105722.md" target="_blank" rel="nofollow">海外组织国庆日示威声援香港 @ 自由亚洲电台/RFA</a><br>
+<br>
+<h3>◇《纽约时报》的报道和照片——抗议活动井然有序</h3><br>
+以下照片转载自——<a href="http://cn.nytimes.com/china/20141001/c01protesters/" target="_blank" rel="nofollow">香港民主示威者迄今秩序井然 @ 纽约时报</a><br>
+<br>
+<center><img src="zz2_files/RXMW86-NgTGju5KgHQqSLQl9W66iE_ZNJ-4yPDNOE2zddM4hUb1MxjAB1dQ.jpeg" alt="不见图 请翻墙"></center>香港的抗议者设立的一个补给站——由于周三是假日，示威活动预计会扩大。<br>
+<br>
+<center><img src="zz2_files/ZUPb0fNUKuAj0pDVzO00wqqYihdtdEM30M2Zxmr5U4O2xlT36kdLko_pqkm.jpeg" alt="不见图 请翻墙"></center>香港抗议者设立的一个急救站。<br>
+这场运动迄今注重卫生、行为有礼、垃圾分类并有自发的医疗队，传达了抗议者的决心。<br>
+<br>
+<h3>◇其它外媒报道</h3><br>
+<a href="http://www.rfa.org/mandarin/yataibaodao/zhengzhi/yf1-10012014101832.md" target="_blank" rel="nofollow">中国官媒再狠批“占中” 多名发起人受到死亡威胁 @ 自由亚洲电台/RFA</a><br>
+<br>
+<a href="http://www.rfa.org/mandarin/yataibaodao/meiti/vt-10012014150636.md" target="_blank" rel="nofollow">网络热贴：香港占中行动持续进行 《人民日报》称港澳国庆喜气浓 @ 自由亚洲电台/RFA</a><br>
+（编程随想注：在咱们天朝，真理部控制下的党国喉舌，渲染“喜大普奔”的假象是它们惯用的伎俩）<br>
+<br>
+<a href="http://www.dw.de/a-17965769" target="_blank" rel="nofollow">梁振英在履行对香港的职责时彻底失败了 @ 德国之声</a><br>
+<br>
+<a href="http://www.bbc.co.uk/zhongwen/simp/china/2014/10/141001_japan_hk_protest" target="_blank" rel="nofollow">日本媒体关注香港“戒严下的国庆节” @ 英国广播公司/BBC</a><br>
+<br>
+<a name="head-5"></a><h2>★10.2（周四）——占中第5天</h2><br>
+<b>抗议民众要求梁振英辞职。梁振英拒绝。示威者包围特首官邸。<br>
+香港警方加紧“备战”，运送大量的橡皮子弹和防爆装置。<br>
+天朝真理部炮制了一篇五毛文（假借深圳高中生的名义“反占中”），因漏洞太多，直接穿帮，沦为笑谈。</b><br>
+<br>
+<h3>◇《纽约时报》的报道和照片</h3><br>
+以下照片转载自——<a href="http://cn.nytimes.com/china/20141003/c03hongkong/" target="_blank" rel="nofollow">抗议者包围政府大楼，政府同意对话 @ 纽约时报</a><br>
+<br>
+<center><img src="zz2_files/N--NBFFrfBo-iCBOySgiWG-YvMrWvzXagJS_fUNbzkSvEImIUTBe8SC5JZ9.jpeg" alt="不见图 请翻墙"></center>周四白天，主要抗议据点的人数有所减少，晚上人数再度增加。<br>
+<br>
+<center><img src="zz2_files/xmkMGwcQ2fpflB6X_wiG5pzXxkRnX2huon3Nt-gtqh1ML2J95q-sWUMSsf9.jpeg" alt="不见图 请翻墙"></center>周四晚上，香港政府总部附近的抗议人数仍在增加。<br>
+<br>
+<center><img src="zz2_files/XAMhTsAAW66-INAIDWTAYViJ9pJ3icERFj8cUi9j1nrUF07LEGBKVywANGF.jpeg" alt="不见图 请翻墙"></center>抗议者举手显示自己无意使用暴力。<br>
+<br>
+<center><img src="zz2_files/uoX1bbNhWf7edUn2Xp3TGuUOJNRb8oYvkhEWXPEZS3F5vSBHOE09QYGwz9n.jpeg" alt="不见图 请翻墙"></center>周四，抗议者在香港立法会外与警察对峙。<br>
+<br>
+<center><img src="zz2_files/JTu8qB15udPRZb17Ne8fqB9AjjpFwjHWdjMLbxVSxIMKLsdJ1X6ttZg77r3.jpeg" alt="不见图 请翻墙"></center>香港政府建筑外墙上的贴纸。<br>
+<br>
+<center><img src="zz2_files/dorK8BhKHf2pftPSAYkjm1MVTYUfujiTv5Ay7sTGzASaCk5WCYOSANPTK7b.jpeg" alt="不见图 请翻墙"></center>抗议者回收垃圾塑料瓶。<br>
+<br>
+<h3>◇自由亚洲电台的报道和照片</h3><br>
+以下照片转载自——<a href="http://www.rfa.org/mandarin/yataibaodao/gangtai/xl1-10022014102245.md" target="_blank" rel="nofollow">占中第五日包围特首办 行动正式升级 @ 自由亚洲电台/RFA</a><br>
+<br>
+<center><img src="zz2_files/tgL-ZllYxBKaOf8LgiVNT4M7L68ftvCALTdIFTLI2LZAiztN33ln1cYgxUx.jpeg" alt="不见图 请翻墙"></center>金钟集会现场<br>
+<br>
+<center><img src="zz2_files/Eviouh_58NvP-2jbPDH9wJMsNPUBaxAOIYM1fNLhg7NBJiYR6PujtU2JCPF.jpeg" alt="不见图 请翻墙"></center>尖沙咀集会现场。<br>
+<br>
+<center><img src="zz2_files/O0Z6WC4h_olDSxYf7WsemLyOB5P7XTH-8djQHkdfD6YxOUS82mRbW_3c8o9.jpeg" alt="不见图 请翻墙"></center>尖沙咀集会现场。<br>
+<br>
+<center><img src="zz2_files/qGH1iB9uTb2kkrApGJJwpbgfDs4pnmqgToTAFHjpATu65iLPREzzZt6lgge.jpeg" alt="不见图 请翻墙"></center>【中学生】静坐支持占中。<br>
+标语牌上写着：<q style="background-color:#DDD;">我们是中学生，我们感谢有人有勇气一直坚持保护我们的未来</q><br>
+<br>
+<h3>◇香港警方开始大量运送“橡皮子弹”</h3><br>
+<a href="http://www.bbc.co.uk/zhongwen/simp/china/2014/10/141002_police_tear_gas_preparation" target="_blank" rel="nofollow">香港警方“运送橡胶子弹” 以备抗议升级 @ 英国广播公司/BBC</a><br>
+<center><img src="zz2_files/qoQvg8sVC6jvhpmXVy79GgO1zKHJGSE4R3s85Rq3lEP1KrhuHy0Btn4MzMR.jpeg" alt="不见图 请翻墙"></center><br>
+<a href="http://inews1.mingpao.com/htm/INews/20141002/gb518300.htm" target="_blank" rel="nofollow">警方高層認橡膠子彈運進特首辦 示威者一旦衝擊 一定採取行動 @ 明报</a><br>
+<center><img src="zz2_files/Q_y7U6OQtsDf87lrbV8xt6by9T9Qm21CHdg5Z-SghAHztZGA-Td5cyraCkN.jpeg" alt="不见图 请翻墙"></center><center><img src="zz2_files/6nQd8jVChdrUXIrRXV9dyhYkWWPM7ldTGIexWDlT6m6NAVpbG8c3yVE7n1L.jpeg" alt="不见图 请翻墙"></center><br>
+<h3>◇真理部的“五毛文”穿帮</h3><br>
+　　这篇五毛文最早是是在10月1日发表在“深圳新闻网”，标题是《深圳高中生致信香港同龄同学：我们都有一个家叫中国》，链接在“<a href="http://www.sznews.com/news/content/2014-10/01/content_10297011.htm" target="_blank" rel="nofollow">这里</a>”。<br>
+　　此文发出后的次日（10月2日），就在网上广为流传——说不定是真理部在幕后推手，才传播得如此迅速。可惜捏，很快就穿帮了，沦为网友们的笑谈。<br>
+　　这封公开信在提及97回归时说到：<q style="background-color:#DDD;">香港回归祖国已经17年。97回归的时候，我父母都参加了很多庆祝活动，我那时年幼，也依稀记得那种普天喜庆的景象。</q><br>
+　　这篇五毛文，单凭这句就露馅啦 :)<br>
+<br>
+下面是部分网友的调侃：<br>
+“留级多少年了？”<br>
+“充分证明胎教是有效的！”<br>
+“我估计这个高中生至少是个处级干部” <br>
+“人家的梦想是民主，跟你不太一样喔”<br>
+“人家说的是求普选，没说自己不是中国人”。<br>
+“在一个从小就开始强调政治挂帅的环境，跟我说你对政治的了解很有限？”<br>
+“求别黑深圳高中生”。<br>
+<br>
+以下是某些墙外知名媒体对此事的报道（其实是嘲讽）。<br>
+<br>
+<a href="http://www.chinese.rfi.fr/%E4%B8%AD%E5%9B%BD/20141003-%E6%B7%B1%E5%9C%B3%E5%AD%A6%E7%94%9F%E5%85%AC%E5%BC%80%E4%BF%A1%E5%90%81%E6%B8%AF%E7%94%9F%E5%9B%9E%E6%A0%A1%E4%B8%8A%E8%AF%BE%E5%86%85%E5%AE%B9%E9%94%99%E6%BC%8F%E7%99%BE%E5%87%BA%E8%B4%BB%E7%AC%91%E5%A4%A7%E6%96%B9" target="_blank" rel="nofollow">深圳学生公开信吁港生回校上课内容错漏百出贻笑大方 @ 法广/RFI</a><br>
+<br>
+<a href="http://udn.com/NEWS/BREAKINGNEWS/BREAKINGNEWS4/8974659.shtml" target="_blank" rel="nofollow">深圳學生籲停止占中 公開信被打臉 @ 联合新闻网</a><br>
+<br>
+<a href="http://www.scmpchinese.com/sc/china/39326/shen-zhen-gao-san-sheng-gong-kai-xin-xu-gang-xue-sheng-xin-guo-jia-wang-min-97hui-gui-ni" target="_blank" rel="nofollow">深高三生公开信吁香港学生信国家 网民问：97回归时你几岁？ @ 南华早报</a><br>
+<br>
+<h3>◇其它外媒报道</h3><br>
+<a href="http://www.bbc.co.uk/zhongwen/simp/press_review/2014/10/141002_press_hongkong_china_panic" target="_blank" rel="nofollow">英媒：北京担心香港抗议蔓延大陆 @ 英国广播公司/BBC</a><br>
+<br>
+<a href="http://www.voachinese.com/content/hongkong-protest-20141002/2470067.md" target="_blank" rel="nofollow">美国专家：武力镇压香港抗议代价巨大 @ 美国之音/VOA</a><br>
+<br>
+<a href="http://cn.nytimes.com/china/20141002/c02leung/" target="_blank" rel="nofollow">梁振英在侍奉北京和香港之间走钢丝 @ 纽约时报</a><br>
+<br>
+<a href="http://www.voachinese.com/content/hk-protest-20141002/2469714.md" target="_blank" rel="nofollow">中共党报社论力挺梁振英 @ 美国之音/VOA</a><br>
+<br>
+<a href="http://www.dw.de/a-17969305" target="_blank" rel="nofollow">最后通牒到期前，梁振英会见媒体 @ 德国之声</a><br>
+<br>
+<a href="http://cn.wsj.com/gb/20141002/bch192415.asp" target="_blank" rel="nofollow">香港警方誓言将阻止抗议升级 @ 华尔街日报/WSJ</a><br>
+<br>
+<a href="http://www.chinese.rfi.fr/%E4%B8%AD%E5%9B%BD/20141002-%E5%8D%A0%E4%B8%AD%E8%BF%90%E5%8A%A8%E7%A4%BA%E5%A8%81%E8%80%85%E5%8C%85%E5%9B%B4%E4%BA%86%E7%89%B9%E9%A6%96%E6%A2%81%E6%8C%AF%E8%8B%B1%E5%8A%9E%E5%85%AC%E5%8C%BA%E4%B8%8E%E8%AD%A6%E6%96%B9%E5%AF%B9%E5%B3%99" target="_blank" rel="nofollow">占中运动示威者包围特首梁振英办公区 与警方对峙 @ 法广/RFI</a><br>
+<br>
+<a href="http://www.voachinese.com/content/hongkong-occupy-central-20141002/2469848.md" target="_blank" rel="nofollow">香港占中运动逼迫梁振英辞职 @ 美国之音/VOA</a><br>
+<br>
+<a href="http://www.chinese.rfi.fr/%E4%B8%AD%E5%9B%BD/20141002-%E6%B3%95%E5%AA%92%EF%BC%9A%E9%A6%99%E6%B8%AF%E6%9C%AC%E5%8F%AF%E4%BB%A5%E4%B8%BA%E4%B8%AD%E5%9B%BD%E6%B0%91%E4%B8%BB%E5%8C%96%E7%A4%BA%E8%8C%83" target="_blank" rel="nofollow">法媒：香港本可以为中国民主化示范 @ 法广/RFI</a><br>
+<br>
+<a href="http://www.voachinese.com/content/hk-students-react-20141002/2470780.md" target="_blank" rel="nofollow">梁振英拒辞职 学生继续示威 @ 美国之音/VOA</a><br>
+<br>
+<a href="http://www.voachinese.com/content/china-hk-protests-analysis-20141002/2470777.md" target="_blank" rel="nofollow">中共提升对香港占中的批评调门 令人不禁联想天安门事件 @ 美国之音/VOA</a><br>
+<br>
+<a href="http://www.chinese.rfi.fr/%E4%B8%AD%E5%9B%BD/20141002-%E9%A6%99%E6%B8%AF%E5%8F%8D%E5%8D%A0%E4%B8%AD%E8%88%86%E8%AE%BA%E6%B6%8C%E5%8A%A8-%E7%BE%A4%E4%BC%97%E6%96%97%E7%BE%A4%E4%BC%97%E5%8F%AF%E8%83%BD%E6%80%A7%E5%A2%9E%E5%A4%A7" target="_blank" rel="nofollow">香港反占中舆论涌动 群众斗群众可能性增大 @ 法广/RFI</a><br>
+<br>
+<b>俺博客上，和本文相关的帖子（需翻墙）</b>：<br>
+<a href="2014/10/weekly-share-73.md">每周转载：香港占中民主运动的外媒报道和【大量】照片（9-22至9-28）</a><br>
+<a href="2014/09/weekly-share-71.md">每周转载：关于香港和澳门的特首选举（外媒报道和网友评论）</a><br>
+<a href="2014/06/weekly-share-69.md">每周转载：关于“一国两制白皮书”和“国台办言论”（大量网友评论和图片）</a><br>
+<a href="2012/09/weekly-share-20.md">每周转载：关于香港抗议洗脑教育（网文3篇，图片多张）</a><br>
+<a href="2012/09/weekly-share-22.md">每周转载：关于朝廷对爱国主义的忽悠（网文5篇）</a><br>
+<a href="2013/12/political-concepts-state-citizenship-etc.md">政治常识扫盲：理清“国家、政体、公民、政府、政党”等概念</a><br>
+<a href="2011/06/june-fourth-incident-0.md">回顾六四</a>（系列）<br>
+<a href="2011/12/revolution-0.md">谈革命</a>（系列）
+<div class="post-copyright">
+<b>版权声明</b><br>本博客所有的原创文章，作者皆保留版权。转载必须包含本声明，保持本文完整，并以超链接形式注明作者<a href="mailto:program.think@gmail.com">编程随想</a>和本文原始地址：<br>
+<a href="2014/10/weekly-share-74.md" id="OriginalPostUrl">2014/10/weekly-share-74.md</a>
+</div>
+<div style="clear: both;"></div>
+</div>
+<div class="post-footer" style="margin-bottom:50px;">
+<div class="post-footer-line post-footer-line-1">
+<span class="post-author vcard">
+</span>
+<span class="reaction-buttons">
+</span>
+<span class="star-ratings">
+</span>
+<span class="post-icons">
+</span>
+<span class="post-backlinks post-comment-link">
+</span>
+</div>
+<div class="post-footer-line post-footer-line-2 post-toolbar">
+</div>
+<div class="post-footer-line post-footer-line-3">
+<span class="post-location">
+</span>
+</div>
+</div>
+</div>
+<hr>
+<div style="font-size: 100%;" class="comments" id="comments">
+<a name="comments"></a>
+<h4 data-count="423" id="comment-label">423 条评论</h4>
+<style type="text/css">
+    .comment-number:after {
+      content: '423';
+    }
+    #side-toolbar {
+      display: block !important;
+    }
+    </style>
+<script type="text/javascript">
+    jQuery(".comments .comments-content").hide();
+    </script>
+<div style="display: none;" class="comments-loading"><div><b>正在加载评论</b></div><div aria-valuenow="100" aria-valuemax="100" aria-valuemin="0" role="progressbar" class="progress-bar ui-progressbar ui-widget ui-widget-content ui-corner-all"><div class="progress-label">100%</div><div style="display: block; width: 100%;" class="ui-progressbar-value ui-widget-header ui-corner-left ui-corner-right"></div></div></div>
+<div class="comments-warning"></div>
+<div class="comments-content">
+<script async="async" src="zz2_files/comments.js" type="text/javascript"></script>
+<script type="text/javascript">
+    (function() {
+      var items = [{'id': '2982004728497193318', 'body': '沙發!!! :D', 'timestamp': '1412514190048', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412514190048#c2982004728497193318', 'author': {'name': 'v998', 'avatarUrl': 'http://img2.blogblog.com/img/b16-rounded.gif', 'profileUrl': 'http://www.blogger.com/profile/08853123019167798224'}, 'displayTime': '十月 05, 2014', 'deleteclass': 'item-control blog-admin pid-1429061783'}, {'id': '6093531225407019896', 'body': '沙发', 'timestamp': '1412514269066', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412514269066#c6093531225407019896', 'author': {'name': '匿名', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 05, 2014', 'deleteclass': 'item-control blog-admin pid-1476867992'}, {'id': '3415004645136922949', 'body': '编随兄, 评论连结到的位置好像不准啊...', 'timestamp': '1412514589558', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412514589558#c3415004645136922949', 'author': {'name': 'v998', 'avatarUrl': 'http://img2.blogblog.com/img/b16-rounded.gif', 'profileUrl': 'http://www.blogger.com/profile/08853123019167798224'}, 'displayTime': '十月 05, 2014', 'deleteclass': 'item-control blog-admin pid-1429061783'}, {'id': '3376083471935379915', 'body': '这么靠前&#65292;兴奋啊', 'timestamp': '1412514598570', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412514598570#c3376083471935379915', 'author': {'name': '匿名', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 05, 2014', 'deleteclass': 'item-control blog-admin pid-1339615872'}, {'id': '394178211897852178', 'parentId': '3415004645136922949', 'body': '@Chrome on 8.1', 'timestamp': '1412514608774', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412514608774#c394178211897852178', 'author': {'name': 'v998', 'avatarUrl': 'http://img2.blogblog.com/img/b16-rounded.gif', 'profileUrl': 'http://www.blogger.com/profile/08853123019167798224'}, 'displayTime': '十月 05, 2014', 'deleteclass': 'item-control blog-admin pid-1429061783'}, {'id': '643183668057347849', 'body': '支那五毛不会又来抢占高地吧&#65292;最近支那五毛极其活跃&#65292;而且不敢亮马甲', 'timestamp': '1412514624881', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412514624881#c643183668057347849', 'author': {'name': '守夜人', 'avatarUrl': '//lh4.googleusercontent.com/-ggIPDfh1CwQ/AAAAAAAAAAI/AAAAAAAABS8/efb786PA19s/s512-c/photo.jpg', 'profileUrl': 'http://www.blogger.com/profile/11275317159378783280'}, 'displayTime': '十月 05, 2014', 'deleteclass': 'item-control blog-admin pid-1433208295'}, {'id': '275765334350335891', 'parentId': '3415004645136922949', 'body': '经常走到了图片的位置', 'timestamp': '1412514655241', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412514655241#c275765334350335891', 'author': {'name': 'v998', 'avatarUrl': 'http://img2.blogblog.com/img/b16-rounded.gif', 'profileUrl': 'http://www.blogger.com/profile/08853123019167798224'}, 'displayTime': '十月 05, 2014', 'deleteclass': 'item-control blog-admin pid-1429061783'}, {'id': '4900883222535276413', 'parentId': '2982004728497193318', 'body': '由全部香港市民组成的提名委员会筛选候选人&#65292;再由全体香港市民一人一票普选香港特首是目前最适合香港社情的民主选举方案&#12290;事实上实践了港人治港的方针&#12290;\74br /\76\74br /\76撤销提名委员会&#65292;由公民自由参选&#65292;貌似民主&#65292;实则过于激进&#65292;容易让极少极端分子获得登台表演的机会&#65292;制造很多毫无必要的麻烦&#65292;如香港独立等&#12290;\74br /\76\74br /\76按照基本法和全国人大的规定&#65292;提名委员会四分之三的委员由香港各功能界别自主选出&#65292;中央政府不可能操控&#12290;提名委员会四分之一的委员是立法会议员和区议员&#65292;基本上等同于香港市民直选&#12290;\74br /\76\74br /\76因此&#65292;中央政府不可能通过控制提名委员会操纵特首选举&#12290;\74br /\76\74br /\76现在香港少数人无视中央政府已经逐步推进的香港民主进程&#65292;无事生非&#65292;以满足其个人的权力欲&#65292;实在是香港的不幸&#12290;\74br /\76\74br /\76广大青少年不应该人云亦云&#65292;而是应该有自己的独立思考&#12290;\74br /\76\74br /\76冒名顶替者死全家&#12290;无此声明即为冒用本人名义&#12290;', 'timestamp': '1412514809545', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412514809545#c4900883222535276413', 'author': {'name': '忠党爱国', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 05, 2014', 'deleteclass': 'item-control blog-admin pid-313879263'}, {'id': '8764082504388057091', 'body': '那些声称设立特首提名委员会&#65292;实质上就是中央政府垄断特首提名权的说法&#65292;无视了这样一个基本事实&#65292;那就是香港特首提名委员会成员&#65292;四分之三由香港各功能组别分别选出&#65292;中央政府并没有权利指定任何一名提名委员会成员&#12290;另外四分之一委员事实上由香港市民直选产生&#12290;\74br /\76\74br /\76在各个功能组别内部&#65292;提名委员的推选办法各不相同&#65292;但是总体上是民主选举的&#65292;中央政府不可能操纵数十个功能组别各自的选举过程&#65292;不可能决定各个功能组别的选举结果&#12290;\74br /\76\74br /\76况且&#65292;香港政改的大方向是逐步缩小&#65292;最终取消功能组别&#65292;逐步扩大直选议员比例&#65292;最终实现立法会和特首提名委员会全部由香港市民直选代表组成&#12290; 这是中央政府与香港建制派&#65292;泛民主派已经形成默契的共识&#12290;而且在全国人大2012年的决定中已有明确体现&#12290;\74br /\76\74br /\76按照这样一个渐进的方案&#65292;稳步推进香港民主进程&#65292;是对香港人民和全体中国人民最有利&#65292;代价最小的方案&#12290;\74br /\76\74br /\76按照香港少数极端分子的想法&#65292;撤销提名委员会筛选机制&#65292;让各路妖孽在特首选举的舞台上兴风作浪&#65292;尽情表演&#65292;这会对香港社会造成严重的伤害&#65292;甚至撕裂香港&#65292;让香港陷入无休止的政治争论中&#65292;丧失发展机遇&#65292;最终在中华民族伟大复兴的道路上彻底边缘化&#12290;\74br /\76\74br /\76冒名顶替死全家&#12290;如无此声明&#65292;必为冒名顶替者&#12290;', 'timestamp': '1412514951699', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412514951699#c8764082504388057091', 'author': {'name': '忠党爱国', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 05, 2014', 'deleteclass': 'item-control blog-admin pid-313879263'}, {'id': '8860443049440652780', 'body': 'tor太卡&#65292;几次评论发不出&#65292;沙发应该没有了', 'timestamp': '1412515046954', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412515046954#c8860443049440652780', 'author': {'name': 'get freedom', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 05, 2014', 'deleteclass': 'item-control blog-admin pid-1311858796'}, {'id': '7548320488805581940', 'body': '有明白人说说这事的结局吗&#65311;共党是不会让步的&#65292;学生会吃亏的&#12290;他们还有什么筹码&#12290;现在就是秀才遇见兵&#12290;', 'timestamp': '1412515086146', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412515086146#c7548320488805581940', 'author': {'name': '匿名', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 05, 2014', 'deleteclass': 'item-control blog-admin pid-1339615872'}, {'id': '4104046420590715759', 'parentId': '8764082504388057091', 'body': '我去&#65292;终党碍国都跑到我前面了&#65292;这么积极&#65292;加班费挺高啊\74br /\76你重复发贴&#65292;还好意思说别人冒名顶替&#65311;重复发贴死全家&#65281;\74br /\76证据&#65306;\74br /\762014/10/weekly-share-73.md?comment\0751412507272252\74br /\76我在那回复过你了&#65292;你重复我不重复', 'timestamp': '1412515429562', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412515429562#c4104046420590715759', 'author': {'name': 'get freedom', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 05, 2014', 'deleteclass': 'item-control blog-admin pid-1311858796'}, {'id': '8831010233568559171', 'parentId': '2982004728497193318', 'body': 'TO 终党碍国\74br /\76你重复发贴&#65292;还好意思说别人冒名顶替&#65311;重复发贴死全家&#65281;\74br /\76证据&#65306;\74br /\762014/10/weekly-share-73.md?comment\0751412505822717\74br /\76我在那回复过你了&#65292;你重复我不重复', 'timestamp': '1412515695507', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412515695507#c8831010233568559171', 'author': {'name': 'get freedom', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 05, 2014', 'deleteclass': 'item-control blog-admin pid-2074720742'}, {'id': '6101516078184240876', 'parentId': '2982004728497193318', 'body': '支持香港占中民主运动&#65281;&#65281;\74br /\76\74br /\76冒名顶替者死全家&#12290;无此声明即为冒用本人名义&#12290;', 'timestamp': '1412516217598', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412516217598#c6101516078184240876', 'author': {'name': '忠党爱国', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 05, 2014', 'deleteclass': 'item-control blog-admin pid-1054934421'}, {'id': '6873162241027955091', 'parentId': '8764082504388057091', 'body': '作为在香港的大陆学生&#65292;我想回答一下这个提名委员会的问题&#12290;根据&#12298;香港基本法&#12299;第45条&#65292;普选行政长官的候选人是&#8220;由一个有广泛代表性的提名委员会按民主程序提名&#8221;&#12290;但很多香港人质疑这个提名委员会的&#8220;广泛代表性&#8221;&#65292;按照目前的方案&#65292;只有24万人可以选举提名委员会的委员&#65292;而却有350多万人可以选举立法会议员&#65292;因此这个提名委员会从一开始就无法代表300多万人的意见了&#12290;目前选举委员会共1200人&#65292;分为4个界别&#65292;每个界别300人&#65292;但很多港人对于选举委员会的界别划分有意见&#12290;例如教育界&#65288;第 2 界别内的小界别&#65289;选民最多&#65292;有 8 万多人&#65292;只有 30 票&#65307;渔\74br /\76农界&#65288;第 3 界别内的小界别&#65289;选民只有 159 人&#65288;其实根据统计资料&#65292;渔农界大概有4000余人&#65292;但只有159人具有投票权&#65289;&#65292;却有 60 票&#12290;', 'timestamp': '1412516320167', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412516320167#c6873162241027955091', 'author': {'name': '匿名', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 05, 2014', 'deleteclass': 'item-control blog-admin pid-1476867992'}, {'id': '327591113823258896', 'body': '香港人就活该被奴役&#65292;\74br /\0761&#12290;部分商家认为是学生而不是梁振英影响了他们做生意\74br /\0762&#12290;占中者想与港府对话&#65292;但特首办的人数才百余人\74br /\0763&#12290;居民区的人数太多&#65292;哪怕排除了黑社会的人&#65292;也的确引起一部分市民的不满&#12290;不管背后有什么理由&#65292;简单来看的话就是你挡了我的路&#65281;', 'timestamp': '1412517446183', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412517446183#c327591113823258896', 'author': {'name': '匿名', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 05, 2014', 'deleteclass': 'item-control blog-admin pid-2122670635'}, {'id': '7943226952052931618', 'parentId': '2982004728497193318', 'body': 'TO 3单元\74br /\76党国叛徒&#65292;突突突&#65292;哈哈&#65281;&#65281;\74br /\76TO 1单元 正宗滴终党碍国\74br /\76你的长篇大论看上去都差不多&#65292;搞得我在2单元的证据链接到你另一条留言了&#65292;证据应该是&#65306;\74br /\762014/10/weekly-share-73.md?comment\0751412515051733\74br /\076', 'timestamp': '1412517463643', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412517463643#c7943226952052931618', 'author': {'name': 'get freedom', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 05, 2014', 'deleteclass': 'item-control blog-admin pid-1426644303'}, {'id': '7211047837907102930', 'body': '爱国就是用自己的努力将国家变为自己理想的国度.比起很多庆幸自己没有参加8-9捡回一条命的人来说,这些占中的香港人才是真正热爱香港的人呀.', 'timestamp': '1412517679151', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412517679151#c7211047837907102930', 'author': {'name': 'Shelikhoo', 'avatarUrl': 'http://img1.blogblog.com/img/openid16-rounded.gif', 'profileUrl': 'http://shelikhoo.pip.verisignlabs.com/'}, 'displayTime': '十月 05, 2014', 'deleteclass': 'item-control blog-admin pid-139261091'}, {'id': '1967184083117566664', 'body': '这个是&#8220;高级黑&#8221; &#65281;&#65281;&#65281;\74br /\76\74br /\76深圳同胞冒多大的风险才写了这篇文章&#65292;而且被揭露是错的后还不删文章&#65292;就是想让广大民众知道中共有多黑&#12290;骂中共&#65292;还能在深圳网站公开发表&#65292;我们应该佩服作者.', 'timestamp': '1412518126955', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412518126955#c1967184083117566664', 'author': {'name': '支持编程随想', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': '2014/10/weekly-share-74.md%23comments'}, 'displayTime': '十月 05, 2014', 'deleteclass': 'item-control blog-admin pid-1811089692'}, {'id': '6303437155547114007', 'parentId': '1967184083117566664', 'body': '我说的是这篇文章&#8220;&#12298;深圳高中生致信香港同龄同学&#65306;我们都有一个家叫中国&#12299;&#8221;', 'timestamp': '1412518219772', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412518219772#c6303437155547114007', 'author': {'name': '支持编程随想', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': '2014/10/weekly-share-74.md%3Fcomment%3D1412518126955'}, 'displayTime': '十月 05, 2014', 'deleteclass': 'item-control blog-admin pid-1811089692'}, {'id': '8451641984227344067', 'body': '香港公安用救护车运送&#8220;橡皮子弹&#8221;&#65292;要是战争场合是违反国际法的&#12290;香港是示威&#65292;钻了空子&#12290;', 'timestamp': '1412518460965', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412518460965#c8451641984227344067', 'author': {'name': '本评论注定被吃', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 05, 2014', 'deleteclass': 'item-control blog-admin pid-1572957734'}, {'id': '5892960871398650723', 'body': '为什么前一篇博文的评论显示不出来了', 'timestamp': '1412519331851', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412519331851#c5892960871398650723', 'author': {'name': '匿名', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 05, 2014', 'deleteclass': 'item-control blog-admin pid-438163549'}, {'id': '2646351136366314334', 'parentId': '8764082504388057091', 'body': '全国人民代表大会之前已有决定&#65292;逐步缩小功能界别代表比例&#65292;最终取消功能组别&#65292;逐步扩大直选议员比例&#65292;最终实现立法会和特首提名委员会全部由香港市民直选代表组成&#12290;\74br /\76\74br /\76按照全国人大的安排&#65292;香港市民在不久的将来&#65292;不仅可以一人一票普选香港特首&#65292;更可以一人一票直选立法会议员和特首提名委员会委员&#65292;从而完整实现一国两制&#65292;港人治港&#12290;\74br /\76\74br /\76希望广大香港同胞不要被少数政客利用了&#12290;\74br /\76\74br /\76冒名顶替者死全家&#12290;无此声明即为冒用本人名义&#12290;\74br /\76\74br /\76冒名顶替者在为你们所谓的民主斗士抹黑&#12290;', 'timestamp': '1412519337790', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412519337790#c2646351136366314334', 'author': {'name': '忠党爱国', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 05, 2014', 'deleteclass': 'item-control blog-admin pid-313879263'}, {'id': '1041751746712101831', 'parentId': '2982004728497193318', 'body': '&#12300;提名委員會四分之三的委員由香港各功能界別自主選出&#65292;中央政府不可能操控&#12301;\74br /\76不可能個屁&#12290;\74br /\76功能界別才二十多萬人&#65292;要操控有多難&#65311;\74br /\76單看上次香港律師會對主席林新強的不信任投票&#65288;因為他說白皮書不影響司法獨立&#65292;要求法官需要愛國也沒有問題&#65292;還說愛國是公民責任等&#65289;&#65292;就有很多律師說受到壓力&#65292;甚至被要求交出&#12300;授權票&#12301;&#65292;就可以看到你說的&#12300;不可能&#12301;有多麼不可能&#12290;\74br /\76\74br /\76&#12300;提名委員會四分之一的委員是立法會議員和區議員&#65292;基本上等同於香港市民直選&#12301;\74br /\76是啊&#65292;功能組別也是市民直選對吧&#65311;', 'timestamp': '1412519465017', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412519465017#c1041751746712101831', 'author': {'name': 'FlyingForever', 'avatarUrl': 'http://img2.blogblog.com/img/b16-rounded.gif', 'profileUrl': 'http://www.blogger.com/profile/07956339840212174138'}, 'displayTime': '十月 05, 2014', 'deleteclass': 'item-control blog-admin pid-1529064241'}, {'id': '833889248598115013', 'parentId': '3415004645136922949', 'body': 'TO v998\74br /\76多谢你的仔细测试 :)\74br /\76\74br /\76刚才俺想了一下&#65292;有一种可能是&#65306;\74br /\76图片加载慢&#65292;俺用 JS 脚本进行跳转的时候&#65292;图片还没有加载完&#12290;\74br /\76等到图片加载完&#65292;会把页面拉长&#65292;然后就导致页面偏移&#65292;位置就不对了&#12290;', 'timestamp': '1412519557545', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412519557545#c833889248598115013', 'author': {'name': '编程随想', 'avatarUrl': 'http://1.bp.blogspot.com/-XePI_9_4Qmw/Th5EhWLzFmI/AAAAAAAAAf4/-WZBwo-0frU/s45/Thinker.jpg', 'profileUrl': 'http://www.blogger.com/profile/11741356469378252621'}, 'displayTime': '十月 05, 2014', 'deleteclass': 'item-control blog-admin pid-1582521586'}, {'id': '8165919375954526118', 'parentId': '643183668057347849', 'body': 'TO 守夜人\74br /\76俺看到你在前一篇博文的留言区里面讨论得热烈&#12290;\74br /\76不过最好不用使用人身攻击的词汇&#12290;\74br /\76\74br /\76俺大致看了那个匿名留言&#65292;不一定是五毛&#65292;也可能是&#8220;比较典型的犬儒&#8221;&#12290;\74br /\76俺之前写过两篇博文&#65306;\74br /\76&#12298;[url\752012/12/emperor-complex.md]天朝民众的心理分析&#65306;圣君情结[/url]&#12299;\74br /\76&#12298;[url\752012/06/stockholm-syndrome.md]天朝民众的心理分析&#65306;斯德哥尔摩综合症[/url]&#12299;\74br /\76后面有空的话&#65292;会再写一篇谈谈&#8220;犬儒&#8221;&#12290;\74br /\76另&#65292;[url\75https://code.google.com/p/program-think/wiki/Books]俺的网盘[/url]上曾经分享过一本胡平写的&#12298;犬儒病&#12299;', 'timestamp': '1412519886996', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412519886996#c8165919375954526118', 'author': {'name': '编程随想', 'avatarUrl': 'http://1.bp.blogspot.com/-XePI_9_4Qmw/Th5EhWLzFmI/AAAAAAAAAf4/-WZBwo-0frU/s45/Thinker.jpg', 'profileUrl': 'http://www.blogger.com/profile/11741356469378252621'}, 'displayTime': '十月 05, 2014', 'deleteclass': 'item-control blog-admin pid-1582521586'}, {'id': '7269660152939039175', 'body': '1984年的&#12298;中英联合声明&#12299;对特首的选举描述不清&#65292;没有提及普选的存在&#65292;然而英国政府在签署&#12298;联合声明&#12299;后临撤走前连忙想在港试&#8220;普选&#8221;&#65292;这就是英国政府耍滑不妥之处了&#65292;要是在1984年前甚至1984年的几十年前就制定了普选的制度&#65292;这样后继政权也会按惯例普选&#65292;但是港英政府是在签了&#12298;联合声明&#12299;后临急埋了这个地雷&#65292;向港人散播虚无缥缈的期盼&#65292;令这些人争普选&#65292;自己撤走也埋个烂摊子等后继的政权收拾&#65292;这些人被港英政府的误导引致今天这样的乱事&#65292;还有就是&#65292;这次说是民主运动还不如说是一场政变&#65292;一开始这堆港人已处在攻势&#65292;政府处在守势&#65292;刚好运动的始作俑者之一是一个叫周永康的人&#65292;大陆周永康跟港人周永康虽然仅是名字一样的两个人&#65292;然而两个周永康闹的事却很像&#65292;一个部署武警部队围攻北京政府部门&#65292;一个煽动市民围堵港府总部&#65292;两个周永康都是政变人士&#65292;他们的态度都很嚣张&#65292;实际不管你用啥名义号召武警部队还是人数很多的市民冲撞政府的总部&#65292;已是违法的暴徒&#65292;甚至是危险的政变势力&#65292;警卫实弹射杀侵袭的你也没话说的&#65292;不排除这次民主运动背后有中共派系内斗的影子&#65292;号召占中的几个人都很跷蹊&#65292;这两天事态冷却了一点又有人捣乱&#65292;又给他们话柄再次聚集&#65292;这堆参与政变的港人小心被人利用了还觉得自己很正义', 'timestamp': '1412520051690', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412520051690#c7269660152939039175', 'author': {'name': '匿名', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 05, 2014', 'deleteclass': 'item-control blog-admin pid-778247574'}, {'id': '7816767013530971944', 'parentId': '1967184083117566664', 'body': 'TO 支持编程随想\74br /\76俺觉得不像&#12290;\74br /\76\74br /\76之所以一直没有把这篇露馅的文章撤下来&#65292;是因为&#8212;&#8212;如果撤下来&#65292;党国等于承认这篇文章有问题&#12290;\74br /\76所以喉舌的媒体只好一直留着这篇五毛文&#12290;', 'timestamp': '1412520258887', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412520258887#c7816767013530971944', 'author': {'name': '编程随想', 'avatarUrl': 'http://1.bp.blogspot.com/-XePI_9_4Qmw/Th5EhWLzFmI/AAAAAAAAAf4/-WZBwo-0frU/s45/Thinker.jpg', 'profileUrl': 'http://www.blogger.com/profile/11741356469378252621'}, 'displayTime': '十月 05, 2014', 'deleteclass': 'item-control blog-admin pid-1582521586'}, {'id': '2069686823368417497', 'body': '支持占中&#65292;就算失败也要支持&#65292;占中是香港人民的占中&#65292;不是占中领袖的占中&#65292;是香港人民争取民主的运动&#65292;是中国民主化的第一枪&#12290;民众不要听那些利用民众争取真普选愿望搞阴谋的领袖&#65292;要有自己的主见&#65292;要有独立的民主信念&#65292;击垮一切试图破坏公民运动的行动和阴谋&#12290;', 'timestamp': '1412520769519', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412520769519#c2069686823368417497', 'author': {'name': '匿名', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 05, 2014', 'deleteclass': 'item-control blog-admin pid-659271547'}, {'id': '1878862756660122653', 'body': '博主 你发表一下你的看法吧  我经常听石涛TV  分析现在香港的局势  和有关 89 64事情 习近平的父亲 强烈反对武力镇压  习近平会做什么样的决定&#12290; 还有就是 我从事计算机方面 SAP开发 想工作几年以后 技术移民  博主 可以给大伙分析一下 如何移民吗', 'timestamp': '1412520804190', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412520804190#c1878862756660122653', 'author': {'name': 'Tony Yule', 'avatarUrl': '//lh4.googleusercontent.com/-CO7RZLSSL_s/AAAAAAAAAAI/AAAAAAAAAro/Zymfox-EZ4A/s512-c/photo.jpg', 'profileUrl': 'http://www.blogger.com/profile/17185368920867656689'}, 'displayTime': '十月 05, 2014', 'deleteclass': 'item-control blog-admin pid-1060213586'}, {'id': '3550540196277519081', 'parentId': '327591113823258896', 'body': 'TO 9楼的网友\74br /\76针对你提到的几点&#65292;说说俺的观点供参考&#12290;\74br /\76\74br /\76在出事的旺角周边&#65292;是繁华闹市区&#65292;确实商铺很多&#12290;\74br /\76但是商家的人数和居民区的人数相比&#65292;应该还是少数&#12290;\74br /\76而学生在那里聚集&#65292;&#8220;对居民区的影响&#8221;应该不如&#8220;对商铺的影响&#8221;&#12290;\74br /\76就算居民区的人感觉不爽&#65292;也未必会去找学生们斗殴&#65288;不妨设身处地想想&#65292;如果你住在那里&#65292;会因为交通受影响而去打人吗&#65289;\74br /\76\74br /\76商铺的人&#65292;倒是有可能因为商业利益受损&#65292;而感觉很不爽&#12290;\74br /\76但是那里的商铺业主&#65292;如果要亲自出马或者招呼几个伙计&#65292;人数也不会太多&#12290;\74br /\76而那天殴打学生的群体&#65292;人数很多&#12290;\74br /\76显然&#65292;不像是单个商铺业主的行为&#12290;\74br /\76\74br /\76所以&#65292;俺只能想到两种可能性&#65306;\74br /\0761&#12289;要么如外界普遍猜测&#65292;是黑社会组织&#65292;背后有政治利益在推动\74br /\0762&#12289;要么是旺角周边多个商铺的业主联手雇人来斗殴&#12290;\74br /\76\74br /\76俺倾向于认为前者的可能性较大&#65292;后者的可能性很小&#12290;\74br /\76在目前这个敏感时期&#65292;如果有很多商铺业主联手去雇人来斗殴&#65292;终归会走漏风声&#12290;\74br /\76一旦被查出来&#65292;罪名很大的&#12290;所以后者的可能性很小&#12290;', 'timestamp': '1412520980431', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412520980431#c3550540196277519081', 'author': {'name': '编程随想', 'avatarUrl': 'http://1.bp.blogspot.com/-XePI_9_4Qmw/Th5EhWLzFmI/AAAAAAAAAf4/-WZBwo-0frU/s45/Thinker.jpg', 'profileUrl': 'http://www.blogger.com/profile/11741356469378252621'}, 'displayTime': '十月 05, 2014', 'deleteclass': 'item-control blog-admin pid-1582521586'}, {'id': '6574844000862948235', 'parentId': '7548320488805581940', 'body': 'TO 8楼的网友\74br /\76结局不好说&#65292;受到很多因素的影响&#12290;\74br /\76不过俺觉得应该会出现&#65306;抗争的长期化&#12290;\74br /\76关于&#8220;占中&#8221;这个话题&#65292;去年就开始了&#12290;到明年也未必会了结&#12290;', 'timestamp': '1412521207836', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412521207836#c6574844000862948235', 'author': {'name': '编程随想', 'avatarUrl': 'http://1.bp.blogspot.com/-XePI_9_4Qmw/Th5EhWLzFmI/AAAAAAAAAf4/-WZBwo-0frU/s45/Thinker.jpg', 'profileUrl': 'http://www.blogger.com/profile/11741356469378252621'}, 'displayTime': '十月 05, 2014', 'deleteclass': 'item-control blog-admin pid-1582521586'}, {'id': '685813205870695410', 'body': '香港还有一条路可以争民主&#65292;那就是要求加入中华民国&#65292;建议示威者使用有关的口号想政府施压&#65292;中共不怕那些所谓的西方敌对势力&#65292;但对台湾肯定有所忌讳&#65292;因为都是中国人&#65292;民族主义用不上了&#12290;\74br /\076', 'timestamp': '1412521833379', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412521833379#c685813205870695410', 'author': {'name': '匿名', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 05, 2014', 'deleteclass': 'item-control blog-admin pid-659271547'}, {'id': '4213666463888359556', 'parentId': '8764082504388057091', 'body': 'TO 正牌的&#8220;忠党爱国&#8221;\74br /\76关于&#8220;提名委员会&#8221;是否被中央政府操控&#65292;1楼5单元 给出了对你的反驳&#12290;\74br /\76\74br /\76你提到说&#65306;\74br /\76&#8220;全国人民代表大会之前已有决定&#65292;逐步缩小功能界别代表比例&#65292;最终取消功能组别&#8221;\74br /\76\74br /\76咱们朝廷的掌门人习包子&#65292;不是经常自诩&#8220;三个自信&#8221;吗&#12290;\74br /\76既然朝廷这么自信&#65292;不如现在就&#8220;取消功能组别&#8221;&#65292;实现真普选&#12290;这样香港的民众也不会闹&#65292;皆大欢喜嘛&#12290;\74br /\76\74br /\76所以&#65292;要么&#8220;朝廷的自信&#8221;是假的&#12290;要么&#8220;最终取消功能组别&#8221;是假的&#12290;', 'timestamp': '1412521855797', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412521855797#c4213666463888359556', 'author': {'name': '编程随想', 'avatarUrl': 'http://1.bp.blogspot.com/-XePI_9_4Qmw/Th5EhWLzFmI/AAAAAAAAAf4/-WZBwo-0frU/s45/Thinker.jpg', 'profileUrl': 'http://www.blogger.com/profile/11741356469378252621'}, 'displayTime': '十月 05, 2014', 'deleteclass': 'item-control blog-admin pid-1582521586'}, {'id': '5840387242533536619', 'body': '香港还有一条路可以争民主&#65292;那就是要求加入中华民国&#65292;建议示威者使用有关的口号想政府施压&#65292;中共不怕那些所谓的西方敌对势力&#65292;但对台湾肯定有所忌讳&#65292;因为都是中国人&#65292;民族主义用不上了&#12290;\74br /\076', 'timestamp': '1412522062840', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412522062840#c5840387242533536619', 'author': {'name': '匿名', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 05, 2014', 'deleteclass': 'item-control blog-admin pid-659271547'}, {'id': '7657654591037891204', 'body': '支持占中&#65292;就算失败也要支持&#65292;占中是香港人民的占中&#65292;不是占中领袖的占中&#65292;是香港人民争取民主的运动&#65292;是中国民主化的第一枪&#12290;民众不要听那些利用民众争取真普选愿望搞阴谋的领袖&#65292;要有自己的主见&#65292;要有独立的民主信念&#65292;击垮一切试图破坏公民运动的行动和阴谋&#12290;', 'timestamp': '1412522435325', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412522435325#c7657654591037891204', 'author': {'name': '匿名', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 05, 2014', 'deleteclass': 'item-control blog-admin pid-659271547'}, {'id': '8389714671508370840', 'parentId': '5840387242533536619', 'body': '这个太蠢了&#65292;马上就会招来坦克&#12290;', 'timestamp': '1412522505626', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412522505626#c8389714671508370840', 'author': {'name': 'Liu Yiteng', 'avatarUrl': 'http://img2.blogblog.com/img/b16-rounded.gif', 'profileUrl': 'http://www.blogger.com/profile/11135393746462565830'}, 'displayTime': '十月 05, 2014', 'deleteclass': 'item-control blog-admin pid-1476338144'}, {'id': '5088689855588827929', 'parentId': '2982004728497193318', 'body': 'TO FlyingForever\74br /\76多谢你对&#8220;忠党爱国&#8221;的反驳 :)', 'timestamp': '1412522732040', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412522732040#c5088689855588827929', 'author': {'name': '编程随想', 'avatarUrl': 'http://1.bp.blogspot.com/-XePI_9_4Qmw/Th5EhWLzFmI/AAAAAAAAAf4/-WZBwo-0frU/s45/Thinker.jpg', 'profileUrl': 'http://www.blogger.com/profile/11741356469378252621'}, 'displayTime': '十月 05, 2014', 'deleteclass': 'item-control blog-admin pid-1582521586'}, {'id': '8024187404401607608', 'body': '哈, 看fb上數十篇的文章也不及編隨的評論', 'timestamp': '1412522758145', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412522758145#c8024187404401607608', 'author': {'name': 'v998', 'avatarUrl': 'http://img2.blogblog.com/img/b16-rounded.gif', 'profileUrl': 'http://www.blogger.com/profile/08853123019167798224'}, 'displayTime': '十月 05, 2014', 'deleteclass': 'item-control blog-admin pid-1429061783'}, {'id': '2453500640556053937', 'parentId': '6093531225407019896', 'body': 'TO 2楼\74br /\76你这个&#8220;沙发&#8221;迟了一步&#65292;变成板凳 :)', 'timestamp': '1412522775507', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412522775507#c2453500640556053937', 'author': {'name': '编程随想', 'avatarUrl': 'http://1.bp.blogspot.com/-XePI_9_4Qmw/Th5EhWLzFmI/AAAAAAAAAf4/-WZBwo-0frU/s45/Thinker.jpg', 'profileUrl': 'http://www.blogger.com/profile/11741356469378252621'}, 'displayTime': '十月 05, 2014', 'deleteclass': 'item-control blog-admin pid-1582521586'}, {'id': '6270715002570134961', 'parentId': '7211047837907102930', 'body': 'TO Shelikhoo\74br /\76同意你所说 :)\74br /\76\74br /\76补充一下&#65306;\74br /\76真正爱国的人&#65292;通常都具有&#8220;公民意识&#8221;&#65292;积极参与公共事务&#12290;\74br /\76相反&#65292;那些对公共事务麻木的人&#65292;那些自己不努力却整天寄希望于出现一个圣君或清官&#12290;这种人是典型&#8220;臣民意识&#8221;&#65288;也就是&#8220;奴性&#8221;&#65289;\74br /\76中国历史上从秦朝到现在&#65292;大部分时间都是中央集权的大帝国&#12290;\74br /\76愚民政策造就的奴性文化&#65292;已经深入骨髓&#12290;\74br /\76所以&#65292;天朝民主化的道路还很漫长曲折&#65292;大伙儿要有长期奋斗的心理准备&#12290;', 'timestamp': '1412523176578', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412523176578#c6270715002570134961', 'author': {'name': '编程随想', 'avatarUrl': 'http://1.bp.blogspot.com/-XePI_9_4Qmw/Th5EhWLzFmI/AAAAAAAAAf4/-WZBwo-0frU/s45/Thinker.jpg', 'profileUrl': 'http://www.blogger.com/profile/11741356469378252621'}, 'displayTime': '十月 05, 2014', 'deleteclass': 'item-control blog-admin pid-1582521586'}, {'id': '2721096599904589774', 'parentId': '643183668057347849', 'body': '不小心点开守夜人的页面&#12290;&#12290;&#12290;\74br /\76您小心自己的血压啊 &#12290;&#12290;&#12290;', 'timestamp': '1412523200267', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412523200267#c2721096599904589774', 'author': {'name': '智多星张召忠', 'avatarUrl': 'http://img2.blogblog.com/img/b16-rounded.gif', 'profileUrl': 'http://www.blogger.com/profile/03115260414378289671'}, 'displayTime': '十月 05, 2014', 'deleteclass': 'item-control blog-admin pid-1326311143'}, {'id': '4410582685865470498', 'parentId': '643183668057347849', 'body': '喂&#65292;层主记得回复我的疑问&#8230;&#8230;明天我来看看1&#12290;', 'timestamp': '1412523217965', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412523217965#c4410582685865470498', 'author': {'name': 'Liu Yiteng', 'avatarUrl': 'http://img2.blogblog.com/img/b16-rounded.gif', 'profileUrl': 'http://www.blogger.com/profile/11135393746462565830'}, 'displayTime': '十月 05, 2014', 'deleteclass': 'item-control blog-admin pid-1476338144'}, {'id': '5009775640967302279', 'parentId': '643183668057347849', 'body': '喂&#65292;层主记得回复我的疑问&#8230;&#8230;明天我来看看1&#12290;', 'timestamp': '1412523230170', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412523230170#c5009775640967302279', 'author': {'name': 'Liu Yiteng', 'avatarUrl': 'http://img2.blogblog.com/img/b16-rounded.gif', 'profileUrl': 'http://www.blogger.com/profile/11135393746462565830'}, 'displayTime': '十月 05, 2014', 'deleteclass': 'item-control blog-admin pid-1476338144'}, {'id': '2516063866240437507', 'body': '空间上发了状态&#65292;提到了相关事情&#65292;提到&#8220;外媒&#8221;&#65292;&#8220;代表性&#8221;&#65292;然后评论就被河蟹了', 'timestamp': '1412523372839', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412523372839#c2516063866240437507', 'author': {'name': 'Liu Yiteng', 'avatarUrl': 'http://img2.blogblog.com/img/b16-rounded.gif', 'profileUrl': 'http://www.blogger.com/profile/11135393746462565830'}, 'displayTime': '十月 05, 2014', 'deleteclass': 'item-control blog-admin pid-1476338144'}, {'id': '2534177297419037697', 'parentId': '8764082504388057091', 'body': '共匪的话能信&#65311;官员财产公示吹了多少年&#65311;政治改革吹了多少年&#65311;', 'timestamp': '1412523456974', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412523456974#c2534177297419037697', 'author': {'name': 'get freedom', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 05, 2014', 'deleteclass': 'item-control blog-admin pid-297699521'}, {'id': '5957194848894644693', 'parentId': '5892960871398650723', 'body': 'TO 13楼的网友\74br /\76应该能显示的&#12290;\74br /\76你再刷新一下看看&#12290;\74br /\76\74br /\76可能是刚才俺在调试代码&#65292;有段时间代码改坏了&#65288;大概几秒钟的间隔&#65289;&#65292;正好碰上你在刷新&#12290;', 'timestamp': '1412523600679', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412523600679#c5957194848894644693', 'author': {'name': '编程随想', 'avatarUrl': 'http://1.bp.blogspot.com/-XePI_9_4Qmw/Th5EhWLzFmI/AAAAAAAAAf4/-WZBwo-0frU/s45/Thinker.jpg', 'profileUrl': 'http://www.blogger.com/profile/11741356469378252621'}, 'displayTime': '十月 05, 2014', 'deleteclass': 'item-control blog-admin pid-1582521586'}, {'id': '6245874579159859829', 'parentId': '7269660152939039175', 'body': 'TO 14楼的网友\74br /\76你可以参考俺前几天的博文&#12298;[url\752014/09/weekly-share-71.md]每周转载&#65306;关于香港和澳门的特首选举&#65288;外媒报道和网友评论&#65289;[/url]&#12299;&#65292;了解一下为啥英国在 中英谈判 之前没有实现彻底的民主化&#12290;\74br /\76根源在&#8220;北京政府&#8221;这边&#12290;', 'timestamp': '1412523699309', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412523699309#c6245874579159859829', 'author': {'name': '编程随想', 'avatarUrl': 'http://1.bp.blogspot.com/-XePI_9_4Qmw/Th5EhWLzFmI/AAAAAAAAAf4/-WZBwo-0frU/s45/Thinker.jpg', 'profileUrl': 'http://www.blogger.com/profile/11741356469378252621'}, 'displayTime': '十月 05, 2014', 'deleteclass': 'item-control blog-admin pid-1582521586'}, {'id': '4065487695347111236', 'parentId': '1878862756660122653', 'body': 'TO Tony Yule\74br /\76多谢 IT 同行来捧场 :)\74br /\76\74br /\76习近平他爹&#65292;人品还不错&#12290;\74br /\76但是习近平的人品&#65292;就不好说喽&#12290;\74br /\76至少俺个人认为&#65306;&#12304;不要&#12305;指望习包子会搞实质性的政改&#12290;\74br /\76习包子依然是权贵集团的人&#12290;\74br /\76有兴趣的话可以看看俺整理的&#12298;[url\752013/03/princelings.md]太子党关系网络[/url]&#12299;&#12290;\74br /\76习近平家族里面有好几个亿万富豪&#12290;\74br /\76\74br /\76俺目前还在天朝之内&#65292;对技术移民的事情&#65292;不太了解&#12290;抱歉 :(\74br /\76你可以去 Google 一下&#65292;貌似有专门的一些论坛&#12290;', 'timestamp': '1412523984196', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412523984196#c4065487695347111236', 'author': {'name': '编程随想', 'avatarUrl': 'http://1.bp.blogspot.com/-XePI_9_4Qmw/Th5EhWLzFmI/AAAAAAAAAf4/-WZBwo-0frU/s45/Thinker.jpg', 'profileUrl': 'http://www.blogger.com/profile/11741356469378252621'}, 'displayTime': '十月 05, 2014', 'deleteclass': 'item-control blog-admin pid-1582521586'}, {'id': '7770145676493568311', 'parentId': '685813205870695410', 'body': 'TO 17楼的网友\74br /\76你这个思路别具一格&#65292;有创意 :)\74br /\76\74br /\76因为朝廷号称&#8220;只有一个中国&#8221;&#65292;香港加入&#8220;中华民国&#8221;就不能算&#8220;港独&#8221; :)', 'timestamp': '1412524144892', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412524144892#c7770145676493568311', 'author': {'name': '编程随想', 'avatarUrl': 'http://1.bp.blogspot.com/-XePI_9_4Qmw/Th5EhWLzFmI/AAAAAAAAAf4/-WZBwo-0frU/s45/Thinker.jpg', 'profileUrl': 'http://www.blogger.com/profile/11741356469378252621'}, 'displayTime': '十月 05, 2014', 'deleteclass': 'item-control blog-admin pid-1582521586'}, {'id': '3125976241035950928', 'parentId': '5840387242533536619', 'body': 'TO Liu Yiteng\74br /\76招来坦克倒未必&#12290;\74br /\76记得之前已经出现过&#8220;港独&#8221;的口号&#65292;也没见朝廷咋样&#12290;\74br /\76如今这个互联网时代&#65292;不到万不得已&#65292;朝廷不会贸然动用正规军&#12290;顶多动用武警&#12289;驻港部队&#12290;\74br /\76\74br /\07617&#12289;18楼的点子&#65292;比&#8220;港独&#8221;的诉求要狡猾一些 :)', 'timestamp': '1412524439575', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412524439575#c3125976241035950928', 'author': {'name': '编程随想', 'avatarUrl': 'http://1.bp.blogspot.com/-XePI_9_4Qmw/Th5EhWLzFmI/AAAAAAAAAf4/-WZBwo-0frU/s45/Thinker.jpg', 'profileUrl': 'http://www.blogger.com/profile/11741356469378252621'}, 'displayTime': '十月 05, 2014', 'deleteclass': 'item-control blog-admin pid-1582521586'}, {'id': '8556411009030405909', 'parentId': '8024187404401607608', 'body': 'TO v998\74br /\76大概两三年前&#65292;就有读者说&#65306;俺博客的评论比博文更有看头&#12290;', 'timestamp': '1412524756250', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412524756250#c8556411009030405909', 'author': {'name': '编程随想', 'avatarUrl': 'http://1.bp.blogspot.com/-XePI_9_4Qmw/Th5EhWLzFmI/AAAAAAAAAf4/-WZBwo-0frU/s45/Thinker.jpg', 'profileUrl': 'http://www.blogger.com/profile/11741356469378252621'}, 'displayTime': '十月 05, 2014', 'deleteclass': 'item-control blog-admin pid-1582521586'}, {'id': '8042180677554079620', 'parentId': '2516063866240437507', 'body': 'TO Liu Yiteng\74br /\76如今是敏感时期&#65292;墙内的互联网公司&#65292;他们的管理员肯定在加班加点审查言论呢&#12290;\74br /\76\74br /\76你在自己的空间上发政治内容&#65292;要小心一点&#65292;别让朝廷的走狗给跨省了&#12290;', 'timestamp': '1412524873992', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412524873992#c8042180677554079620', 'author': {'name': '编程随想', 'avatarUrl': 'http://1.bp.blogspot.com/-XePI_9_4Qmw/Th5EhWLzFmI/AAAAAAAAAf4/-WZBwo-0frU/s45/Thinker.jpg', 'profileUrl': 'http://www.blogger.com/profile/11741356469378252621'}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-1582521586'}, {'id': '4899077048586481815', 'parentId': '643183668057347849', 'body': '哎呦&#65292;博主呀&#65292;我看过你说莫言的文章&#65292;说人家那样讲话是怂货&#65292;你呢&#65292;隐姓埋名搞抹黑&#65288;你自己说喜欢给党国抹黑&#65289;&#65292;要不你站出来跟记者讲两句&#65311;你自己算什么&#65292;说人家怂&#65292;你好好照照镜子吧&#12290;', 'timestamp': '1412524950474', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412524950474#c4899077048586481815', 'author': {'name': '匿名', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-801345061'}, {'id': '3427545082940462239', 'parentId': '643183668057347849', 'body': '认怂不丢人&#65292;自己怂还嘲笑别人&#65292;我都替你难为情&#12290;', 'timestamp': '1412525234292', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412525234292#c3427545082940462239', 'author': {'name': '匿名', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-801345061'}, {'id': '520804942661290524', 'parentId': '643183668057347849', 'body': '搞得跟一大仙儿似得&#65292;弄一帮信徒&#65292;满口高深理论&#65292;搞出一帮邪星&#12290;我看那人说的&#8220;支那猪&#8221;三个字就深得你的真传&#12290;', 'timestamp': '1412525568265', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412525568265#c520804942661290524', 'author': {'name': '匿名', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-801345061'}, {'id': '5444083147334803581', 'parentId': '2516063866240437507', 'body': '我就传了个新华日报46年的图\75 \75不至于吧', 'timestamp': '1412525806712', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412525806712#c5444083147334803581', 'author': {'name': 'Liu Yiteng', 'avatarUrl': 'http://img2.blogblog.com/img/b16-rounded.gif', 'profileUrl': 'http://www.blogger.com/profile/11135393746462565830'}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-1476338144'}, {'id': '1944752356462007134', 'parentId': '643183668057347849', 'body': '跟自己意见不同就立马扣一帽子&#65292;还圣君情结&#12289;犬儒&#65292;喜欢让读者站队&#65292;站错队支那猪都说得出口&#65292;你真有点阴险&#12290;', 'timestamp': '1412525831755', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412525831755#c1944752356462007134', 'author': {'name': '匿名', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-801345061'}, {'id': '5396982813252529992', 'parentId': '5840387242533536619', 'body': '口号是口号&#65292;和实际去做还是有大区别&#65292;就连我都想到如果这种事情成为既成事实&#65292;用坦克解决&#65292;他们怎么可能想不到&#12290;', 'timestamp': '1412525996235', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412525996235#c5396982813252529992', 'author': {'name': 'Liu Yiteng', 'avatarUrl': 'http://img2.blogblog.com/img/b16-rounded.gif', 'profileUrl': 'http://www.blogger.com/profile/11135393746462565830'}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-1476338144'}, {'id': '8543789540855911381', 'parentId': '685813205870695410', 'body': '但是光加入民国一条就足够上坦克了&#65292;民国是什么东西&#65311;中央不承认啊&#65292;要是中央默许了这不是等于承认了台独么&#12290;', 'timestamp': '1412526242639', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412526242639#c8543789540855911381', 'author': {'name': 'Liu Yiteng', 'avatarUrl': 'http://img2.blogblog.com/img/b16-rounded.gif', 'profileUrl': 'http://www.blogger.com/profile/11135393746462565830'}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-1476338144'}, {'id': '7632260464975204507', 'body': '支持一下&#12290;', 'timestamp': '1412526314593', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412526314593#c7632260464975204507', 'author': {'name': '匿名', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-2091719192'}, {'id': '2799673503116377901', 'body': '博主你对坦克本身什么看法&#65292;假如中国某个地方的独立既成现实&#65292;比如台湾\74br /\76我这么认为\74br /\762014/10/weekly-share-73.md?comment\0751412521104769', 'timestamp': '1412526402257', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412526402257#c2799673503116377901', 'author': {'name': 'Liu Yiteng', 'avatarUrl': 'http://img2.blogblog.com/img/b16-rounded.gif', 'profileUrl': 'http://www.blogger.com/profile/11135393746462565830'}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-1476338144'}, {'id': '5287036194917852314', 'parentId': '643183668057347849', 'body': '我以前只看文章不评论&#65292;因为来着讨论没意思&#65292;主要看一些技术文章&#65292;各种爆料也还算新鲜&#65292;也就觉得你是一个爱发牢骚的普通人&#65292;没想到你这搞站队&#65292;给人扣帽子&#65292;十足一个野心家&#65292;劝大家别跟他一起走远了&#12290;', 'timestamp': '1412526734050', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412526734050#c5287036194917852314', 'author': {'name': '匿名', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-801345061'}, {'id': '5219290835232373964', 'parentId': '8764082504388057091', 'body': '这年头加个班也不容易&#12290;现在帖子涨价了吧&#65292;昨天听隔壁过来打扫卫生的说最近1块2了哦&#12290;', 'timestamp': '1412527351428', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412527351428#c5219290835232373964', 'author': {'name': '匿名', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-1991666660'}, {'id': '4644229144333863308', 'parentId': '7211047837907102930', 'body': '中国人大部分都是奴性十足的&#12290;', 'timestamp': '1412527415516', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412527415516#c4644229144333863308', 'author': {'name': '匿名', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-1991666660'}, {'id': '1950745416060027408', 'parentId': '1967184083117566664', 'body': '编程同志不知道&#65292;这种文章才叫高级黑啊&#12290;这么明显的命门&#65292;感叹现在宣传口招的都是一群废物啊&#12290;', 'timestamp': '1412527502354', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412527502354#c1950745416060027408', 'author': {'name': '匿名', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-1991666660'}, {'id': '6824156317880305144', 'parentId': '643183668057347849', 'body': '支那不明白可以维基百科自己看一下&#65292;一个民族的人&#65292;对自己的同袍没有认同感&#65292;给与自己政见不同的人&#65292;扣上各种侮辱的帽子&#12290;带领被称为支那猪的同袍走向民主&#65292;还想获得大多数人的认同&#65292;你可以看看你自己写的双重思维的文章&#65292;然后对比一下你们自己&#12290;', 'timestamp': '1412527692593', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412527692593#c6824156317880305144', 'author': {'name': '匿名', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-801345061'}, {'id': '704355368288372132', 'parentId': '2516063866240437507', 'body': '最好小心一点&#65292;加强隐蔽性&#12290;', 'timestamp': '1412527918266', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412527918266#c704355368288372132', 'author': {'name': '匿名', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-1991666660'}, {'id': '115242748650805817', 'parentId': '643183668057347849', 'body': '口传心授给别人扣帽子的方法&#65292;讲着着自己理想主义的春秋大梦&#65292;把更多人带向偏激&#65292;促使那些在你们心中被称为支那猪的同袍做出过激的行为&#12290;网络上的信息有好有坏&#65292;希望所有人都警惕的保持自己的辨别能力&#65292;就占中这件事情&#65292;新加坡的表态大家可以看看&#12290;民主也绝不是抗议闹事能够得来的&#12290;', 'timestamp': '1412528697769', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412528697769#c115242748650805817', 'author': {'name': '匿名', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-801345061'}, {'id': '6874510809111329907', 'parentId': '643183668057347849', 'body': 'TO 5单元的网友\74br /\76对党斗争&#65292;当然要讲究策略&#12290;白白送死&#65292;那只能算愚蠢&#65292;称不上勇敢&#12290;\74br /\76\74br /\76俺敢于常年累月抹黑党国&#65292;煽动颠覆政权&#65292;这要冒很大风险滴&#12290;\74br /\76一旦暴露身份&#65292;会有什么样的牢狱之灾&#65292;大伙儿都晓得&#12290;\74br /\76在这点上&#65292;俺当然比很多怂货要勇敢 :)', 'timestamp': '1412528885667', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412528885667#c6874510809111329907', 'author': {'name': '编程随想', 'avatarUrl': 'http://1.bp.blogspot.com/-XePI_9_4Qmw/Th5EhWLzFmI/AAAAAAAAAf4/-WZBwo-0frU/s45/Thinker.jpg', 'profileUrl': 'http://www.blogger.com/profile/11741356469378252621'}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-1582521586'}, {'id': '4681588724540837314', 'parentId': '643183668057347849', 'body': 'TO 7单元的网友\74br /\76看你对俺的批评&#65292;显然你对俺很不了解&#12290;\74br /\76\74br /\76你提到说&#65306;&#8220;搞得跟一大仙儿似得&#65292;弄一帮信徒&#65292;满口高深理论&#65292;搞出一帮邪星&#8221;\74br /\76\74br /\76俺恰恰是非常反对&#8220;偶像崇拜&#8221;&#12290;\74br /\76前不久还刚发过一篇&#12298;[url\752014/05/fans-and-idolatry.md]不要成为&#8220;粉丝&#8221;&#8212;&#8212;谈谈&#8220;偶像崇拜&#8221;的成因和危害[/url]&#12299;\74br /\76\74br /\76另外&#65292;俺写的博文&#65288;不论是 IT 技术&#12289;还是心理学&#12289;政治学&#65289;&#65292;经常以&#8220;扫盲&#8221;作标题&#12290;根本就不是你所说的&#8220;故作高深&#8221;&#12290;\74br /\76俺的水平很一般&#65292;谈的都是一些大路货 :)', 'timestamp': '1412529209743', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412529209743#c4681588724540837314', 'author': {'name': '编程随想', 'avatarUrl': 'http://1.bp.blogspot.com/-XePI_9_4Qmw/Th5EhWLzFmI/AAAAAAAAAf4/-WZBwo-0frU/s45/Thinker.jpg', 'profileUrl': 'http://www.blogger.com/profile/11741356469378252621'}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-1582521586'}, {'id': '3033286288896955015', 'parentId': '643183668057347849', 'body': '在一个西方掌握普世价值的时代&#65292;被歧视的黄种人自己都看起上自己的同袍&#65292;并加以侮辱&#65292;然后在己的博客大谈双重思维&#65292;这真是让人难为情的&#12290;', 'timestamp': '1412529545508', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412529545508#c3033286288896955015', 'author': {'name': '匿名', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-801345061'}, {'id': '3088902491555105423', 'parentId': '643183668057347849', 'body': '新加坡算个球&#65292;一个弹丸的专制小国&#12290;', 'timestamp': '1412529717011', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412529717011#c3088902491555105423', 'author': {'name': '匿名', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-37883822'}, {'id': '1242875828771791694', 'parentId': '7548320488805581940', 'body': '结局就是共匪玩完&#12290;反正现在共匪民心丧尽&#65292;港人就一条路走&#65292;要么下跪要么站起来&#12290;很显然抗争必然长期化&#65292;拖也要拖死共匪&#12290;', 'timestamp': '1412530025819', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412530025819#c1242875828771791694', 'author': {'name': '匿名', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-37883822'}, {'id': '5096079160513402774', 'parentId': '643183668057347849', 'body': 'TO 11单元的网友\74br /\76你提到说&#65306;&#8220;民主也绝不是抗议闹事能够得来的&#8221;\74br /\76\74br /\76貌似没有哪个人会认为&#8220;光靠抗议闹事就能得到民主&#8221;&#12290;\74br /\76至少俺本人肯定不会这么看&#12290;\74br /\76俺经常唠叨&#65288;今天晚上还提到过一次&#65289;&#8212;&#8212;天朝的民主化之路&#65292;肯定是很曲折很漫长的&#12290;\74br /\76俺的观点是&#65306;最需要优先普及的两种素质是&#65306;政治素质  和 心理素质&#12290;\74br /\76政治素质有助于培养公民意识&#65292;摆脱臣民意识&#12290;\74br /\76心理素质有助于摆脱洗脑&#65292;培养独立思考的习惯和各种思维能力&#12290;\74br /\76\74br /\76另外&#65292;如果你多看俺写的博文&#65292;自然会知道&#65306;俺是经常强调&#8220;理性&#8221;的&#12290;\74br /\76&#8220;理性&#8221;同时也是摆脱洗脑的利器之一&#12290;\74br /\76朝廷惯用的几个忽悠手法&#65306;其中之一就是&#8220;煽动恐惧和仇恨&#8221;&#12290;面对这些招数&#65292;偏感性的人较容易上当&#65292;而偏理性的人比较不容易上当&#12290;', 'timestamp': '1412530091828', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412530091828#c5096079160513402774', 'author': {'name': '编程随想', 'avatarUrl': 'http://1.bp.blogspot.com/-XePI_9_4Qmw/Th5EhWLzFmI/AAAAAAAAAf4/-WZBwo-0frU/s45/Thinker.jpg', 'profileUrl': 'http://www.blogger.com/profile/11741356469378252621'}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-1582521586'}, {'id': '411684906685697007', 'parentId': '643183668057347849', 'body': 'TO 14单元的网友\74br /\76看你的留言&#65292;语句不通顺&#12290;是不是打字太快&#65292;哪里写错了&#65311;', 'timestamp': '1412530267639', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412530267639#c411684906685697007', 'author': {'name': '编程随想', 'avatarUrl': 'http://1.bp.blogspot.com/-XePI_9_4Qmw/Th5EhWLzFmI/AAAAAAAAAf4/-WZBwo-0frU/s45/Thinker.jpg', 'profileUrl': 'http://www.blogger.com/profile/11741356469378252621'}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-1582521586'}, {'id': '6362216245587963643', 'parentId': '8764082504388057091', 'body': 'TO get freedom\74br /\76如果俺没记错的话&#65292;胡耀邦时代就提到过&#8220;官员财产公开制度&#8221;&#12290;\74br /\76到如今都30年了&#12290;连影子都没见着&#12290;\74br /\76和&#8220;官员财产公开&#8221;相对比的是&#8212;&#8212;前2年关于网络实名制的立法&#65292;全国人大以&#8220;闪电式&#8221;的速度就通过了&#12290;', 'timestamp': '1412530402456', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412530402456#c6362216245587963643', 'author': {'name': '编程随想', 'avatarUrl': 'http://1.bp.blogspot.com/-XePI_9_4Qmw/Th5EhWLzFmI/AAAAAAAAAf4/-WZBwo-0frU/s45/Thinker.jpg', 'profileUrl': 'http://www.blogger.com/profile/11741356469378252621'}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-1582521586'}, {'id': '7036424263730386654', 'parentId': '643183668057347849', 'body': '我说装高深是发一些圣君情结&#65292;双重思想&#65292;还有什么犬儒的文章&#65292;贬低被你们称作支那猪的同袍&#65292;来衬托自己高大上的形象&#65292;你一直觉得自己有思想&#65292;充分进化了&#65292;超凡脱俗&#65292;看不起支那猪&#65292;你呀&#65292;自己就有双重思想&#12290;你可以好好看看双重思想&#65292;写的挺有意思&#65292;尤其是2张图&#12290;', 'timestamp': '1412530419824', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412530419824#c7036424263730386654', 'author': {'name': '匿名', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-801345061'}, {'id': '7811951588031225930', 'parentId': '327591113823258896', 'body': '有几个商户真会为了几个钱毁掉未来毁掉下一代&#65292;这种没有政治头脑的猪头经商血本无归是必须的&#65292;没有长远眼光&#65292;只知眼前利益的奸商迟早玩完&#65292;香港共匪化&#65292;那就喝西北风吧&#65281;', 'timestamp': '1412530465413', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412530465413#c7811951588031225930', 'author': {'name': '匿名', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-37883822'}, {'id': '3063539403750422597', 'parentId': '7548320488805581940', 'body': 'TO 2单元的网友\74br /\76俺希望香港的民主化运动能够作为内地的样板&#8212;&#8212;这也是目前朝廷最不想看到的&#12290;', 'timestamp': '1412530499230', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412530499230#c3063539403750422597', 'author': {'name': '编程随想', 'avatarUrl': 'http://1.bp.blogspot.com/-XePI_9_4Qmw/Th5EhWLzFmI/AAAAAAAAAf4/-WZBwo-0frU/s45/Thinker.jpg', 'profileUrl': 'http://www.blogger.com/profile/11741356469378252621'}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-1582521586'}, {'id': '2530369447615851785', 'parentId': '643183668057347849', 'body': '&#8220;新加坡算个球&#65292;一个弹丸的专制小国&#12290;&#8221;你看到了吗&#65311;为你说话的人满嘴歧视&#65292;你在这大谈民主&#65292;大谈双重人格&#65292;真的很奇怪的&#12290;', 'timestamp': '1412530650524', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412530650524#c2530369447615851785', 'author': {'name': '匿名', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-801345061'}, {'id': '8679803539708677561', 'parentId': '1967184083117566664', 'body': '应该是无意识的高级黑&#65292;哈哈&#65292;反正在党文化思维里面要找到真逻辑的东西还真难&#12290;不怪他们&#65292;独裁天生如此&#12290;', 'timestamp': '1412530659495', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412530659495#c8679803539708677561', 'author': {'name': '匿名', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-37883822'}, {'id': '1317942534950225427', 'parentId': '327591113823258896', 'body': 'TO 2单元的网友\74br /\76看来你跟俺的观点类似&#12290;\74br /\76很奇怪居然墙内还有不少人相信朝廷的说辞&#8212;&#8212;旺角附近的居民跟&#8220;占中抗议者&#8221;斗殴&#12290;', 'timestamp': '1412530777582', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412530777582#c1317942534950225427', 'author': {'name': '编程随想', 'avatarUrl': 'http://1.bp.blogspot.com/-XePI_9_4Qmw/Th5EhWLzFmI/AAAAAAAAAf4/-WZBwo-0frU/s45/Thinker.jpg', 'profileUrl': 'http://www.blogger.com/profile/11741356469378252621'}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-1582521586'}, {'id': '7854783838239551351', 'parentId': '7269660152939039175', 'body': '共匪真是邪恶啊&#12290;', 'timestamp': '1412531014840', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412531014840#c7854783838239551351', 'author': {'name': '匿名', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-37883822'}, {'id': '6246040723671515755', 'parentId': '7269660152939039175', 'body': '请细查\46quot;在1984年前甚至1984年的几十年前就制定了普选的制度\46quot;&#65292;英国政府不是在1960年而是更早甚至在共产党接管中国大陆前已制定这个普选的制度后继的港共也不会不遵守的&#65292;双方都有错误&#65292;不是所有都赖中共政府', 'timestamp': '1412531146786', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412531146786#c6246040723671515755', 'author': {'name': '匿名', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-2044154884'}, {'id': '8765591414005722473', 'parentId': '643183668057347849', 'body': '你觉得你支持的天安门事件&#12289;占中行为是理性的吗&#65311;我就知道&#65292;你是没有底线的人&#65292;跟你政见相同的人干什么都是理性的&#65292;口口声声说理性&#65292;然后支持人民暴动&#65292;说什么共产党洗脑&#65292;你这不是一个路子吗&#65311;', 'timestamp': '1412531168323', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412531168323#c8765591414005722473', 'author': {'name': '匿名', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-801345061'}, {'id': '8800474204492957184', 'parentId': '643183668057347849', 'body': 'TO 18单元的网友\74br /\76看来你混淆了两个概念&#65306;\74br /\0761&#12289;看不起某人\74br /\0762&#12289;发现某人的缺点并指出来\74br /\76\74br /\76如果按照你的逻辑&#65292;是不是鲁迅也属于&#8220;贬低同袍&#65292;来衬托自己高大上的形象&#8221;&#65311;\74br /\76\74br /\76关于俺发表的心理学博文&#65288;圣君情结&#12289;双重思想&#12289;斯德哥尔摩综合症&#65289;&#65292;如果你觉得文章有错误&#65292;欢迎指出来&#12290;\74br /\76如果你没有指出具体的错误&#65292;单纯说俺是&#8220;装高深&#8221;&#65292;说俺是&#8220;贬低同胞&#8221;&#12290;\74br /\76那在逻辑上显得牵强&#12290;\74br /\76当然&#65292;如果你非要这样说&#65292;俺也没办法&#12290;这是你的言论自由 :)', 'timestamp': '1412531236529', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412531236529#c8800474204492957184', 'author': {'name': '编程随想', 'avatarUrl': 'http://1.bp.blogspot.com/-XePI_9_4Qmw/Th5EhWLzFmI/AAAAAAAAAf4/-WZBwo-0frU/s45/Thinker.jpg', 'profileUrl': 'http://www.blogger.com/profile/11741356469378252621'}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-1582521586'}, {'id': '3754849440289224128', 'parentId': '2069686823368417497', 'body': '这一次香港民主抗议的最大的优势就是港人有着共同的政治诉求&#65292;那就是真普选&#65292;这一点不可能被分化&#65292;共匪黔驴技穷&#65292;只能出阴招&#65292;可是在如此发达的信息时代&#65292;阴招都变成了砸自己脚的石头&#12290;', 'timestamp': '1412531287583', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412531287583#c3754849440289224128', 'author': {'name': '匿名', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-37883822'}, {'id': '5415286208397907024', 'parentId': '685813205870695410', 'body': '可怜那饭桶一般的马英九他敢接受么&#65292;台湾真是自身难保啊&#12290;台湾只可能独立没有别的出路&#65292;统一那时扯淡&#65292;就算中国民主也不可能&#65292;就兲朝屁民那尿性复辟那是分分钟的事&#12290;毛子就是样板&#12290;', 'timestamp': '1412531552194', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412531552194#c5415286208397907024', 'author': {'name': '匿名', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-37883822'}, {'id': '4546544958294901465', 'parentId': '8024187404401607608', 'body': '来此的人应该不会是蠢货的&#65292;五毛除外&#12290;', 'timestamp': '1412531725873', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412531725873#c4546544958294901465', 'author': {'name': '匿名', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-37883822'}, {'id': '7382935494126219784', 'parentId': '643183668057347849', 'body': '我本来不想站出来理论的&#65292;人都会有不同的观点&#65292;你们爱说什么说什么&#65292;但我看到支那猪这事儿跟你有关系&#65292;我才站出来&#65292;劝你不要宣扬这种民族歧视言论&#65292;你这的看客比较多&#65292;伤害民族感情&#65292;现在被歧视的黄种人以前的历史并不丢人&#65292;我也从不觉得我是中国人而自卑&#65292;至于你朋友说香港人对内地的歧视&#65292;我微微一笑&#65292;深感嘲讽&#12290;', 'timestamp': '1412532030952', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412532030952#c7382935494126219784', 'author': {'name': '匿名', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-801345061'}, {'id': '6438189982499351284', 'parentId': '2799673503116377901', 'body': '如果有了既成事实&#65292;按共匪行事的思维&#65292;它完蛋了&#12290;', 'timestamp': '1412532070826', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412532070826#c6438189982499351284', 'author': {'name': '匿名', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-37883822'}, {'id': '5324175008583155786', 'body': '电脑两个内存卡槽&#65292;一个装了2G的内存&#65292;不能装虚拟机&#65292;另一个未装&#65292;想在另一卡槽装一个4G的不同牌子的内存&#65288;同牌子的买不到了&#65289;&#65292;请问这样可以吗&#65311;哪个牌子的内存好呢&#65311;', 'timestamp': '1412532243940', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412532243940#c5324175008583155786', 'author': {'name': '匿名', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-1318841274'}, {'id': '7079485316857255215', 'parentId': '7269660152939039175', 'body': '英国外交部的档案中&#65292;记载了1958年1月30日中国总理周恩来会见英国代表团时向英国首相麦克米伦转达的话&#65306;&#8220;如今英国和香港政府中有人阴谋将香港变成新加坡那样的自治领&#12290;希望麦克米伦明白&#65292;中国会将任何令香港变成自治领的做法视之为不友善的举动&#12290;中国希望香港今日的殖民地地位不会有丝毫的改变&#12290;&#8221;中国政府最担心的是&#65292;香港人一旦享有民主权利&#65292;便会成为一个自治的地区&#65292;进而像新加坡那样脱离英国独立&#12290;当时的香港居民中&#65292;有大批在内战&#12289;土改时期逃离大陆的难民&#65292;后来在三年大饥荒时期&#65292;又有数以十万计的大陆人冒死逃到香港&#12290;他们如果手中有选票&#65292;绝对不会选择回归到共产党统治下的中国&#12290;', 'timestamp': '1412532482478', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412532482478#c7079485316857255215', 'author': {'name': '匿名', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-37883822'}, {'id': '7971398111540765448', 'parentId': '5324175008583155786', 'body': '可以&#65292;只要规格相同&#12290;不过大小不一的内存&#65292;不能组成双通道&#12290;内存金士顿&#65292;三星的比较多吧&#65292;兼容性也不错&#12290;', 'timestamp': '1412533036524', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412533036524#c7971398111540765448', 'author': {'name': '匿名', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-37883822'}, {'id': '4117039058970068025', 'parentId': '643183668057347849', 'body': '教育自己的信徒给意见不合的人扣上犬儒的帽子&#65292;你不觉得这是歧视对吧&#65292;我就说嘛&#65292;你就是一个没有底线的人&#65292;还拿鲁迅自比&#65292;我不是一定要把你打倒在地踏上一万只脚&#65292;否定你所有文章&#65292;但人要有自省&#65292;你愿意搞犬儒&#65292;搞5毛&#65292;我不参与就行了&#65292;但你要伤害民族感情&#65292;就成了一个恶心的人&#65292;至少我现在还不觉得你是&#12290;好自为之&#12290;', 'timestamp': '1412533957209', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412533957209#c4117039058970068025', 'author': {'name': '匿名', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-801345061'}, {'id': '7662301559215110780', 'parentId': '643183668057347849', 'body': '当然你也可以说支那猪的说法和你没关系&#65292;哪个守夜人在之前的留言不是所有人都会看&#65292;这都无所谓&#65292;只要以后在你这不讨论支那猪这种种族歧视的言论就可以了&#65292;我看出来你也觉得这样说很过分&#65292;这就挺好&#65292;至于你像让人给我扣上犬儒的帽子&#65292;我不会介意的&#12290;你们爱怎么说这么说&#65292;你们就是这种人嘛&#12290;一个博主教导自己的看客怎么骂人&#65292;也挺有实力的&#12290;还是清点骂吧&#65292;民族感情已经很脆弱了&#12290;', 'timestamp': '1412535348653', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412535348653#c7662301559215110780', 'author': {'name': '匿名', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-801345061'}, {'id': '8393316539337326763', 'parentId': '643183668057347849', 'body': '我那句话打错了字我要说的是&#65306;在一个西方掌握普世价值的时代&#65292;被歧视的黄种人自己都看不起自己的同袍&#65292;并加以侮辱&#65292;然后在己的博客大谈双重思维&#65292;这真是让人难为情的&#12290;', 'timestamp': '1412536347863', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412536347863#c8393316539337326763', 'author': {'name': '匿名', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-801345061'}, {'id': '7118295227055004829', 'parentId': '643183668057347849', 'body': '这话题真是把狗都放出来了&#12290;&#12290;&#12290;', 'timestamp': '1412539421967', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412539421967#c7118295227055004829', 'author': {'name': '智多星张召忠', 'avatarUrl': 'http://img2.blogblog.com/img/b16-rounded.gif', 'profileUrl': 'http://www.blogger.com/profile/03115260414378289671'}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-1326311143'}, {'id': '3416890661379851779', 'parentId': '643183668057347849', 'body': '每次碰到这样的敏感帖子就会有人跳出来&#65292;他们不敢正面摆事实讲道理&#65292;字里行间充满了阴阳怪气的人身攻击&#65292;如&#8220;被歧视&#8221;&#65292;&#8220;黄种人&#8221;&#65292;&#8220;民族感情&#8221;&#65292;&#8220;阴险&#8221;&#65292;&#8220;怂&#8221;等&#65292;不外乎想激怒随想来达到目的&#12290;最好笑的是&#65292;别人还没说他是五毛&#65292;自己就先讲别人是五毛了&#65288;&#8220;搞犬儒&#65292;搞5毛&#65292;我不参与就行了&#8221;&#65289;&#65292;其逻辑之混乱让人不知道他想说什么&#12290;\74br /\76\74br /\76这种科级五毛的手法&#65292;基本是用煽动性的词语试图激怒对方&#65292;当大家失去理智和他争吵时&#65292;这些职业骂客把水搅浑的目的就达到了&#12290;大家看看被中共雇佣去港搞破坏的人&#65292;他们的所作所为是否感觉似曾相识&#65311;\74br /\076', 'timestamp': '1412540299713', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412540299713#c3416890661379851779', 'author': {'name': 'Ho Steven', 'avatarUrl': 'http://img2.blogblog.com/img/b16-rounded.gif', 'profileUrl': 'http://www.blogger.com/profile/02519951701119232420'}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-2878647'}, {'id': '8743553555475171925', 'body': '唉&#12290;&#12290;&#12290;\74br /\76来这里看评论好累&#65292;功力太差&#65292;每次都要搞清楚谁是五毛&#65292;谁不是五毛&#12290;以前认一个五毛&#65292;好简单的事&#12290;\74br /\76\74br /\76不过他们打字打多了&#65292;我认为这个行业应该是快干不下去了&#12290;', 'timestamp': '1412540770032', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412540770032#c8743553555475171925', 'author': {'name': '智多星张召忠', 'avatarUrl': 'http://img2.blogblog.com/img/b16-rounded.gif', 'profileUrl': 'http://www.blogger.com/profile/03115260414378289671'}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-1326311143'}, {'id': '8952671178161955841', 'body': '啥时候能抢个沙发?嘿嘿', 'timestamp': '1412540826281', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412540826281#c8952671178161955841', 'author': {'name': 'zhongcai Li', 'avatarUrl': '//lh4.googleusercontent.com/-amuBj694d4k/AAAAAAAAAAI/AAAAAAAANYo/opqcslRqaNo/s512-c/photo.jpg', 'profileUrl': 'http://www.blogger.com/profile/15577949483039622921'}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-1325116746'}, {'id': '682970630103617033', 'parentId': '643183668057347849', 'body': '既然你很理智我就问问你&#65306;\74br /\76你承认占中的主力是学生和年轻人吗&#65311;&#65288;学生和年轻人和容易被煽动产生对社会的不满&#65289;\74br /\76你承认报道的22万抗议者是香港居民的少数人吗&#65311;&#65288;人数少也没有一个有影响力的人站出来支持&#65289;\74br /\76你承认这样的抗议会影响到香港的经济吗&#65311;\74br /\76你承认学生们是拿香港的经济要挟政府来获得他们想要的民主吗&#65311;\74br /\76当然刚才你承认这样做事不理智的&#12290;大家都看到了&#12290;\74br /\76你承认你说自己很理智&#65292;但是表态却大相近庭吗&#65311;\74br /\76你承认你很喜欢看到学生抗议吗&#65311;&#65288;因为这和你反对共产党的政见是一致的&#65289;\74br /\76你承认你的看客一直在对我进行人身攻击吗&#65311;\74br /\76你承认这些都是你教他们的吗&#65311;\74br /\76你承认你是一个理智的人吗&#65311;\74br /\76你可以不回答继续骂&#12290;\74br /\076', 'timestamp': '1412540880285', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412540880285#c682970630103617033', 'author': {'name': '匿名', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-1259200534'}, {'id': '100298034380038734', 'parentId': '643183668057347849', 'body': '是&#65292;不是&#65292;是&#65292;只能这样&#65292;我为什么要回答这个问题&#65311;是&#65288;什么逻辑&#65289;&#65292;没有一直&#12290;骂混帐是天生的&#65292;不用学&#12290;是&#12290;完&#12290;', 'timestamp': '1412541288890', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412541288890#c100298034380038734', 'author': {'name': '智多星张召忠', 'avatarUrl': 'http://img2.blogblog.com/img/b16-rounded.gif', 'profileUrl': 'http://www.blogger.com/profile/03115260414378289671'}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-1326311143'}, {'id': '768503514147103496', 'parentId': '643183668057347849', 'body': '你为什么这么想得到别人的承认&#65292;得到一次承认&#65292;有一个五毛吗&#65311;', 'timestamp': '1412541479272', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412541479272#c768503514147103496', 'author': {'name': '智多星张召忠', 'avatarUrl': 'http://img2.blogblog.com/img/b16-rounded.gif', 'profileUrl': 'http://www.blogger.com/profile/03115260414378289671'}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-1326311143'}, {'id': '3243928888115385569', 'parentId': '643183668057347849', 'body': '说实话我不屑于再和别人争论什么&#65292;浪费这么多时间&#65292;主要是看得起你&#65292;你想说自己理智&#65292;就得面对一些尖锐的问题&#65292;答案往往又与你的观点相违背&#65292;还和你之前的言论像违背&#65292;你就是想看看你怎么处理&#65292;你不说我是比较典型的犬儒吗&#65311;你得比我的观点更站得住脚&#12290;', 'timestamp': '1412541587213', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412541587213#c3243928888115385569', 'author': {'name': '匿名', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-1259200534'}, {'id': '5151107195792628752', 'parentId': '8764082504388057091', 'body': '忠党兄&#65292;楼上有您同事吗&#65311;', 'timestamp': '1412541662835', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412541662835#c5151107195792628752', 'author': {'name': '智多星张召忠', 'avatarUrl': 'http://img2.blogblog.com/img/b16-rounded.gif', 'profileUrl': 'http://www.blogger.com/profile/03115260414378289671'}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-1326311143'}, {'id': '5356663403562019118', 'parentId': '643183668057347849', 'body': '当然你也可以看看你的拥趸都是些什么人&#12290;', 'timestamp': '1412541702443', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412541702443#c5356663403562019118', 'author': {'name': '匿名', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-1259200534'}, {'id': '98108983360875507', 'parentId': '643183668057347849', 'body': '从上面看&#65292;这次的五毛有男有女&#12290;我估计五单元是个女领导&#65292;押五毛&#12290;', 'timestamp': '1412541833423', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412541833423#c98108983360875507', 'author': {'name': '智多星张召忠', 'avatarUrl': 'http://img2.blogblog.com/img/b16-rounded.gif', 'profileUrl': 'http://www.blogger.com/profile/03115260414378289671'}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-1326311143'}, {'id': '6610003224898557798', 'parentId': '8743553555475171925', 'body': '初步教程&#65292;匿名不是同一个人&#65292;叫忠党爱国的&#65292;起码有三个人&#12290;\74br /\76现在打字不按回车&#65292;打不够40字&#65292;估计就没工资&#12290;', 'timestamp': '1412542012252', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412542012252#c6610003224898557798', 'author': {'name': '智多星张召忠', 'avatarUrl': 'http://img2.blogblog.com/img/b16-rounded.gif', 'profileUrl': 'http://www.blogger.com/profile/03115260414378289671'}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-1326311143'}, {'id': '6566956411486367802', 'parentId': '643183668057347849', 'body': '如何看这楼&#65292;匿名不是同一个人&#65292;起码是两个&#65292;而且都是五毛&#12290;鉴定完毕&#12290;赌五毛&#12290;', 'timestamp': '1412542112768', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412542112768#c6566956411486367802', 'author': {'name': '智多星张召忠', 'avatarUrl': 'http://img2.blogblog.com/img/b16-rounded.gif', 'profileUrl': 'http://www.blogger.com/profile/03115260414378289671'}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-1326311143'}, {'id': '37784732832241909', 'body': '如何搜索人渣&#65311;\74br /\76\74br /\76请在q群里搜索&#8220;网络评论&#8221;&#12290;有兴趣可以看看&#65292;到底有多少个群&#12290;\74br /\76有了这个群&#65292;他们可以约在同一时间&#65292;在同一地点&#65292;用不同网名来制造舆论&#12290;当然这里&#65292;有&#8220;匿名&#8221;&#65292;就不用不同网名了&#12290;\74br /\76如果是不同群来联谊&#65292;迷惑性就更强了&#12290;', 'timestamp': '1412542915842', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412542915842#c37784732832241909', 'author': {'name': '智多星张召忠', 'avatarUrl': 'http://img2.blogblog.com/img/b16-rounded.gif', 'profileUrl': 'http://www.blogger.com/profile/03115260414378289671'}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-1326311143'}, {'id': '5972086926803365459', 'body': '早在数年前&#65292;中共煽动抗日打砸抢时&#65292;这样的Q群就大量存在了&#12290;他们像文革红小兵搞串联一样&#65292;在大量Q群发消息进行煽动&#12290;有人在天涯指出这点&#65292;帖子马上就被删掉了&#12290;\74br /\76\74br /\76估计这些都是中宣部下属的外围组织&#65292;正反映了中国国民的悲哀&#12290;党用百姓的钱对付百姓&#65292;党库国库不分&#65292;政府从不敢公布党的收入与预算&#12290;党就是中国最大的硕鼠&#65292;这一点我们还不如17世纪的英国&#65292;有真正的议会制约权力&#12290;', 'timestamp': '1412548095636', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412548095636#c5972086926803365459', 'author': {'name': 'Ho Steven', 'avatarUrl': 'http://img2.blogblog.com/img/b16-rounded.gif', 'profileUrl': 'http://www.blogger.com/profile/02519951701119232420'}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-2878647'}, {'id': '4340824288135156710', 'parentId': '643183668057347849', 'body': '从28单元可以看出五毛使用的诱导方式&#65292;这大概也是中共近百年以来在他们称之为&#8220;思想改造&#8221;的洗脑过程中总结出来的手法&#12290;\74br /\76\74br /\76首先&#65292;他们使用的都是封闭式提问&#65288;yes or no),而不是开放式&#65288;是什么&#65292;为什么&#65292;怎么做&#65289;&#65292;这种非是即否的问法本身已经限制了回答者的反应&#12290;\74br /\76\74br /\76其次&#65292;其所提问题显然不能反映事实&#65292;只诱导大家给出他们想要的答案&#12290;让我们用类似的方法提问&#65306;\74br /\76你承认占中损害的是港府和中共利益吗&#65311;\74br /\76你承认报道的22万抗议者代表了香港支持自由民主的主流民意吗&#65311;\74br /\76你承认这样的抗议会促进香港的政治进步从而有利香港的长远发展吗&#65292;虽然会付出短期的经济代价&#65311;&#65288;何况旅游业不到香港GDP的5%&#65289;&#65311;\74br /\76你承认学生们不惜放弃休息时间甚至学业来获得他们想要的民主吗&#65311;\74br /\76你承认你反对学生抗议是党在背后提供经济和政治支持吗&#65311;&#65288;因为这和你支持共产党的意见是一致的&#65289;', 'timestamp': '1412549247697', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412549247697#c4340824288135156710', 'author': {'name': 'Ho Steven', 'avatarUrl': 'http://img2.blogblog.com/img/b16-rounded.gif', 'profileUrl': 'http://www.blogger.com/profile/02519951701119232420'}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-2878647'}, {'id': '7241969947945926033', 'parentId': '643183668057347849', 'body': '你呀&#65292;最好弄一T恤&#65292;把&#8220;支那猪&#8221;写在上面&#65292;跟人说你定制的&#65292;天天穿着它&#65292;见了人就把你思路跟人说一遍&#65292;用不了几天你就出名了&#65292;多好&#65281;当然 &#65292;注意安全&#12290;\74br /\76\74br /\76那守日人肯定是皇军当年强奸他祖母全家女性留下在天朝的日杂&#65292;这不&#65292;总算偷蒙拐骗凑够钱留学东瀛可以认祖归宗了&#65292;你看它这几个月一口一个支那那得瑟样&#65292;呵呵&#12290;这样还不满足&#65292;这不&#65292;现在连名字也改回日本鬼子的&#65292;ID也叫守护大日本帝国的人了&#12290;劝君莫理会这个皇协军&#12290;它会把你的智商拉到和它同一阵线&#65292;然后用它丰富的经验打败你&#12290;\74br /\76\74br /\76另外楼上的匿名兄弟&#65292;我是支持占中学生的&#12290;你看蓝杂军&#65292;又是花钱雇用黑社会打砸抢&#65292;又是非礼女占中示威者等等&#65292;真是猪狗不如&#65292;简直就像是守日人日杂它的爹娘2.0版&#12290;', 'timestamp': '1412549495607', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412549495607#c7241969947945926033', 'author': {'name': '请叫我雷锋', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-376502170'}, {'id': '5891936995951846599', 'parentId': '643183668057347849', 'body': '从35单元所举例子可以看出&#65292;开放理性的思维至关重要&#12290;\74br /\76\74br /\76我们多问问&#8220;是什么&#8221;&#65292;比如参加占中的都有什么人&#65292;是否如五毛所说都是学生&#65292;有没有工商界人士&#65292;演艺界人士&#65292;甚至牧师等各界代表&#12290;\74br /\76\74br /\76我们多问问&#8220;为什么&#8221;&#65292;为什么他们敢不畏暴力直面镇压&#65292;真的只是一己之私&#65292;要挟经济来换取民主&#65311;\74br /\76\74br /\76有了理性的逻辑思维&#65292;党国的洗脑和煽动技俩就不攻自破&#12290;这也是随想所说&#65292;普及和提高国民心理和政治素质的重要性所在&#12290;\74br /\076', 'timestamp': '1412550009120', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412550009120#c5891936995951846599', 'author': {'name': 'Ho Steven', 'avatarUrl': 'http://img2.blogblog.com/img/b16-rounded.gif', 'profileUrl': 'http://www.blogger.com/profile/02519951701119232420'}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-2878647'}, {'id': '3468478789394429480', 'parentId': '643183668057347849', 'body': '我对你们的评价是这样的&#65306;\74br /\76\74br /\76党国对待不同政见者设置新闻审查&#12290;\74br /\76你们对待不同政见者加以辱骂&#12290;\74br /\76\74br /\76党国外交发言人犯下可笑错误&#65306;不要拿法律当挡箭牌\74br /\76你们声称理智却口不对心&#12290;\74br /\76\74br /\76党国提出求同存异的政治解决方案&#12290;\74br /\76你们坚持排除异己的基本方针不动摇&#12290;&#65288;你们太嫩&#65292;光博取同情远远不够)\74br /\76\74br /\76你们大谈政治却不知道政治的基础是多数人的支持&#65292;要不然你们不会拼命排除异己&#65292;很没风度&#12290;\74br /\76你们支持&#8220;占中&#8221;学生拿香港经济做筹码来要挟政府满足政治诉求&#65292;却不知道党国的筹码是枪&#65288;党国自称是基本法&#65292;其实到最后还是用枪&#65289;&#12290;\74br /\76\74br /\76你们不觉得自己是少数人的话可以看看有那个有影响力的人出来支持你们&#65281;&#65288;太嫩&#65289;\74br /\76\74br /\76\74br /\76\74br /\76\74br /\076', 'timestamp': '1412550689646', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412550689646#c3468478789394429480', 'author': {'name': '匿名', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-1259200534'}, {'id': '7965433746767619163', 'parentId': '643183668057347849', 'body': '我其实是看得起博主的&#65292;至于你们&#65292;真是不屑一顾&#65292;我说过你们成不了的话&#65292;这话一直算数&#65281;', 'timestamp': '1412551089627', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412551089627#c7965433746767619163', 'author': {'name': '匿名', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-1259200534'}, {'id': '8913311351511254647', 'parentId': '643183668057347849', 'body': '支那猪这句话呢&#65292;是&#8220;守夜人&#8221;这ID征求博主同意用来骂我的&#65292;你也受不了了是吧&#65292;&#8220;守夜人&#8221;这ID还说有人听了会高潮&#65292;我觉得雷锋同志已经高潮了&#12290;', 'timestamp': '1412551519715', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412551519715#c8913311351511254647', 'author': {'name': '匿名', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-1259200534'}, {'id': '4552631086448354651', 'parentId': '643183668057347849', 'body': '不逗你们玩儿了&#65292;你们容易急眼&#12290;我等着你们早日争取民主的好消息&#65281;我也盼着这一天呢&#12290;', 'timestamp': '1412551675054', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412551675054#c4552631086448354651', 'author': {'name': '匿名', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-1259200534'}, {'id': '3516236293632703286', 'parentId': '643183668057347849', 'body': '对于你们我就是哄小孩的态度&#65292;你们可以看看我和博主是怎么交流的&#12290;仔细研读一下&#65292;你就知道不光是党国矛盾&#12290;', 'timestamp': '1412552454038', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412552454038#c3516236293632703286', 'author': {'name': '匿名', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-1259200534'}, {'id': '2393225320975400206', 'parentId': '643183668057347849', 'body': '至于矛盾的问题&#65292;建议博主来一篇博文&#65292;好好说一下&#65292;这么多人都不明白&#12290;', 'timestamp': '1412552621118', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412552621118#c2393225320975400206', 'author': {'name': '匿名', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-1259200534'}, {'id': '5757761881565096583', 'parentId': '643183668057347849', 'body': '大家别骂他了&#65292;都是自己的钱&#12290;他要说便由得他&#12290;', 'timestamp': '1412552769091', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412552769091#c5757761881565096583', 'author': {'name': '智多星张召忠', 'avatarUrl': 'http://img2.blogblog.com/img/b16-rounded.gif', 'profileUrl': 'http://www.blogger.com/profile/03115260414378289671'}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-1326311143'}, {'id': '7263231426567580537', 'parentId': '5972086926803365459', 'body': '唉&#65292;长太息以掩涕兮&#65292;哀民生之多艰&#12290;', 'timestamp': '1412553234689', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412553234689#c7263231426567580537', 'author': {'name': '智多星张召忠', 'avatarUrl': 'http://img2.blogblog.com/img/b16-rounded.gif', 'profileUrl': 'http://www.blogger.com/profile/03115260414378289671'}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-1326311143'}, {'id': '6142826247752789934', 'parentId': '643183668057347849', 'body': '给个建议&#65292;要充大头鬼&#65292;尽量不要匿名&#12290;', 'timestamp': '1412553443927', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412553443927#c6142826247752789934', 'author': {'name': '智多星张召忠', 'avatarUrl': 'http://img2.blogblog.com/img/b16-rounded.gif', 'profileUrl': 'http://www.blogger.com/profile/03115260414378289671'}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-1326311143'}, {'id': '4360095237872086105', 'parentId': '1967184083117566664', 'body': '接着黎智英那个也很黑啊\74br /\76&#8220;昨天转发的那条钛媒体质疑黎智英做空港股的文章&#65292;因为触碰禁令&#65292;今天网站和微信双罚&#65292;停止更新一个月&#12290;//游云庭律师 &#65306;科技网站钛媒体被停止更新五天&#65292;因为钛媒体发了一篇文章&#65292;质疑新华社说黎智英借占领中环做空股市获利百亿&#12290;用下流无耻&#65292;流氓成性形容他们在谎言被戳穿后的恼羞成怒不算过分吧&#65311;&#8212;&#8212;啥叫新闻钳制&#65311;这就是&#12290;不过&#65292;当流氓遭遇了学霸时&#65292;流氓就会耍流氓了&#12290;下次新华社再造谣时&#65292;最起码也得找个专业人士咨询一下&#65292;不要一拍脑袋就发表出来了&#12290;&#8221;', 'timestamp': '1412554489217', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412554489217#c4360095237872086105', 'author': {'name': '本评论注定被吃', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-1416972968'}, {'id': '2706709064049975838', 'parentId': '327591113823258896', 'body': '[img]http://www.botanwang.com/sites/default/files/images/005NmIA4gw1el0ormg3foj30bu073t9o.jpg[/img]\74br /\76[img]http://www.botanwang.com/sites/default/files/images/005MCovsjw1el09qfz9rej30c80et75o.jpg[/img]\74br /\76有一种职业叫做&#8220;暴徒&#8221;&#65292;他们都戴口罩&#12289;配&#8220;蓝丝带&#8221;&#65281;网友人肉结果&#65306;口罩女叫李红霞&#65292; 生于1961年&#65292;籍贯&#65306;石河子&#65307; 2000年后新疆军区转入后勤部&#65292;2005年进入香港中联部编制&#65292;大校军衔&#65292;她老公是人大教授&#12290;另外&#65292;网曝照片中这位昨晚在旺角扮古惑仔&#65292;结果被学生和周围的真社团人士围住质疑后&#65292;他立刻亮出警员证保平安&#12290;&#8212;&#8212;请你们不要把在大陆的恶习带到香港去好吗&#65311;那里有全世界的媒体在等着看你们真实的嘴脸&#12290;\74br /\076', 'timestamp': '1412554687700', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412554687700#c2706709064049975838', 'author': {'name': '本评论注定被吃', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-1416972968'}, {'id': '2747933610394862630', 'parentId': '643183668057347849', 'body': '其实大家看了博主的双重思想文章觉得是被洗脑了&#65292;其实呢&#65292;现实当中人是有利己思想的&#65292;任何情况下人都是站在对自己有利的立场讲话&#65288;我站在我的立场说我不去抗议&#65292;你们说我自私&#65289;&#12290;党国不需要搞那么麻烦&#65292;给你灌输思想洗脑&#65292;施以压力&#65292;你们就得站队&#65288;当然你们也是一样的&#65289;&#65292;人在这种情况就会为自己切身利益考虑说出矛盾的话&#12290;', 'timestamp': '1412555940639', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412555940639#c2747933610394862630', 'author': {'name': '匿名', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-1259200534'}, {'id': '3786033703361781968', 'parentId': '643183668057347849', 'body': '最后我作为一个局外人&#65292;以温和的态度给大家点建议&#65292;我会婉转的表达&#65288;不再说你们幼稚&#65289;&#65306;有句话是这么说的&#65292;在印度生活不是要你斗得过阿三&#65292;而是要你变成阿三&#12290;那些充满自由民主理想的年轻人&#65292;可以想办法参政议政&#65292;以政治手段争取民主&#12290;如果你想赤手空拳威胁一个拿枪的人就太幼稚了&#12290;如果你们想着赤手空拳打到拿枪的人&#65292;你们就太不理智了&#65292;如果你们想弄把枪和他们对打&#65292;就不符合大多人要求和平的意愿&#12290;我也不愿意看到&#12290;带着仇恨不是一个解决问题的正确态度&#12290;', 'timestamp': '1412556456716', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412556456716#c3786033703361781968', 'author': {'name': '匿名', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-1259200534'}, {'id': '7821707254307244029', 'parentId': '327591113823258896', 'body': 'TO 博主\74br /\76这有什么奇怪的&#12290;没有其他信息来源+缺乏思维能力&#65292;那还不是共匪说什么就信什么&#12290;\74br /\76google&#65306;香港 警黑合作 证据\74br /\76搜出来一堆&#12290;\74br /\76CCAV报道占中&#12289;评论占中时&#65292;画面都是香港的高楼街道&#65292;没有一点混乱的样子&#65307;采访的人都是反占中的&#65292;更搞笑的居然还有非香港口音的&#12290;一个稍微有点思维能力的人都会怀疑了&#65292;可惜这样的人太少&#12290;\74br /\76口口声声说是&#12304;非法&#12305;集会&#65292;连画面都不敢放&#65292;内心多恐惧啊&#12290;相较之下&#65292;CCAV对其他&#8220;非法&#8221;活动那是狠狠曝光&#65292;什么画面没有&#65311;名人嫖娼&#12289;吸毒&#8230;&#8230;完了还央视认罪&#12290;', 'timestamp': '1412558399023', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412558399023#c7821707254307244029', 'author': {'name': 'get freedom', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-1595957855'}, {'id': '7531539809733413059', 'body': '这是国内媒体最新报道\74br /\76\74br /\76现在占中到底是个什么形势&#65292;大部分地区是否仍然坚持\74br /\76\74br /\76香港部分&#8220;占中&#8221;者撤离街区\74br /\0762014-10-06 新京报\74br /\76据新华社电 香港&#8220;占领中环&#8221;的部分参与者5日表示&#65292;同意将所占据的地点移交警方以缓和与警方关系&#12290;同时&#65292;特区政府教育局宣布&#65292;受&#8220;占中&#8221;影响的湾仔区&#12289;中西区中学6日复课&#12290;\74br /\76\74br /\76行政长官办公室外参与&#8220;占中&#8221;的部分参与者5日傍晚表示&#65292;决定离开龙和道及添华路的路面&#12290;\74br /\76\74br /\76他们表示&#65292;市民对连日的占领行为持负面印象&#65292;阻碍救援及运送补给物资&#65292;现在是时候撤离&#12290;他们与现场警方指挥官握手&#65292;警方欢迎他们的决定&#12290;&#8220;占中&#8221;参与者剪开在龙和道铁马的索带&#65292;警车随即驶入&#12290;\74br /\76\74br /\76在九龙旺角亚皆老街与弥敦道交界处&#65292;还有部分学生决定离开并转移至金钟&#65292;对几天来影响附近居民及商户表示歉意&#12290;\74br /\76\74br /\76在下午召开的特区政府跨部门联合记者会上&#65292;香港特区教育局5日决定&#65292;受&#8220;占中&#8221;影响的湾仔区&#12289;中西区中学6日&#65288;周一&#65289;复课&#12290;政府将密切留意情况&#65292;以决定两个地区的幼儿园&#12289;小学及特殊学校何时复课&#12290;\74br /\76\74br /\76表态\74br /\76\74br /\76港府&#65306;对话大门始终敞开\74br /\76\74br /\76特区行政会议全体非官守议员呼吁所有&#8220;占中&#8221;人士离开\74br /\76\74br /\76香港特区政府发言人5日表示&#65292;只要参与&#8220;占中&#8221;的学生组织愿意&#65292;政府与学生的对话大门始终是敞开的&#12290;政务司司长随时乐意与学生组织继续为对话作出工作层面的筹备&#12290;\74br /\76\74br /\76发言人表示&#65292;只要学生组织愿意&#65292;对话的大门一直是开启的&#12290;在筹备对话的同时&#65292;政府希望相关团体就以下两方面作出协助和配合&#65306;\74br /\76\74br /\76一&#12289;使出入政府总部的交通至少局部恢复&#65292;使约三千名政府人员6日能恢复上班&#65292;政府总部可以恢复运作&#12290;\74br /\76\74br /\76二&#12289;开通金钟一带主要干道&#65292;减少对该区交通的影响&#65292;使中西区及湾仔区的学校在多日停课后6日可以复课&#12290;\74br /\76\74br /\76香港特区行政会议全体非官守议员5日就&#8220;占领中环&#8221;发表声明&#65292;对连日来在&#8220;占中&#8221;集会现场发生的暴力行为予以谴责&#65292;绝不容忍任何暴力行为&#65292;并呼吁各方保持克制&#12290;\74br /\76\74br /\76声明认为&#65292;警方维持公众秩序&#65292;秉公执法&#65292;行政会议全体非官守议员表示支持&#65292;呼吁所有参与&#8220;占中&#8221;行动及集会的人士尽快离开集会现场&#65292;以使被堵塞多日的道路及受影响的公共交通服务得以早日恢复正常&#65292;让市民和学生可于6日周一照常上班上学&#12290;\74br /\76\74br /\76行政会议全体非官守议员呼吁集会人士不再堵塞通往政府总部的出入口&#65292;让公务员可以正常上班&#65292;继续为市民服务&#12290;全体非官守议员促请参与&#8220;占中&#8221;的学生组织就讨论政改与政府开展对话&#12290;\74br /\76\74br /\76根据香港特区基本法&#65292;行政会议是协助行政长官决策的机构&#65292;其现任的非官守议员有十四名&#65292;均为特区立法会议员&#12290;\74br /\76\74br /\76影响\74br /\76\74br /\76&#8220;占中&#8221;造成3500亿港元损失\74br /\76\74br /\76综合新华社电 &#8220;就像突然停电一样&#65292;一小时内影响不大&#65292;最多冰箱里的东西受点影响&#12290;但停电时间一长&#65292;冰箱里的东西就要坏了&#12290;&#8221;中金公司首席经济学家彭文生5日表示&#65292;一周以来&#8220;占领中环&#8221;已对香港民生经济等方面造成一定影响&#65292;如果继续下去&#65292;负面效应将会扩大&#65292;令人担忧&#12290;\74br /\76\74br /\76港股跌3% 港元对美元汇率下降\74br /\76\74br /\76&#8220;占领中环&#8221;非法集会已经进入第八天&#12290;彭文生认为&#65292;&#8220;占中&#8221;对香港短期影响主要在旅游和零售业方面&#65292;&#8220;国庆期间内地和国外游客都受到&#8216;占中&#8217;影响而减少到香港旅行&#65292;冲击显而易见&#12290;&#8221;\74br /\76\74br /\76有香港经济学家以港股市值下跌指数折算认为&#65292;&#8220;占中&#8221;发生至今&#65292;初步评估给香港造成3500亿港元经济损失&#12290;\74br /\76\74br /\76彭文生表示&#65292;目前香港股市下跌&#65292;幅度在3%左右&#65307;港币对美元的汇率也受到一些影响&#65292;从7.75变成7.76&#12290;如果&#8220;占中&#8221;停止&#65292;影响还可以接受&#65292;但若持续时间较长&#65292;尤其是发生一些较大冲突&#65292;危害不可估量&#12290;\74br /\76\74br /\76香港特区行政长官梁振英4日发表电视讲话说&#65292;3日下午到晚上&#65292;在旺角发生&#8220;占中&#8221;和&#8220;反占中&#8221;群众冲突事件&#65292;造成多人受伤&#12290;特区政府强烈谴责所有人的暴力行为&#65292;事件发展下去&#65292;极有可能失控&#65292;对市民安全和社会秩序造成严重后果&#12290;\74br /\76\74br /\76中证资本市场运行统计监测中心分析师曾光说&#65292;&#8220;沪港通&#8221;公布后&#65292;国外热钱涌入香港&#65292;蓄势进入内地&#12290;但近来恒生指数一直处于下行趋势&#65292;尤其最近几天&#65292;不排除投资者受&#8220;占中&#8221;影响纷纷撤资&#65292;导致股价下跌&#12290;\74br /\76\74br /\76有专家对&#8220;占中&#8221;冲击香港营商环境感到忧虑&#12290;中信证券首席经济学家诸建芳认为&#65292;香港的零售业和商务活动在&#8220;占中&#8221;事件中首当其冲受到负面影响&#65292;尤其&#8220;占中&#8221;所在正是香港核心地方&#65292;危害更加明显&#12290;\74br /\76\74br /\76&#8220;十一&#8221;前两日赴港自由行降6.4%\74br /\76\74br /\76街道堵塞&#12289;交通瘫痪&#12289;商店关门&#12289;学校停课&#12289;冲突时现&#8230;&#8230;持续多日的香港&#8220;占领中环&#8221;非法集会严重干扰社会秩序&#12289;破坏营商环境&#65292;给香港市民的生活带来极大不便&#65292;也显著影响内地游客赴港旅游的意愿&#12290;\74br /\76\74br /\76在广州市中心一家旅行社门店内&#65292;一位工作人员表示&#65292;和去年&#8220;十一&#8221;黄金周相比&#65292;主动征询香港游的游客数量下降了一半&#12290;&#8220;以往每天约有30人前来咨询和办理手续&#65292;今年黄金周每天来问的只有十来人&#65292;有时只有两三人&#65292;担忧香港秩序不稳和受到示威者冲击是主要原因&#12290;&#8221;\74br /\76\74br /\76目前&#65292;旺角&#12289;中环&#12289;铜锣湾&#12289;金钟&#12289;尖沙咀等香港商业旺地和交通要道依然被违法示威人士霸占&#65292;多家沿街的商铺关门&#12290;香港旅游联业工会已发表严正声明&#65292;谴责&#8220;占中&#8221;行动蔓延扩大&#65292;重创包括零售&#12289;饮食&#12289;酒店和运输等旅游业的62万从业人员生计&#12290;\74br /\76\74br /\76中国内地是香港最大的旅客来源市场&#65292;去年内地访港旅客总数达4070万人次&#65292;占整体访港旅客的75%&#12290;然而&#65292;今年受&#8220;占中&#8221;影响&#65292;&#8220;十一&#8221;黄金周首两日内地来港旅客同比减少1.7%&#65292;内地自由行旅客更减少6.4%&#12290;众多旅行团出现退团潮&#65292;业界估计下周内地团数目将减七至八成&#12290;此外&#65292;加拿大和澳大利亚等国家也发布了赴港旅行预警&#12290;\74br /\76\74br /\76声音\74br /\76\74br /\76香港各界呼吁&#8220;占中&#8221;者撤离\74br /\76\74br /\76&#9679;香港建造商会 &#8220;占中&#8221;不是解决问题的方法&#65292;只会造成社会不安&#12289;撕裂及损害&#12290;希望集会人士尽快回家&#65292;&#8220;占中&#8221;人士尽快和平散去&#12290;\74br /\76\74br /\76&#9679;学友社 衷心呼吁学生尽快撤离集会场地&#65292;返回课堂继续学业&#65307;透过理性对话&#65292;和平解决当前危机&#65292;让学校及社会尽快恢复正常运作&#12290;\74br /\76\74br /\76&#9679;香港佛教联合会 希望所有参与&#8220;占中&#8221;集会的人士保持冷静&#65292;立即和平离开所有集会现场&#65307;希望所有佛教徒&#12289;佛教学校师生不要走近现场或附近地方&#65292;希望&#8220;占中&#8221;组织者抛开小我&#65292;放下成见&#65292;以香港社会稳定及市民生计大局为重&#12290;\74br /\76\74br /\76&#9679;香港多所高校 冀&#8220;占中&#8221;参与者立即撤离&#65292;有序离开&#65292;希望以和平理性的态度&#65292;透过对话沟通解决问题&#12290;其中&#65292;香港大学校长马斐森发表声明&#65292;呼吁港大学生及教职员&#65292;马上撤离现场&#12290;\74br /\76\74br /\76&#9679;全国政协常委唐英年 政制改革是循序渐进&#65292;应该依循基本法及全国人大常委会的决定&#65307;解决问题最好的方法是对话&#65292;而不是对峙&#12290;他相信特区政府已经听到大家的诉求&#65292;接下来应该理性&#12289;务实地建立沟通&#65292;避免不必要的冲突再次发生&#12290;\74br /\76\74br /\76&#9679;香港中文大学校长沈祖尧 恳请学生立即撤离&#65292;重开道路&#12290;\74br /\076', 'timestamp': '1412558600373', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412558600373#c7531539809733413059', 'author': {'name': 'Liu Yiteng', 'avatarUrl': 'http://img2.blogblog.com/img/b16-rounded.gif', 'profileUrl': 'http://www.blogger.com/profile/11135393746462565830'}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-1476338144'}, {'id': '7919093081352417218', 'parentId': '643183668057347849', 'body': '我承认占中的主力是学生和年轻人&#12290;&#65288;学生和年轻人容易产生对中共的不满&#65289;\74br /\76我承认报道的22万抗议者是香港居民的少数人&#12290;&#65288;人数少但是有四大影帝这样的人站出来支持&#65289;\74br /\76我承认这样的抗议会影响到香港的经济&#65292;但是对中共的影响更大&#12290;\74br /\76我承认学生们是拿香港的经济来要挟中共来获得他们想要的民主&#12290;\74br /\76当然刚才我不承认这样做事不理智的&#12290;大家都看到了&#12290;\74br /\76我承认我说自己很理智&#65292;但是表态却没有大相近庭&#12290;\74br /\76我承认我很喜欢看到学生抗议&#12290;&#65288;因为这和我反对共产党的政见是一致的&#65289;\74br /\76我承认我的看客一直在对你进行攻击&#12290;\74br /\76我承认这些都是我教他们的&#12290;\74br /\76我承认我是一个理智的人&#12290;', 'timestamp': '1412558684049', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412558684049#c7919093081352417218', 'author': {'name': '终党爱国', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-1174764879'}, {'id': '8369683359789554558', 'parentId': '643183668057347849', 'body': '最后我作为一个局外人&#65292;以温和的态度给你点建议&#65292;我会婉转的表达&#65288;不再说你幼稚&#65289;&#65306;有句话是这么说的&#65292;在中国生活不是要你斗得过中共&#65292;而是要你变成中共&#12290;在中共国&#65292;那些充满自由民主理想的年轻人&#65292;不可以想办法参政议政&#65292;以政治手段争取民主&#12290;如果你想赤手空拳威胁拿枪的中共就太幼稚了&#12290;如果你们想着赤手空拳打到拿枪的中共&#65292;你们就太不理智了&#65292;如果你们想弄把枪和中共对打&#65292;就不符合大多人要求和平的意愿&#12290;我也不愿意看到&#12290;带着仇恨不是一个解决问题的正确态度&#12290;', 'timestamp': '1412559007300', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412559007300#c8369683359789554558', 'author': {'name': '终党爱国', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-1174764879'}, {'id': '8794096236557896916', 'parentId': '2799673503116377901', 'body': '要是没有发生什么事突然宣布独立&#65292;那共党只能隔岸骂骂娘&#12290;但是如果给了解放军调集准备的时间&#65292;什么都有可能发生&#12290;', 'timestamp': '1412559298172', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412559298172#c8794096236557896916', 'author': {'name': 'Therapy', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-1406162312'}, {'id': '4343568578877163525', 'parentId': '8743553555475171925', 'body': 'to 智多星张召忠\74br /\76你在自问自答吗', 'timestamp': '1412559350963', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412559350963#c4343568578877163525', 'author': {'name': '匿名', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-438163549'}, {'id': '913600102901943758', 'parentId': '643183668057347849', 'body': '其实大家看了博主的双重思想文章觉得并没有被洗脑&#65292;其实呢&#65292;现实当中人是有利己思想的&#65292;任何情况下人都是站在对自己有利的立场讲话&#65288;我站在我的立场说我不去抗议&#65289;&#12290;党国不需要搞那么麻烦&#65292;给你灌输思想洗脑&#65292;施以压力&#65292;你们就得站队&#65288;当然你们也是一样的&#65289;&#65292;人在这种情况就会为自己切身利益考虑说出矛盾的话&#12290;', 'timestamp': '1412559362461', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412559362461#c913600102901943758', 'author': {'name': '终党爱国', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-1174764879'}, {'id': '6244827030181768089', 'parentId': '5840387242533536619', 'body': '如今共党陷入了两难&#65306;派坦克就要面对更多的坦克&#65292;给民主就不得不给更多的民主&#12290;\74br /\76各位认为裆中央会怎么做&#65311;\74br /\76我认为不惜与全世界对抗也不放弃高压统治就是共党的本性&#12290;香港&#65292;说不好啊&#12290;', 'timestamp': '1412559721676', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412559721676#c6244827030181768089', 'author': {'name': 'Therapy', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-1406162312'}, {'id': '3940042804425952202', 'body': '看了10月5日的无线新闻&#65292;觉得占中很快就会结束&#65292;最多再坚持4&#65292;5日&#12290;可是这场运动让人看到了希望&#65292; 香港的年轻一代站在同一条战线上&#65292;团结一致&#65292;争取民主&#65292;香港的未来将属于年轻一代 &#65292;当下一次运动再起时&#65292;他们就是香港的主流&#12290;香港人会记住这场运动的&#12290;', 'timestamp': '1412560905127', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412560905127#c3940042804425952202', 'author': {'name': '匿名', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-659271547'}, {'id': '8025632894783674910', 'parentId': '5972086926803365459', 'body': '可以肯定的&#65292;这些群都是地方宣传部弄的&#65292;网评员大本营&#12290;', 'timestamp': '1412561528787', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412561528787#c8025632894783674910', 'author': {'name': '匿名', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-177191827'}, {'id': '2543082616281855277', 'parentId': '37784732832241909', 'body': '这个方法赞&#65281;\74br /\76我觉得谁要是去当卧底蛮有意思的\74br /\76把它们的聊天记录拉出来&#65292;截图&#65292;po在这里&#65292;看5毛还来不', 'timestamp': '1412561588348', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412561588348#c2543082616281855277', 'author': {'name': 'get freedom', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-2109834596'}, {'id': '5766040817344456516', 'parentId': '643183668057347849', 'body': '本层讨论出现了大仙&#65292;信徒等词汇&#65292;这是混淆科学和宗教的做法&#65292;会造成科学问题无标准&#12290;\74br /\76政治是社会科学问题&#65292;目的是建立高效的社会管理体系&#12290;科学的探讨方法不是大仙向信徒传教&#65292;而是建立理论&#65292;逻辑推论&#65292;并在现实中检验&#65292;科学需要不同观点的辩论&#65292;但有一定的标准&#65292;如理论的逻辑性和现实适用性&#65292;有些观点会被淘汰&#12290;\74br /\76宗教的方法不同&#65292;宗教的目的是获得心灵的安慰&#65292;只要没有超越人权界限成为邪教&#65292;所有宗教都是平等的&#65292;信仰取决个人好恶&#65292;没有标准&#65292;其探讨方法类似大仙传教&#12290;\74br /\76用宗教方法比喻科学讨论&#65292;会使科学问题失去标准&#65292;造成混乱&#12290;', 'timestamp': '1412561633007', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412561633007#c5766040817344456516', 'author': {'name': 'zhudong', 'avatarUrl': 'http://img2.blogblog.com/img/b16-rounded.gif', 'profileUrl': 'http://www.blogger.com/profile/02356018146117023234'}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-172031764'}, {'id': '4752733672741244809', 'parentId': '643183668057347849', 'body': '\74span class\75\47deleted-comment\47\76此评论已被作者删除&#12290;\74/span\076', 'timestamp': '1412561883682', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412561883682#c4752733672741244809', 'author': {'name': 'zhudong', 'avatarUrl': 'http://img2.blogblog.com/img/b16-rounded.gif', 'profileUrl': 'http://www.blogger.com/profile/02356018146117023234'}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin '}, {'id': '1462441275655173129', 'body': '香港占中运动可以说是香港年轻一代的自觉运动&#65292;那些领袖全都靠边站了&#65292;根本控制不了整场运动&#65292;更不用说是西方势力干涉煽动的&#65292;美国在昨天表态&#65292;占中运动影响了中美关系&#65292;为了中美关系着想&#65292;美国希望占中者和政府对话&#65292;和平解决问题&#65292;只对占中运动表示关切&#12290;', 'timestamp': '1412562033984', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412562033984#c1462441275655173129', 'author': {'name': '匿名', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-659271547'}, {'id': '3318310957876003234', 'parentId': '7269660152939039175', 'body': '樓主太小看香港人的智商了', 'timestamp': '1412564134634', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412564134634#c3318310957876003234', 'author': {'name': '匿名', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-877380135'}, {'id': '1004839347096471043', 'parentId': '643183668057347849', 'body': 'TO 40单元\74br /\76\46quot;支那猪这句话呢&#65292;是&#8220;守夜人&#8221;这ID征求博主同意用来骂我的\46quot; 混淆视听也太明目张胆了吧&#65311;当别人都瞎了吗&#65311;\74br /\76本楼1单元博主对守夜人说&#65306;&#8220;俺看到你在前一篇博文的留言区里面讨论得热烈&#12290;\74br /\76不过最好不用使用人身攻击的词汇&#12290;&#8221;', 'timestamp': '1412564274059', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412564274059#c1004839347096471043', 'author': {'name': 'get freedom', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-695323084'}, {'id': '8518548919054012202', 'body': '香港年轻人能有今天如此坚定的民主信念&#65292;还要感谢司徒华和他创立的支联会&#65292;更要感谢1989年在天安门广场抗争的学生和市民&#65292;正因为有了他们&#65292;才有了支联会&#65292;正因为这些学生市民被残忍镇压&#65292;香港人才开始认识到富裕的生活不是一切&#65292;拥有民主自由才能保障自己的尊严&#12290;我系广东人&#65292;香港近在迟尺&#65292;我唔能够漠视不理&#65292;我撑香港&#12290;', 'timestamp': '1412565197749', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412565197749#c8518548919054012202', 'author': {'name': '匿名', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-659271547'}, {'id': '8216955821763977717', 'parentId': '2982004728497193318', 'body': 'TO FlyingForever\74br /\76你讲的很好&#65292;正如你所说&#65292;功能界别在香港市民中直接代表的人群已高达20多万&#65292;间接代表的市民已高达300余万&#65292;而全港人口刚刚突破700万&#12290;\74br /\76\74br /\76因此&#65292;功能界别的代表性是相当有说服力的&#12290;\74br /\76\74br /\76不要把我党想象的过于强大&#65292;我党怎么可能有能力强迫20多万香港人在各个功能界别中独立&#12289;自主&#12289;分别投票选出900名特首提名委员&#65311;我党虽然具备超能力逆天&#65292;但是这个在香港实在不具备可操作性&#12290;\74br /\76\74br /\76其次&#65292;这有投票权的20多万香港功能界别市民&#65292;还受到相关行业300多万市民的间接影响&#65292;要这20多万有投票权的香港功能界别市民&#65292;完全违背300万市民的意愿&#65292;完全按照上峰的指令投票选出特首提名委员&#65292;怎么可能&#65311;&#65311;&#65311;&#65311;&#65311;\74br /\76\74br /\76第三&#65292;我国全国人大在2012年发布的香港政改路线图中&#65292;已经明确了在香港立法会和特首选举委员会中逐步减少功能界别比例&#65292;直至完全取消功能界别&#65292;逐步扩大市民直选代表比例&#65292;直至香港立法会和特首选举委员会完全由市民直选代表组成&#12290;\74br /\76\74br /\76这是白纸黑字&#65292;这是香港建制派和泛民主派一致同意的&#12290;\74br /\76\74br /\76第四&#65292;功能界别不是我党发明的&#12290;是港英政府统治期间由英国人在香港发明创造的&#65292;英国人的目的就是通过设立功能界别&#65292;提高工商业人士和专业人士的发言权&#65292;压制底层香港市民的发言权&#65292;达到稳定香港统制的目的&#12290;\74br /\76\74br /\76冒名顶替者死全家&#12290;无此声明即为冒用本人名义&#12290;', 'timestamp': '1412567345654', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412567345654#c8216955821763977717', 'author': {'name': '忠党爱国', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-296148406'}, {'id': '541054946023483643', 'body': '带着浓厚臣民意识的人批判香港&#65292;就像被关在笼子里的小鸟赞美笼子而批判蓝天一样搞笑&#12290;臣民和公民是两重不同的思维境界&#65292;其差别大约是古代和现代的差别&#65292;野蛮和文明的差别&#65292;甚至有可能是兽类与人类的差别&#12290;', 'timestamp': '1412567399475', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412567399475#c541054946023483643', 'author': {'name': '终党爱国', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-891951410'}, {'id': '297631034027932801', 'parentId': '2982004728497193318', 'body': 'To 永远高飞的少年\74br /\76\74br /\76功能组别选举特首提名委员合情合理&#65292;适合香港社情\74br /\76\74br /\76&#12288;&#12288;地区代表制可以以选区的划分来较好地实现平等的选举权&#65292;保持选民基础的大致平等&#12290;与地区代表制相比较&#65292;职业代表制&#65288;功能组别&#65289;的人口基数是按职业&#12289;行业&#12289;专业等划分的&#65292;不可能按地域作选区的划分&#65292;只能按经济和工商业的发展情况自然形成的就业人口划分&#65292;较难实现完全平等的选举权&#12290;\74br /\76\74br /\76        但也应当认识到&#65292;问题在于&#65306;在香港这样的地区特徵不明显&#65292;但职业&#12289;行业和专业特徵却很明显的大都会&#65292;现行的功能选举制度比分地区选举制度更适合香港&#12290;如果香港需要在立法会中有各界别&#12289;各行业&#12289;各专业&#12289;各方面的人物作为代表存在&#65292;就不要轻言废除&#12290;把头斩掉后&#65292;是不可能再长出来的&#12290;如果功能选举制度可以改良的话&#65292;为何不先改良呢?\74br /\76\74br /\76        香港基本法只要求根据香港的实际情况和循序渐进的原则推进民主进程&#65292;并没有要求一普选就完全实现平等的选举权&#12290;目前世界各国中&#65292;也没有什麽发达的&#12289;民主的国家完全实现平等的选举权&#12290;\74br /\76\74br /\76        比如美国&#65292;人口最少的佛蒙特州&#65292;每30万人中产生一名联邦参议员&#65292;而与之相反&#65292;人口最多的加利福尼亚州&#65292;每1800万人中才能产生一名联邦参议员&#12290;在联邦参议员&#65292;佛蒙特人的代表权是加利福尼亚人的60倍&#65281;在美国&#65292;参议员的权力和影响力可比按人口均分选区产生的联邦众议员大多了&#12290;翻翻美国宪法&#65292;看看美剧就知道了&#12290;\74br /\76\74br /\76        香港只有逐步向平等的选举权迈进也就可以了&#12290;\74br /\76\74br /\76&#12288;&#12288;基于这种认识&#65292;不难推断&#65292;功能界别选举特首提名委员是可以满足香港普选的要求的&#12290;\74br /\76\74br /\76        冒名顶替者死全家&#12290;无此声明即为冒用本人名义&#12290;', 'timestamp': '1412569408876', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412569408876#c297631034027932801', 'author': {'name': '忠党爱国', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-296148406'}, {'id': '269291315329484185', 'parentId': '7548320488805581940', 'body': '香港人手上的籌碼太多了   不怕兵    兵才怕香港    ', 'timestamp': '1412569519991', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412569519991#c269291315329484185', 'author': {'name': '匿名', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-1552328928'}, {'id': '3511385140081828843', 'parentId': '643183668057347849', 'body': '五毛有个特征就是不停地逗别人说话&#12290;这次咱们帮他赚狠了&#12290;', 'timestamp': '1412569532109', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412569532109#c3511385140081828843', 'author': {'name': '智多星张召忠', 'avatarUrl': 'http://img2.blogblog.com/img/b16-rounded.gif', 'profileUrl': 'http://www.blogger.com/profile/03115260414378289671'}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-1326311143'}, {'id': '7963913988983323843', 'parentId': '8743553555475171925', 'body': '抱歉&#65292;老毛病&#65292;自己的问题自己解答&#12290;有人补充也欢迎&#65292;帮助读者解决思维的混乱功德无量&#12290;', 'timestamp': '1412569725548', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412569725548#c7963913988983323843', 'author': {'name': '智多星张召忠', 'avatarUrl': 'http://img2.blogblog.com/img/b16-rounded.gif', 'profileUrl': 'http://www.blogger.com/profile/03115260414378289671'}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-1326311143'}, {'id': '5656899222426675351', 'parentId': '685813205870695410', 'body': '这个点子确实蛮好&#12290;我之前也有类似的想法&#65292;但觉得马英九这个软蛋很可能会拒绝&#65292;之后仔细一想&#65292;觉得还是有意义的&#65292;也具有可行性&#12290;\74br /\76首先香港和平集会民众&#12304;自发&#12305;举起青天白日满地红小旗&#12289;挂上孙中山像&#65292;注意&#12304;去中心化&#12305;&#65292;不要让集会领导人发起&#65292;否则容易共匪以&#8220;煽颠&#8221;之类罪名的抓捕&#12290;港台联动&#65292;台湾民众可以在台湾支持香港&#65292;像马英九施压&#65292;也可以到香港来参与集会&#12290;\74br /\76这有什么意义咧&#65311;\74br /\76&#12298;影响力&#12299;里提到有个类似与谈判技巧的东西&#12290;你要真普选&#65292;共匪就只给你假普选&#65307;你要加入中华民国&#65292;共匪就慌了&#65306;还是留在这吧&#65292;给你真普选&#12290;\74br /\76马英九如果想跪发表声明&#65292;拒绝香港加入咋办咧&#65311;那马必定民心尽失&#65292;下界大选国民党基本没戏&#65292;对共匪势力是承重打击&#12290;\74br /\76如果共匪出动坦克咋办咧&#65311;我觉得概率极小&#12290;因为现在不像25年前&#65292;共匪当时光脚不怕穿鞋&#65292;现在要顾及贪官太子党在香港&#12289;在西方的财产/利益&#65292;而且国际制裁还会使国内经济大衰退&#65292;危及政权&#12290;万一真的镇压了&#65292;不用硬碰硬&#65292;学习上次催泪弹清场的经验&#65292;你来我就走&#65292;你走我又来&#12290;\74br /\76所以如按照我说的做&#65292;我觉得这个点子是有意义的&#65292;也具有可行性&#12290;', 'timestamp': '1412569903798', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412569903798#c5656899222426675351', 'author': {'name': 'get freedom', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-1137364464'}, {'id': '586422352586308912', 'body': '楼主,你思博客更新太慢了,每天都进来看一下,可是没什么新内容,你挖的那么多坑也都不填了?俺要表示抗议了!', 'timestamp': '1412570472692', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412570472692#c586422352586308912', 'author': {'name': '匿名', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-405643341'}, {'id': '1233610969422341068', 'parentId': '2982004728497193318', 'body': 'TO 终党碍国\74br /\76被驳倒&#12289;揭穿后仍然来回复&#65292;很罕见啊&#65292;看来共匪是下了血本&#65292;可惜我们纳税人的钱又要少啰\74br /\76&#8220;不要把我党想象的过于强大&#8221;&#65292;开始谦虚&#12289;卖萌了&#65311;\74br /\76其实你党妈没有多强大&#65292;关键是没有底线&#12290;在香港搞红色恐怖&#65292;暴打&#12289;暗杀新闻人士&#65292;杀一儆百&#65292;你怎么保证你党妈以后不会用各种手段使那20万人听话&#12290;况且功能界别在各行业分布比例也是你党妈说了算&#65292;现在很明显有利于共匪的比例就定得高&#12290;简直是变相的人大代表&#65292;你当香港人傻子&#65311;\74br /\76以前英国是殖民者&#65292;用英国当年的做法来证明其合理合法是什么意思&#65311;你在侮辱党国啊&#65292;小心要你下岗&#65281;\74br /\76美国参议院wiki:\74br /\76https://zh.wikipedia.org/zh-cn/%E7%BE%8E%E5%9B%BD%E5%8F%82%E8%AE%AE%E9%99%A2\74br /\76你还敢扯美国&#65292;上次你说美国大法官是太上皇&#65292;被我驳得哑口无言&#12290;联邦参议员每个州有且只有两位&#65292;宪法这样设计的目的是防止人多的州对人少的州暴政&#65292;这个人数规定容易执行容易监督&#12290;反观共匪定的比例&#65292;操作空间很大&#65292;无法监督&#12290;你敢不敢把比例的依据写出来&#65311;以证明你党妈的公正', 'timestamp': '1412573415912', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412573415912#c1233610969422341068', 'author': {'name': 'get freedom', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-1704181520'}, {'id': '1469224907828191520', 'parentId': '327591113823258896', 'body': '1&#12289;占中支持者有争取民主普选的权利&#65292;这种权利不因为多数人不主张而消失&#12290;\74br /\0762&#12289;占中早就说明&#65292;是在法律框架下无法主张合理权利&#65288;在提名委员会中无代表&#65289;时&#65292;采用低限度违法手段的抗议&#65292;所以占中确实是非法的&#12290;\74br /\0763&#12289;即使占中是违法的&#65292;自有执法者处理&#65292;居民没有执法权&#65288;正当防卫有严格的条件&#65289;&#12290;', 'timestamp': '1412574201231', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412574201231#c1469224907828191520', 'author': {'name': 'zhudong', 'avatarUrl': 'http://img2.blogblog.com/img/b16-rounded.gif', 'profileUrl': 'http://www.blogger.com/profile/02356018146117023234'}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-172031764'}, {'id': '478760816302286685', 'parentId': '2982004728497193318', 'body': 'TO 编程随想\74br /\76博主您博客首页上的Google+转发功能不见了&#65292;还是加上为好&#65292;方便大伙儿通过Google+转发支持您&#12290;', 'timestamp': '1412575648974', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412575648974#c478760816302286685', 'author': {'name': '枫之落叶', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': 'https://blog.shiniv.com/'}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-1390112264'}, {'id': '2323084154829708496', 'parentId': '2982004728497193318', 'body': 'TO 编程随想\74br /\76现在&#65292;只有进到博客内页才能看到Google+转发的按钮', 'timestamp': '1412575782029', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412575782029#c2323084154829708496', 'author': {'name': '枫之落叶', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': 'https://blog.shiniv.com/'}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-1390112264'}, {'id': '8539447329227805769', 'body': '楼主你好&#12290;作为一名没有独立思考能力的在校大学生&#12290;我来说一下我所看到的&#12290;\74br /\76首先是微博方面&#65292;关键词被屏蔽&#12290;搜索关键词&#8220;香港&#8221;可以看到&#65292;主流宣传媒体主要是几个论调&#12290;一方面说有海外势力煽动&#65292;一方面说这是非法集会&#65292;一方面片面介绍1200人选举制的伟光正&#65292;比较奇葩的论点是说香港经济不行了所以才闹的&#65292;绝口不提香港人的诉求&#12290;评论是一片一片的刷各种谩骂&#12290;&#65288;此时&#65292;我感到不适&#65289;\74br /\76&#65288;事实上也有其他声音&#65292;比如有个微博讲的是怎样可以在网站发送支持信息投放到集会广场的留言板的&#12290;但是我关注了几个&#65292;发现这些声音迅速被删掉了&#65289;\74br /\76然后在其他网站&#65292;我找不到一个可以正常探讨这件事的网站&#12290;各大论坛删帖避难&#65292;连知乎都把相关帖子删了&#12290;\74br /\76\74br /\76有几件事让我感到恐惧&#65306;\74br /\76一是只允许主流媒体发生&#65292;禁止普通人开口说话&#12290;只允许一种声音&#65292;禁止不同声音&#65288;有不同声音就直接被喷是汉奸走狗美分公知&#65289;&#12290;\74br /\76Instagram被大陆方面墙了&#12290;很让人恐惧的是&#65292;我在上面看到同样的喷子&#65288;和微博喷子一个品种&#65289;&#65292;在用谩骂和侮辱性言辞煽动港陆双方的仇恨&#12290;我很难理解这种憎恨的来源&#12290;\74br /\76\74br /\76我用评论和部分和喷子对喷的港人沟通&#12290;\74br /\76我告诉他们我不明真相&#65292;但是我不愿被代表&#65292;中国人不止一种声音&#65292;同样有人&#65288;比如我&#65289;不愿表态但愿意保持关注&#65292;同时我告诉他们要保重&#65292;自己小心&#65292;因为我对政府不报期望&#12290;\74br /\76他们表示能多些我这样的理性旁观者就是对他们的最大帮助了&#12290;\74br /\76\74br /\76我希望楼主能收集下国内报道&#65292;用双方言论做个对比&#65292;可以让人更清晰的看到&#65292;真相究竟是什么&#12290;', 'timestamp': '1412575972051', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412575972051#c8539447329227805769', 'author': {'name': '爱国', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-1016898236'}, {'id': '8452915924323641680', 'body': '这TM是没钱开房了吗&#65292;跟政府耍流氓来了&#65281;看看现在的学生多有出息&#12290;', 'timestamp': '1412576232157', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412576232157#c8452915924323641680', 'author': {'name': '匿名', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-271149971'}, {'id': '9073896501835613797', 'body': '没钱开房跟政府要啊&#65292;耍流氓可是要进监狱的&#12290;目无法制的一帮狗杂种&#65292;妨碍别人赚钱&#12290;', 'timestamp': '1412576388361', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412576388361#c9073896501835613797', 'author': {'name': '匿名', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-271149971'}, {'id': '4572978212352959035', 'parentId': '586422352586308912', 'body': '每天都进来看一下&#65311;不知值有种东西叫RSS订阅&#65311;右上角也有邮件订阅&#12290;\74br /\76如果你是老读者&#65292;博主多次说他时间有限你不知道&#65311;\74br /\76这么一分析&#65292;我只能对你说呵呵了\74br /\076', 'timestamp': '1412577284277', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412577284277#c4572978212352959035', 'author': {'name': 'get freedom', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-2107778372'}, {'id': '2069569935076718670', 'body': '任何国家的法律都不允许公民做与政府敌对的活动&#65292;社会稳定才是经济发展的大前提&#12290;如果追求民主让社会安定变得不可控&#65292;我支持政府采用武力&#12290;', 'timestamp': '1412577462034', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412577462034#c2069569935076718670', 'author': {'name': '匿名', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-271149971'}, {'id': '7538552317333973237', 'body': '香港是天朝权贵洗钱的大本营&#65292;光一个徐才厚在香港就被爆出上百亿&#65292;特首不听话&#65292;这帮家伙的内裤都要掉了&#65292;', 'timestamp': '1412577522382', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412577522382#c7538552317333973237', 'author': {'name': '匿名', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-1360193300'}, {'id': '2611680588655890944', 'parentId': '2069569935076718670', 'body': '社会稳定&#65311;让贪官稳定地洗钱&#12289;稳定地吃特供&#12289;稳定地享特权&#8230;&#8230;\74br /\76经济发展&#65311;贫富差距越来越大&#65292;毒空气&#12289;毒土地&#12289;毒食品&#8230;&#8230;\74br /\76\74br /\76当法律失去公正, 则反抗成为义务&#12290;\74br /\76When injustice becomes law, resistance becomes duty. &#8212;&#8212;美国国父 托马斯&#183;杰斐逊', 'timestamp': '1412579704503', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412579704503#c2611680588655890944', 'author': {'name': 'get freedom', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-1595957855'}, {'id': '887625809132064933', 'body': ' 40102', 'timestamp': '1412579735671', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412579735671#c887625809132064933', 'author': {'name': '匿名', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-280416553'}, {'id': '5411408777421441758', 'parentId': '2069569935076718670', 'body': '&#8220;任何国家的法律都不允许公民做与政府敌对的活动&#8221;\74br /\76这句话就是天大的谎言&#65292;民主国家反对党几乎天天跟政府为敌&#65292;揪政府小辫子&#12290;', 'timestamp': '1412584921758', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412584921758#c5411408777421441758', 'author': {'name': '本评论注定被吃', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-767162141'}, {'id': '6643079093158474359', 'body': '何清涟: 图穷匕首现&#65306;&#8220;一国两制&#8221;接近终结\74br /\76.\74br /\07605.10.2014 17:04\74br /\76\74br /\07610月3日之后&#65292;北京一直在为解决占中问题营造&#8220;台阶&#8221;&#65292;这个台阶既让外界看到中共不惜一切代价维护专制极权的决心&#65292;也可以帮助港府尽解决占中问题&#65292;但结果是失去香港民心&#65292;暴露了中国政府行为黑社会化的本相&#12290;\74br /\76\74br /\76*北京搭建&#8220;台阶&#8221;的构件是什么&#65311;*\74br /\76\74br /\76由于北京的处置措施及官媒杀气外露的宣传&#65292;不少外媒认为&#65292;&#8220;令人想起25年前天安门事件&#12290;&#8221;\74br /\76\74br /\76与25年前动用军队武力清场不同&#65292;此刻中共搭建的这个&#8220;台阶&#8221;充分显示了北京在诈术方面的&#8220;进步&#8221;&#65306;洒钱购买&#8220;营造&#8221;民意&#65307;颠倒黑白的宣传攻势&#65307;港警通过有选择的执法纵容反占中者暴力&#65288;包括对女生进行性骚扰&#65289;&#65307;造谣以图瓦解占中者斗志&#65288;让一名协警冒充学生与警方握手表示警民合作并将撤退&#65289;&#65292;&#8230;&#8230;总之&#65292;除伤害生命的杀伤力之外的各种意在逼退占中者的伤害力&#65292;能够想得出来的&#65292;几乎全用上了&#12290;香港&#12298;明报&#12299;公布了一张&#8220;旺角围城&#8221;的图片&#65292;从图片来看&#65292;反占中者对占中者形成了包围之势&#12290;\74br /\76\74br /\76据各种现场报导及消息&#65292;自10月3日开始出现的反占中者当中&#65292;有本港居民&#65292;还有伪装成反占中者的便衣警察&#12289;黑社会成员&#65292;以及大陆临时组织过来的人&#12290;部分认为占中影响其生意的商家也参与其中&#65307;香港亲北京的民建联议员钟嘉敏花钱买人反占中&#65292;也已经被揭露&#12290;蓝丝带行动出钱征集参加者的广告被公布在网上&#12290;\74br /\76\74br /\76香港警察在现场虽然将人潮分隔成两批&#65292;但选择性执法&#65292;对施暴者佯装不见&#65292;在占中者要求下抓住几位&#65292;一离开现场就放掉&#65292;便于其重新入场&#12290;香港&#8220;独立媒体&#8221;网站对此发出质疑&#65306;&#8220;港警是选择性执法&#65292;抑或听命于他人&#65311; &#8221; CNN&#12289;&#12298;华尔街日报&#12299;等西方媒体对香港警方明显偏袒反占中者均有报道&#12290;\74br /\76\74br /\76发动反占中包围占中参与者的目的是一箭双雕&#65292;一是在现场制造混乱&#65292;给港府清场制造借口&#65307;二是迫使示威者不得不撤退&#12290;\74br /\76\74br /\76与25年前的中共用军队屠城相比&#65292;这些阴损手段确实比出动军队镇压高明且不留痕迹&#65292;比如香港警方就不承认自己偏袒&#65292;冒充学生代表的警察被抓住&#65292;立刻说自己是协警&#65292;正准备不干了&#12290;\74br /\76\74br /\76二是开始在全球中文媒体上开始反占中宣传&#12290;自9月28日至10月3日&#65292;北京封杀国内任何关于和平占中的消息&#65307;10月3日&#65292;当局暗中引导策划的反占中行动到位之后&#65292;北京开始玩起谎言中夹杂着部分真实的宣传游戏&#65306;中国媒体及社交平台解禁&#8220;占中&#8221; &#65292;腾讯手机版首页就是&#12298;人民日报&#12299;当天发布的&#12298;为香港政府守护法治点赞&#12299;及新华社的&#12298;梁振英呼吁市民不应使用暴力&#12299;&#12290;这两篇文章隐去了反占中者是当局暗中布局引导的真相&#65292;将暴力行为说成是占中运动引发&#12290;这种宣传手法为&#8220;黑白颠倒&#8221;这个成语做了最生动的诠释&#12290;\74br /\76\74br /\76多年以来中共投入巨资的大外宣终于派上用场&#12290;据中国官媒国际在线报道&#65292;&#8220;10月3日上午&#65292;一篇名为&#12298;百家海外华文媒体保卫香港宣言&#12299;的文章出现在多家海外华文媒体网站的显著位置&#65292;并迅速被国内的各大网站转载&#8221;&#12290;据我查对&#65292;在这篇宣言上联署的142家海外华文传媒&#65292;其中有不少是多次参加北京官方举办的&#8220;世界华文传媒论坛&#8221; 以及&#8220;海外华文媒体高级研修班&#8221;的座上宾&#12290;这次算是&#8220;养兵千日&#65292;用在一时&#8221;&#65292;以&#8220;国际媒体&#8221;身份帮了北京一把&#12290;\74br /\76\74br /\76与25年前天安门事件发生时相比&#65292;中共这次应对香港占中的措施丰富得多&#12290;1989年&#65292;北京能够控制的媒体仅仅只限于国内&#65292;即使如此&#65292;&#12298;人民日报&#12299;&#12289;CCTV也曾有过几天的短暂&#8220;起义&#8221; &#65307;中共在香港的喉舌媒体&#12298;文汇报&#12299;亦于屠杀次日留白以示哀悼与抗议&#65292;海外华文媒体几乎全都与外媒一致&#65292;对北京的屠城表示谴责&#12290;这一次却通过多心苦心经营的大外宣在中文媒体世界为自身营造出&#8220;得道多助&#8221;的假相&#12290;\74br /\76\74br /\76*&#8220;一国两制&#8221;牌坊终于倒塌*\74br /\76\74br /\76香港占中者此刻还在坚持苦守&#65292;无论今后几天内是被迫撤退还是被武力清场&#65292;从道义上来说&#65292;北京是笃定的输家&#12290;\74br /\76\74br /\76第一&#65292;中共政府信用彻底崩塌&#12290;国内民众对政府的信任度早就降至低点&#65292;&#12298;人民论坛&#12299;今年9月中旬公布的&#12298;当代社会病态调查&#12299;已充分证实这一点&#65292;当被问及&#8220;习惯性怀疑&#8221;的表现时&#65292;&#8220;政府说什么都不信&#8221;的人占受调查者的41.2%&#12290;香港人民之所以发起占中&#65292;是对北京当年许诺的&#8220;一国两制&#8221;及&#8220;50年不变&#8221;还抱有最后一点信任&#12290;这次北京及港府在处理占中事件过程中&#65292;大至对&#12298;基本法&#12299;的态度&#65292;小至港府处理占中事件中的变幻无常及营造反占中民意的阴损方式&#65292;让世界非常清楚地看到&#65292;中共对所谓承诺&#65288;包括&#12298;基本法&#12299;&#65289;并无遵守诚意&#65292;完全根据自己的利益决定取舍&#12290;\74br /\76\74br /\76第二&#12289;北京对港台政策彻底失败&#12290;自从香港九七回归以来&#65292;由于北京的种种渗透&#65288;有人将这些渗透总结为&#12298;中共殖民香港十六步曲&#12299;&#65289;&#65292;港人一直担心&#8220;一国两制&#8221;会陷入名不符实的境地&#12290;这次港府对占中的处理方式&#65292;实际上是否定了&#12298;基本法&#12299;对港人政治权利的授权&#12290;当年&#65292;中国政府曾承诺香港的政治发展要按国际标准&#65292;并在&#12298;基本法&#12299;中规定&#12298;公民权利和政治权利国际公约&#12299;在香港适用&#12290;一部据称按照中国宪法精神制订的&#12298;基本法&#12299;在权力的意志下如此脆弱&#65292;香港人从港英时期就拥有的集会自由终将不保&#12290;人大通过的普选方案将普选变成了&#8220;北京指定候选人&#65292;香港人举手通过&#8221;的骗人把戏&#65292;事实上也否定了&#12298;基本法&#12299;中对普选的承诺&#12290;不管网上盛传的张德江关于要取消&#8220;一国两制&#8221;的威胁是否真实&#65292;&#8220;一国两制&#8221;这块用于安抚港人&#12289;争取台湾人的牌坊已经崩塌&#12290;\74br /\76\74br /\76台湾将以香港现状为戒&#65292;拒绝接受&#8220;一国两制&#8221;&#12290;即使是促统的国民党及马英九&#65292;鉴于选票流失的考虑&#65292;也会暂缓推进统一的步伐&#12290;但中共在台湾面临的情况与香港一样&#65306;80年代后半期及90后出生的台湾青年&#65292;对北京心存戒惧&#65292;他们行将成为社会主流&#12290;\74br /\76\74br /\76第三&#65292;证明期待习近平政改只是一场春梦&#12290;不少人认为只要给习近平足够的时间&#65292;待条件成熟&#65292;习将推行政治体制改革&#12290;此次北京对香港占中事件的态度与行动&#65292;充分证明这种期待只是一个五彩斑斓的肥皂泡而已&#12290;香港民主化早已是&#8220;万事俱备&#65292;只欠东风&#8221;&#65292;所谓&#8220;万事俱备&#8221;指的是香港公民社会充分发育&#65292;诸如经济发达&#12289;法治完备&#12289;言论自由&#12289;行政高效等所有实行民主制度的基础条件都已具备&#65307;&#8220;只欠东风&#8221;&#65292;指的是香港人的政治自决权即普选权&#12290;一个条件成熟的地区硬是被中共用暴力拦阻在民主化的门外&#65307;已经民主化的台湾&#65292;北京还时刻想将其拉回到&#8220;一国两制&#8221;的框架里来&#12290;这种情况下&#65292;坚持认为习近平将会进行以民主化为目标的政治体制改革&#65292;只能说是自欺欺人&#12290;\74br /\76\74br /\76香港10月3日以来发生之事&#65292;对本人来说&#65292;只是再次证实了我在2003年的分析&#12290;那一年&#65292;我在&#12298;威权统治下的中国现状及前景&#12299;中预测&#65306;中国已经出现失败国家的三大症状&#65306;公共权力私人化&#12289;政府行为黑社会化&#12289;政治暴力合法化&#12290;一个这样的政权&#65292;做事无底线&#65292;承诺无信用&#65292;只相信&#8220;强权即真理&#8221;的丛林原则&#12290;一个国家由这样的政权统治&#65292;就进入漫长的&#8220;溃而不崩&#8221;之状态&#65292;在这个漫长的过程中&#65292;绝大多数社会成员备受煎熬&#12290;\74br /\76\74br /\76中国已经出现失败国家的三大症状&#65306;公共权力私人化&#12289;政府行为黑社会化&#12289;政治暴力合法化&#12290;一个这样的政权&#65292;做事无底线&#65292;承诺无信用&#65292;只相信&#8220;强权即真理&#8221;的丛林原则&#12290;一个国家由这样的政权统治&#65292;就进入漫长的&#8220;溃而不崩&#8221;之状态&#65292;在这个漫长的过程中&#65292;绝大多数社会成员备受煎熬&#8212;&#8212;看到这段时&#65292;我心里有种莫名的恐惧&#65292;生在这个时代真是一种悲哀&#12290;大家快快觉醒起来抗争吧\74br /\76\74br /\76\74br /\076', 'timestamp': '1412584954090', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412584954090#c6643079093158474359', 'author': {'name': '匿名', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-2029986131'}, {'id': '6347461197161835420', 'body': '关于所谓的香港人互相辱骂占中人士怎么看&#65311;还有各国发出的声明是否如实&#65311;', 'timestamp': '1412585974136', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412585974136#c6347461197161835420', 'author': {'name': '王仁坤', 'avatarUrl': '//lh4.googleusercontent.com/-xZeabTvfT0I/AAAAAAAAAAI/AAAAAAAAACE/QYZq0nfkUTc/s512-c/photo.jpg', 'profileUrl': 'http://www.blogger.com/profile/14768821484301530184'}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-1115265057'}, {'id': '7935824831445520418', 'parentId': '2069569935076718670', 'body': '你可以看看美国对待示威者的态度&#65292;你好好看看人家是怎么做的&#65292;不是让你记住人家是怎么说的&#12290;', 'timestamp': '1412586119790', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412586119790#c7935824831445520418', 'author': {'name': '匿名', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-271149971'}, {'id': '1015627653208547632', 'parentId': '2069569935076718670', 'body': '你想反对中国政府你会有100个理由\74br /\76你想反对美国政府你也有100个理由\74br /\76当然你想诉诸暴力&#65292;一个理由就让你失道寡助&#65292;那就是和平&#12290;', 'timestamp': '1412586773749', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412586773749#c1015627653208547632', 'author': {'name': '匿名', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-271149971'}, {'id': '5427244467454911771', 'parentId': '2069569935076718670', 'body': '得&#65292;现在和平这个词又被拖出来了&#12290;稳定压倒一切看来又过时了&#12290;', 'timestamp': '1412587349565', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412587349565#c5427244467454911771', 'author': {'name': '匿名', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-1405451381'}, {'id': '1384804884740047881', 'body': '编程兄&#65292;我发现只要你发这些打朝廷脸的文章&#65292;墙内的网评员就会不辞劳苦地来捧场&#12290;你发技术类的文章的时候&#65292;那些网评员同志们就都不出来了&#12290;而且&#65292;最近这些网评员好像接受了专业培训&#65292;说话一套一套的&#12290;', 'timestamp': '1412587503959', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412587503959#c1384804884740047881', 'author': {'name': 'freedom fighter', 'avatarUrl': 'http://img2.blogblog.com/img/b16-rounded.gif', 'profileUrl': 'http://www.blogger.com/profile/09464447201466541182'}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-2121835603'}, {'id': '9020436200920976606', 'parentId': '2069569935076718670', 'body': '现状是和平占中被黑社会暴力对待&#12290;呵呵', 'timestamp': '1412588390137', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412588390137#c9020436200920976606', 'author': {'name': '本评论注定被吃', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-1191349293'}, {'id': '6418030476708678782', 'body': '编程兄&#65292;怎样才能更好的让墙内的网民能看到更多的实情&#65311;比如把你的帖子转发到微薄威信呢&#65311;由于我用的是智能ABC&#65292;最原始的那个输入法&#65292;错别字多&#12290;还有我也是程序员&#65292;突然发现让更多的程序员的政治觉悟高也很好&#12290;', 'timestamp': '1412594500624', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412594500624#c6418030476708678782', 'author': {'name': '把脉中国', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-2067242772'}, {'id': '1535994638227359803', 'parentId': '2516063866240437507', 'body': '我昨天想通过TOR进行新郎微薄注册&#65292;可惜必须用手机或者油箱&#65292;但是申请GOOGLE的邮箱还要自己的手机或者国内的油箱&#65292;这点感觉很不安全&#65292;尤其手机注册&#65292;很容易被定位&#65292;害得我没有注册成功&#65292;大家有哪些经验分享一下&#65292;这样好能在墙内安全的发信息了&#12290;', 'timestamp': '1412594812700', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412594812700#c1535994638227359803', 'author': {'name': '把脉中国', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-184165420'}, {'id': '6261337440005279008', 'parentId': '2516063866240437507', 'body': 'TO FLAT4,\74br /\76If you can\46#39;t register Gmail account, then have a look at\74br /\76https://prism-break.org/en/categories/gnu-linux/#email-accounts\74br /\76http://prxbx.com/email/', 'timestamp': '1412596281422', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412596281422#c6261337440005279008', 'author': {'name': 'v998', 'avatarUrl': 'http://img2.blogblog.com/img/b16-rounded.gif', 'profileUrl': 'http://www.blogger.com/profile/08853123019167798224'}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-1429061783'}, {'id': '1014060443673709689', 'body': '大陆翻墙狗默默支持', 'timestamp': '1412597584306', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412597584306#c1014060443673709689', 'author': {'name': 'Jet Tsui', 'avatarUrl': '//lh5.googleusercontent.com/-mj5R-ZdTsaU/AAAAAAAAAAI/AAAAAAAAACk/8S2C0KOJST0/s512-c/photo.jpg', 'profileUrl': 'http://www.blogger.com/profile/06447895379186154207'}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-1624383704'}, {'id': '5636864045025687062', 'parentId': '2516063866240437507', 'body': '我前段时间注册google帐号&#65292;用tor固定美国的出口&#65292;上textnow.com搞一个美国的虚拟号码&#65292;选人口少\74br /\76的州&#65288;不行的话可以多试几个州&#65289;&#65292;在google用这个号码进行&#12304;语音&#12305;验证&#65292;然后在textnow.com就会收到一段语音留言&#65292;填上语音里的验证码就OK了&#12290;不知现在这个方法行吗&#65292;你可以试试看&#12290;\74br /\76在微博微信分享可以把整篇博文转成图片&#12290;\74br /\76另外还有网友搞的免翻墙镜像&#65306;\74br /\76https://github.com/xl2014/suixiang\74br /\76以上镜像单独分享某篇博文也是行的', 'timestamp': '1412599180343', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412599180343#c5636864045025687062', 'author': {'name': 'get freedom', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-448972523'}, {'id': '3447869059358809839', 'parentId': '2069569935076718670', 'body': '共匪夺权时你不讲和平&#65292;用坦克镇压手无寸铁的市民时你不讲和平&#65292;现在共匪用催泪弹对付雨伞+口罩&#65292;你来讲和平&#65311;&#65281;', 'timestamp': '1412600611637', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412600611637#c3447869059358809839', 'author': {'name': 'get freedom', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-442293612'}, {'id': '3291512968466296709', 'parentId': '6418030476708678782', 'body': '我在21楼回复了你关于无法匿名注册google帐号的问题&#12290;\74br /\762014/10/weekly-share-74.md?comment\0751412599180343\74br /\76如何转发博文也有给出我的建议&#65292;供参考&#12290;', 'timestamp': '1412601013625', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412601013625#c3291512968466296709', 'author': {'name': 'get freedom', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-1965884336'}, {'id': '2279889075805036088', 'parentId': '9073896501835613797', 'body': '耍流氓\74br /\76中共搞一党独裁专制&#65292;不给民众真正的民主选举权利&#65292;以至政府官员拥有不受任何监督的绝对权力&#65292;从而形成家族世袭&#65292;裙带提携&#65292;卖官鬻职&#65292;贿赂公行&#65292;强征地&#65292;强折迁&#65292;鱼肉百姓&#12290;犯下此类祸国害民之事&#65292;却不许百姓批评政府&#65292;动辄便是什么&#8220;煽动颠覆&#8221;&#12289;&#8220;寻衅滋事&#8221;打击迫害敢于批评政府和官员的人&#65292;甚至要求官员公示财产也有&#8220;罪&#8221;而获刑&#12290;诸如此类&#65292;你们在做&#65292;地球人在看&#12290;', 'timestamp': '1412601630969', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412601630969#c2279889075805036088', 'author': {'name': '匿名', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-91145962'}, {'id': '6937437146710554043', 'parentId': '2516063866240437507', 'body': 'TO get freedom\74br /\76语音验证应该要装个麦克风或耳机吧&#65311;之前用textnow硬是接收不到谷歌的短信验证&#65292;语音验证能行吗&#65311;', 'timestamp': '1412602990266', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412602990266#c6937437146710554043', 'author': {'name': '匿名', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-438163549'}, {'id': '5312011375489810683', 'body': 'to 博主\74br /\76你们少谈些&#8220;虚&#8221;的&#65292;多务实一点&#12290;解决当下的问题才是关键吧&#12290;\74br /\76比如对&#8220;香港政治制度&#8221;有什么好一点的意见或建议啦&#65292;香港今后的路该如何走&#65292;如何才能以非暴力的方式与中央政府达成一致意见&#65292;等等&#12290;很多当下让人觉得很迷茫的细节问题等着你们去回答&#65292;去解决&#12290;所以&#65292;除了让大众了解真相之外&#65292;更要紧的是解决方案&#12290;我想&#65292;这也是编程人员的强项吧&#12290;', 'timestamp': '1412603262490', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412603262490#c5312011375489810683', 'author': {'name': '匿名', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-1390112264'}, {'id': '4938706111347120743', 'body': '[url\75https://zh-tw.facebook.com/notes/kai-chi-leung-%E6%A2%81%E5%95%9F%E6%99%BA/%E9%A6%99%E6%B8%AF%E6%80%8E%E9%BA%BC%E4%BA%86-%E4%B9%8B-%E7%AC%AC%E4%BA%8C%E9%9B%8618%E5%95%8F-%E6%AD%A1%E8%BF%8E%E5%BB%A3%E5%82%B3/742428495794489]香港怎麼了 之 第二集18問 - 歡迎廣傳[/url]\74br /\76Kai Chi Leung 梁啟智&#65306;自從寫了&#12298;香港問題答客問&#12299;之後&#65292;香港局勢急速改變&#65292;特此編寫第二集作補充&#12290;本集主要討論當前運動的一些問題&#65292;如果對選舉委員會和香港歷史等基礎概念不理解的可以先看第一集&#12290;\74br /\76\74br /\76 題一&#65306;香港現在怎麼了&#65311;佔領中環了嗎&#65311; \74br /\76 答&#65306;過去一星期&#65292;香港出現了前所未見的大型公民運動以和平方式爭取民主&#65292;每晚也有數以萬計的市民在金鐘&#12289;銅鑼灣和旺角聚集&#65292;高喊&#12300;支持學生&#12289;保護學生&#12301;等口號&#12290;他們相信只有確保在各處街頭聚集的學生不被趕走&#65292;才能夠促使政府面對學生的民主訴求&#12290;\74br /\76\74br /\76總的來說&#65292;有兩件事情使得民意急速升溫&#12290;9月28日早上&#65292;學生本來在政府總部和平集會&#65292;警察卻把通往政府總部的通道封死&#65292;不許支持的市民和學生會合&#12290;如黃河治水一樣&#65292;當警察只堵塞而不疏導&#65292;聚集的市民便越來越多&#65292;結果警察再擋不往&#65292;市民也就統統坐在政府總部外面的公路上了&#12290;警察為了驅逐他們以及在附近各處聚集的市民&#65292;一個晚上發射了87枚催淚彈&#65292;但是催淚彈越多市民卻越反感&#65292;前來的市民就更多&#65292;最後警察無功而回&#65292;支持的市民全面進佔政府總部一帶的道路&#12290;與此同時&#65292;警察向高舉雙手的市民發射催淚彈的新聞畫面引發了更多市民的反感&#65292;各方一湧而上&#12290;到了9月28日的晚上&#65292;銅鑼灣和旺角的主要街道也被支持的市民進佔&#12290;往後的數天時間&#65292;三處地點二十四小時也有支持學生的市民聚集&#65292;他們自發設立了臨時的物資站向有需要的市民派發食水&#65292;醫學生設立了臨時的救援站作醫療支援&#65292;大學教授設立了流動講堂和學生討論社會問題等等&#65292;各處秩序井然&#12290;(詳見張潔平&#65306;佔領香港筆記&#9472;&#9472;從廣場到馬路的72小時突變)\74br /\76\74br /\76可惜到了10月3日下午&#65292;三處地點忽然出現暴徒毆打支持學生的市民&#65292;公然非禮女學生&#65292;強拆物資站和救援站&#12290;更不幸的&#65292;是當時警方對此沒有嚴正執法保護學生&#65292;也發生了暴徒毆打記者卻沒有被捕的事件&#12290;香港是法治社會&#65292;無論你是支持或者反對政府&#65292;法律面前人人平等&#65292;一律受到保護&#12290;香港市民一向十分信任香港警察&#65292;這次事件使得很多中立的市民也轉為同情學生&#65292;使整場運動又推向另一個峰口&#12290;\74br /\76\74br /\76事情發展至此&#65292;已遠遠超越原來的&#12300;佔領中環&#12301;運動&#12290;事實上&#65292;三個主要的聚集地點也不在中環&#65292;而且民意已經因為上述事件而沸騰&#65292;即使&#12300;佔領中環&#12301;的領袖也不能要求支持的市民立即回家&#12290;事情要和平解決&#65292;現在只可能靠政府的積極回應&#12290;\74br /\76\74br /\76&#8230;&#8230;\74br /\76&#8230;&#8230;\74br /\76&#8230;&#8230;\74br /\76\74br /\76問題十五&#65306;外國的國家元首和地方政府元首不是同一個黨&#65292;但都一定是愛國的&#65292;香港沒有這個條件啊&#12290;\74br /\76 \74br /\76\74br /\76答&#65306;外國選舉並沒有機制檢查候選人是否愛國的&#65292;也不見得現在提出的1200人提名委員會能夠檢查香港行政長官的參選人是否愛國&#12290;這1200人之所以能夠成為委員&#65292;主要是因為他們都是香港的資本家代表&#65292;當中有不少人持有多於一本護照&#12290;由他們去審查別人是否愛國&#65292;本身就是一件很滑稽的事情&#12290;\74br /\76\74br /\76 \74br /\76此外&#65292;&#12298;基本法&#12299;規定香港行政長官要對中央人民政府負責&#65292;如果有行政長官當選後做出任何明確不利於中央政府的事情&#65292;可以啟動彈劾程序&#65292;一切本來已有制度可隨&#65292;不用那1200人多設一舉&#12290;\74br /\76\74br /\76\74br /\76問題十六&#65306;中央政府對香港照顧有加的&#65292;為什麼香港人就是這麼不聽話&#65311;\74br /\76\74br /\76 \74br /\76答&#65306;香港人沒有不聽話&#65292;香港人只是要求&#12298;基本法&#12299;本來就答應過香港人有的東西&#12290;例如&#12298;基本法&#12299;附件二列明了立法會的選舉改革是香港的本地事務&#65292;但人大常委卻不止一次對此提出限制&#65292;這些法理上的矛盾才是引起香港人反感的源頭&#65292;我們不能因為所謂的&#12300;照顧有加&#12301;就不顧法理&#12290;就好像你住的房子給強拆了&#65292;然後居委會和你說別忘記他們每年送你多少東西叫你要懂得感恩&#65292;你大概也會問&#65306;這跟我本來住在這房子的權利有什麼關係啊&#65311;\74br /\76\74br /\76 \74br /\76再者&#65292;不少研究顯示中央政府對香港的所謂政策好處其實都是給資本家的&#65292;一般市民是未見其利先見其害&#65292;例如自遊行的最大得益者其實是房地產開發商&#65292;一般市民反受加租之苦&#65292;&#12300;照顧有加&#12301;這說法對於許多香港人來說只會引來反感&#12290;\74br /\76\74br /\76 \74br /\76最後&#65292;如果因為提供了支援就可以說三道四&#65292;那麼建國以來香港社會各界對中國各方面的支援可真的不少&#65292;無論是建設的投資的救災的&#65292;但中央政府大概不會容許香港人對中央政府的事情說三道四吧&#12290;\74br /\76\74br /\76問題十七&#65306;就讓香港這樣亂下去吧&#65292;上海很快就超過香港的了&#65281;\74br /\76\74br /\76\74br /\76答&#65306;對於很多香港的年青人來說&#65292;他們對於城市之間的競爭不感興趣&#65292;因為他們太明白這些競爭力排名的背後其實是赤裸裸的剝削&#65292;就算所處的城市&#12300;獲勝&#12301;了對他們自身也沒有好處&#12290;學術上對這種城市之間的競爭思維稱之為&#12300;城市企業主義&#12301;&#65292;把城市之間的競爭錯誤理解為企業之間的競爭&#65292;往往是一個把公民變成僱員的騙局&#65292;讓人們把本來該有的權利都自我放棄了&#12290;\74br /\76\74br /\76宏觀一點來說&#65292;信息世代社會發展的最大動力就是多元&#65292;而民主社會鼓勵多元&#65292;非民主社會卻猜忌多元&#12290;要創造出新的東西&#65292;而不是一天到晚抄襲別人的東西&#65292;要有社會制度的保障&#12290;因此&#65292;現在香港的政制爭議&#65292;背後也是一個經濟發展願境的爭議&#12290;換個通俗一點的說法&#65292;電影&#12298;讓子彈飛&#12299;有一句對白是這樣問的&#65306;我是想站著&#65292;還想把錢賺了&#12290;這應是中國每一個人的願望&#12290;\74br /\76\74br /\76\74br /\76問題十八&#65306;你是誰&#65292;你為什麼要寫這些東西&#65311;\74br /\76\74br /\76\74br /\76答&#65306;我是一個香港人&#65292;我拿的是中華人民共和國香港特別行政區的護照&#65292;我沒有外國居留權&#65292;我所做的一切都是誠心誠意為了香港的未來&#12290;我也是一位大學老師&#65292;因為工作的關係每年都會有一到兩個月時間到中國內地各處走&#65292;例如帶學生到北京交流&#65292;或者到西部支援農村建設等等&#12290;大概是因為這些經歷&#65292;我一點兒也不恨中國&#65292;更很想支持國家各方面的發展&#12290;我覺得香港和中國之間有太多的誤解和偏見&#65292;這樣對兩邊的都不好&#65292;而身為讀書人我想我可以做的就是寫一點東西&#12290;\74br /\76\74br /\76最後&#65292;我是一個人&#12290;最近我看到中國內地一些&#12300;把學生殺光再算&#12301;的說法&#65292;太沒人性&#12290;我想如果每個人也能夠多一點的人文關懷&#65292;對國家立足於世上至為重要&#12290;\74br /\76----------\74br /\76\74br /\76媒體和各界朋友&#65292;請不用問我拿版權了&#12290;隨便用&#65292;隨便印&#65292;隨便改&#65292;版權歸公&#65292;不用註明出處&#12290;想派實體版的朋友&#65292;請確保參與運動時的自身安全&#65292;謝謝&#12290;\74br /\76\74br /\76 [url\75https://zh-tw.facebook.com/notes/kai-chi-leung-%E6%A2%81%E5%95%9F%E6%99%BA/%E9%A6%99%E6%B8%AF%E6%80%8E%E9%BA%BC%E4%BA%86-%E4%B9%8B-%E7%AC%AC%E4%BA%8C%E9%9B%8618%E5%95%8F-%E6%AD%A1%E8%BF%8E%E5%BB%A3%E5%82%B3/742428495794489]香港怎麼了 之 第二集18問 - 歡迎廣傳[/url]', 'timestamp': '1412603478086', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412603478086#c4938706111347120743', 'author': {'name': 'get freedom', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-1311858796'}, {'id': '5763023225796031834', 'parentId': '2516063866240437507', 'body': '反正电脑能发出声音就行了&#12290;好像还可以下载下来&#65292;传到手机上听&#65292;没声卡都行了&#65292;哈哈&#12290;textnow会收到一个信息&#65292;有个播放按钮&#12290;自己试试看就知道了&#65292;反正我之前行的&#12290;按照我的方法&#65292;特别注意IP地址&#65292;要有美国IP', 'timestamp': '1412604441352', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412604441352#c5763023225796031834', 'author': {'name': 'get freedom', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-1207700592'}, {'id': '7227631732854255584', 'parentId': '2516063866240437507', 'body': 'TO get freedom\74br /\76你提到用人口少的州&#65292;我怎么知道哪些州人口少啊&#65311;', 'timestamp': '1412604918905', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412604918905#c7227631732854255584', 'author': {'name': '匿名', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-438163549'}, {'id': '6518354699908478009', 'body': '\46quot;少谈些主义 多研究些问题\46quot;,很好&#65281;', 'timestamp': '1412604976955', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412604976955#c6518354699908478009', 'author': {'name': '匿名', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-1325856622'}, {'id': '7927587635333857033', 'parentId': '2516063866240437507', 'body': '现在是什么年代&#65311;google都不用&#65292;还注册google帐号&#65311;\74br /\76google: 美国各州人口排名', 'timestamp': '1412605773403', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412605773403#c7927587635333857033', 'author': {'name': 'get freedom', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-139408477'}, {'id': '6594419536466347922', 'parentId': '5312011375489810683', 'body': '楼主典型的属于&#65306;你跟他讲法律&#65292;他跟你说政策&#65307;你跟他说政策&#65292;他跟你谈民意&#65307;你跟他谈民意&#65292;他跟你讲国情&#65307;你跟他讲国情, 他跟你讲接轨&#65307;你跟他讲接轨&#65292;他跟你讲道理&#65307;你跟他讲道理&#65292;他跟你耍流氓&#65307;你跟他耍流氓&#65292;他跟你讲法律&#12290;', 'timestamp': '1412606049656', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412606049656#c6594419536466347922', 'author': {'name': '匿名', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-807353630'}, {'id': '1405917173790980007', 'parentId': '2069569935076718670', 'body': '任何国家的法律都允许公民做与政府不敌对的活动&#65292;社会稳定是经济发展的大前提&#12290;如果追求专制让社会安定变得可控&#65292;我支持人民采用武力&#12290;', 'timestamp': '1412606839236', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412606839236#c1405917173790980007', 'author': {'name': '终党爱国', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-772881133'}, {'id': '1108544284543555171', 'parentId': '8452915924323641680', 'body': '这TM是没钱开房了吗&#65292;政府跟着耍流氓来了&#65281;看看现在的学生多有出息&#12290;', 'timestamp': '1412607001711', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412607001711#c1108544284543555171', 'author': {'name': '终党爱国', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-772881133'}, {'id': '3783633818687120581', 'body': 'to博主&#65292;看到这条新闻&#65292;香港示威人士开始感到疲惫http://cn.wsj.com/gb/20141006/bch162125.asp, 这也是俺看新闻一直担心的&#65292;不知道游行是否有类似吉恩&#183;夏普所描述的那种非暴力不合作组织者出现&#12290;', 'timestamp': '1412610042313', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412610042313#c3783633818687120581', 'author': {'name': '匿名', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 06, 2014', 'deleteclass': 'item-control blog-admin pid-1950296863'}, {'id': '4279135566512640716', 'body': '香港亲共媒体真他妈多&#65292;几乎全是的&#65292;除了苹果和一些网络独立媒体&#65292;卧槽&#65281;&#65281;&#65281;怎么和兲朝一个德性啊&#65292;果然在关键时刻王八就全暴露了&#65292;还有诸如曾经的宗主国英国的一些政客简直无耻到了极点啊&#65292;有木有&#65292;居然说香港还没到不能忍受的那一步&#65292;还有为共匪洗地的&#65292;卧槽&#65292;这他妈还是人讲的话么&#65292;老子从今以后绝对不会买任何英国货了&#65292;操&#65281;', 'timestamp': '1412613071045', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412613071045#c4279135566512640716', 'author': {'name': '匿名', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 07, 2014', 'deleteclass': 'item-control blog-admin pid-37883822'}, {'id': '2816199134146391481', 'parentId': '643183668057347849', 'body': '我一直都喜欢编程的文章&#65292;觉得编程很多地方写的很对&#65292;我也表示支持&#65292;虽然我没没有留言&#12290;可对于占中这件事情上&#65292;博主会去支持&#65292;让我很不可思议&#12290;我不知道这个占中能带来多大的意义呢&#65311;这是作为我一个旁观者来说&#65292;最起码会搅乱经济&#65292;这是事实&#12290;再有&#65292;博主貌似并不是一个公正的人&#65292;因为在图片上用了大量引导中共不好的词语&#65292;也是让我不解的&#12290;如果博主看到&#65292;请回复&#65292;谢谢&#65281;', 'timestamp': '1412613632722', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412613632722#c2816199134146391481', 'author': {'name': '匿名', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 07, 2014', 'deleteclass': 'item-control blog-admin pid-1253658667'}, {'id': '8179544751796843862', 'body': '我一直都喜欢编程的文章&#65292;觉得编程很多地方写的很对&#65292;我也表示支持&#65292;虽然我没没有留言&#12290;可对于占中这件事情上&#65292;博主会去支持&#65292;让我很不可思议&#12290;我不知道这个占中能带来多大的意义呢&#65311;这是作为我一个旁观者来说&#65292;最起码会搅乱经济&#65292;这是事实&#12290;再有&#65292;博主貌似并不是一个公正的人&#65292;因为在图片上用了大量引导中共不好的词语&#65292;也是让我不解的&#12290;如果博主看到&#65292;请回复&#65292;谢谢&#65281;', 'timestamp': '1412613681886', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412613681886#c8179544751796843862', 'author': {'name': '匿名', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 07, 2014', 'deleteclass': 'item-control blog-admin pid-1253658667'}, {'id': '1944274639561868026', 'body': '1分54秒高级黑&#65292;重现某画面\74br /\76稍有常识的人都会看出 \74br /\76UP主: 陈大陈 http://www.bilibili.com/video/av450166\74br /\76\74br /\76\74br /\076', 'timestamp': '1412616520329', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412616520329#c1944274639561868026', 'author': {'name': 'Liu Yiteng', 'avatarUrl': 'http://img2.blogblog.com/img/b16-rounded.gif', 'profileUrl': 'http://www.blogger.com/profile/11135393746462565830'}, 'displayTime': '十月 07, 2014', 'deleteclass': 'item-control blog-admin pid-1476338144'}, {'id': '6479506850857304684', 'parentId': '1944274639561868026', 'body': '博主&#65292;看来国内政治审查还是有疏漏啊&#65292;喜羊羊和灰太狼居然演出来坦克人', 'timestamp': '1412617476400', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412617476400#c6479506850857304684', 'author': {'name': 'Liu Yiteng', 'avatarUrl': 'http://img2.blogblog.com/img/b16-rounded.gif', 'profileUrl': 'http://www.blogger.com/profile/11135393746462565830'}, 'displayTime': '十月 07, 2014', 'deleteclass': 'item-control blog-admin pid-1476338144'}, {'id': '3936869802837977786', 'parentId': '9073896501835613797', 'body': '说你是五毛会打烂你饭碗吗&#65311;', 'timestamp': '1412623643929', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412623643929#c3936869802837977786', 'author': {'name': '智多星张召忠', 'avatarUrl': 'http://img2.blogblog.com/img/b16-rounded.gif', 'profileUrl': 'http://www.blogger.com/profile/03115260414378289671'}, 'displayTime': '十月 07, 2014', 'deleteclass': 'item-control blog-admin pid-1326311143'}, {'id': '6111605675922543429', 'parentId': '643183668057347849', 'body': 'TO 55单元\74br /\76这招也是老招啦&#12290;前半段假装忠实读者&#65292;然后提出批评&#65292;虽然博主是欢迎批评的&#65292;但是这种批评显然不是一个老读者提出来的&#12290;\74br /\76另外还重复留言&#65292;证据&#65306;\74br /\762014/10/weekly-share-74.md?comment\0751412613681886\74br /\76所以&#65292;你懂的', 'timestamp': '1412640933573', 'permalink': '2014/10/weekly-share-74.md?showComment\0751412640933573#c6111605675922543429', 'author': {'name': 'get freedom', 'avatarUrl': 'http://img1.blogblog.com/img/blank.gif', 'profileUrl': ''}, 'displayTime': '十月 07, 2014', 'deleteclass': 'item-control blog-admin pid-411702495'}];
+      var msgs = {'loadMore': '加载更多...', 'loading': '正在加载...', 'loaded': '没有更多评论页&#65281;', 'addComment': '添加评论', 'reply': '回复', 'delete': '删除'};
+      var config = {'blogId': '5235590154125226279', 'postId': '3544317389143776752', 'feed': 'feeds/3544317389143776752/comments/default', 'authorName': '编程随想', 'authorUrl': 'http://www.blogger.com/profile/11741356469378252621', 'baseUri': 'http://www.blogger.com', 'maxThreadDepth': 2};
+
+// <![CDATA[
+      var cursor = null;
+      if (items && items.length > 0) {
+        cursor = parseInt(items[items.length - 1].timestamp) + 1;
+      }
+
+      var bodyFromEntry = function(entry) {
+        if (entry.gd$extendedProperty) {
+          for (var k in entry.gd$extendedProperty) {
+            if (entry.gd$extendedProperty[k].name == 'blogger.contentRemoved') {
+              return '<span class="deleted-comment">' + entry.content.$t + '</span>';
+            }
+          }
+        }
+        return entry.content.$t;
+      }
+
+      var parse = function(data) {
+        cursor = null;
+        var comments = [];
+        if (data && data.feed && data.feed.entry) {
+          for (var i = 0, entry; entry = data.feed.entry[i]; i++) {
+            var comment = {};
+            // comment ID, parsed out of the original id format
+            var id = /blog-(\d+).post-(\d+)/.exec(entry.id.$t);
+            comment.id = id ? id[2] : null;
+            comment.body = bodyFromEntry(entry);
+            comment.timestamp = Date.parse(entry.published.$t) + '';
+            if (entry.author && entry.author.constructor === Array) {
+              var auth = entry.author[0];
+              if (auth) {
+                comment.author = {
+                  name: (auth.name ? auth.name.$t : undefined),
+                  profileUrl: (auth.uri ? auth.uri.$t : undefined),
+                  avatarUrl: (auth.gd$image ? auth.gd$image.src : undefined)
+                };
+              }
+            }
+            if (entry.link) {
+              if (entry.link[2]) {
+                comment.link = comment.permalink = entry.link[2].href;
+              }
+              if (entry.link[3]) {
+                var pid = /.*comments\/default\/(\d+)\?.*/.exec(entry.link[3].href);
+                if (pid && pid[1]) {
+                  comment.parentId = pid[1];
+                }
+              }
+            }
+            comment.deleteclass = 'item-control blog-admin';
+            if (entry.gd$extendedProperty) {
+              for (var k in entry.gd$extendedProperty) {
+                if (entry.gd$extendedProperty[k].name == 'blogger.itemClass') {
+                  comment.deleteclass += ' ' + entry.gd$extendedProperty[k].value;
+                } else if (entry.gd$extendedProperty[k].name == 'blogger.displayTime') {
+                  comment.displayTime = entry.gd$extendedProperty[k].value;
+                }
+              }
+            }
+            comments.push(comment);
+          }
+        }
+        return comments;
+      };
+
+      var paginator = function(callback) {
+        if (hasMore()) {
+          var url = config.feed + '?alt=json&v=2&orderby=published&reverse=false&max-results=50';
+          if (cursor) {
+            url += '&published-min=' + new Date(cursor).toISOString();
+          }
+          window.bloggercomments = function(data) {
+            var parsed = parse(data);
+            cursor = parsed.length < 50 ? null
+                : parseInt(parsed[parsed.length - 1].timestamp) + 1
+            callback(parsed);
+            window.bloggercomments = null;
+          }
+          url += '&callback=bloggercomments';
+          var script = document.createElement('script');
+          script.type = 'text/javascript';
+          script.src = url;
+          document.getElementsByTagName('head')[0].appendChild(script);
+        }
+      };
+      var hasMore = function() {
+        return !!cursor;
+      };
+      var getMeta = function(key, comment) {
+        if ('iswriter' == key) {
+          var matches = !!comment.author
+              && comment.author.name == config.authorName
+              && comment.author.profileUrl == config.authorUrl;
+          return matches ? 'true' : '';
+        } else if ('deletelink' == key) {
+          return config.baseUri + '/delete-comment.g?blogID='
+               + config.blogId + '&postID=' + comment.id;
+        } else if ('deleteclass' == key) {
+          return comment.deleteclass;
+        }
+        return '';
+      };
+
+      var replybox = null;
+      var replyUrlParts = null;
+      var replyParent = undefined;
+
+      var onReply = function(commentId, domId) {
+        if (replybox == null) {
+          // lazily cache replybox, and adjust to suit this style:
+          replybox = document.getElementById('comment-editor');
+          if (replybox != null) {
+            replybox.height = '250px';
+            replybox.style.display = 'block';
+            replyUrlParts = replybox.src.split('#');
+          }
+        }
+        if (replybox && (commentId !== replyParent)) {
+          document.getElementById(domId).insertBefore(replybox, null);
+          replybox.src = replyUrlParts[0]
+              + (commentId ? '&parentID=' + commentId : '')
+              + '#' + replyUrlParts[1];
+          replyParent = commentId;
+        }
+      };
+
+      var hash = (window.location.hash || '#').substring(1);
+      var startThread, targetComment;
+      if (/^comment-form_/.test(hash)) {
+        startThread = hash.substring('comment-form_'.length);
+      } else if (/^c[0-9]+$/.test(hash)) {
+        targetComment = hash.substring(1);
+      }
+
+      // Configure commenting API:
+      var configJso = {
+        'maxDepth': config.maxThreadDepth
+      };
+      var provider = {
+        'id': config.postId,
+        'data': items,
+        'loadNext': paginator,
+        'hasMore': hasMore,
+        'getMeta': getMeta,
+        'onReply': onReply,
+        'rendered': true,
+        'initComment': targetComment,
+        'initReplyThread': startThread,
+        'config': configJso,
+        'messages': msgs
+      };
+
+      var render = function() {
+        if (window.goog && window.goog.comments) {
+          var holder = document.getElementById('comment-holder');
+          window.goog.comments.render(holder, provider);
+        }
+      };
+
+      // render now, or queue to render when library loads:
+      if (window.goog && window.goog.comments) {
+        render();
+      } else {
+        window.goog = window.goog || {};
+        window.goog.comments = window.goog.comments || {};
+        window.goog.comments.loadQueue = window.goog.comments.loadQueue || [];
+        window.goog.comments.loadQueue.push(render);
+      }
+    })();
+// ]]>
+</script>
+<div id="comment-holder">
+
+<div id="bc_0_201C" kind="c"><div id="bc_0_201CT"><div id="bc_0_200T" class="comment-thread" kind="r" t="0" u="0"><ol style="display: block; margin-bottom: 4em;" id="bc_0_200TB"><li id="bc_0_11B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/b36-rounded.png"></div><div id="c2982004728497193318" class="comment-block"><div id="bc_0_11M" class="comment-header" kind="m"><cite class="user"><a rel="nofollow" href="http://www.blogger.com/profile/08853123019167798224">v998</a></cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412514190048">十月 05, 2014</a></span><a style="font-size: 125%;" class="counter" href="2014/10/weekly-share-74.md?comment=1412514190048">1楼</a></div><p id="bc_0_11MC" class="comment-content">沙發!!! :D</p><span id="bc_0_11MN" class="comment-actions secondary-text" kind="m"><a kind="i" href="javascript:;" target="_self" o="r">回复1楼</a><span class="item-control blog-admin pid-1429061783"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=2982004728497193318">删除1楼</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_11BR" class="comment-replies"><span id="bc_0_11b+seedS596D" kind="d"><div id="bc_0_0T" class="comment-thread inline-thread" kind="t" t="0" u="0"><span id="bc_0_0TT" class="thread-toggle thread-expanded" kind="g"><span id="bc_0_0TA" class="thread-arrow"></span><span id="bc_0_0TN" class="thread-count"><span id="bc_0_0TNT" style="display: none;"></span><span id="bc_0_0TNU" style="display: none;"></span><a href="javascript:;" target="_self">回复</a><div id="bc_0_0TD" class="thread-dropContainer thread-expanded"><span class="thread-drop"></span></div></span></span><ol id="bc_0_0TC" class="thread-chrome thread-expanded"><div><li id="bc_0_0B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c4900883222535276413" class="comment-block"><div id="bc_0_0M" class="comment-header" kind="m"><cite class="user">忠党爱国</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412514809545">十月 05, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412514809545">1楼 1单元</a></div><p id="bc_0_0MC" class="comment-content">由全部香港市民组成的提名委员会筛选候选人，再由全体香港市民一人一票普选香港特首是目前最适合香港社情的民主选举方案。事实上实践了港人治港的方针。<br><br>撤销提名委员会，由公民自由参选，貌似民主，实则过于激进，容易让极少极端分子获得登台表演的机会，制造很多毫无必要的麻烦，如香港独立等。<br><br>按照基本法和全国人大的规定，提名委员会四分之三的委员由香港各功能界别自主选出，中央政府不可能操控。提名委员会四分之一的委员是立法会议员和区议员，基本上等同于香港市民直选。<br><br>因此，中央政府不可能通过控制提名委员会操纵特首选举。<br><br>现在香港少数人无视中央政府已经逐步推进的香港民主进程，无事生非，以满足其个人的权力欲，实在是香港的不幸。<br><br>广大青少年不应该人云亦云，而是应该有自己的独立思考。<br><br>冒名顶替者死全家。无此声明即为冒用本人名义。</p><span id="bc_0_0MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-313879263"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=4900883222535276413">删除1单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_0BR" class="comment-replies"></div><div id="bc_0_0B_box" class="comment-replybox-single"></div></li><li id="bc_0_1B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c8831010233568559171" class="comment-block"><div id="bc_0_1M" class="comment-header" kind="m"><cite class="user">get freedom</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412515695507">十月 05, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412515695507">1楼 2单元</a></div><p id="bc_0_1MC" class="comment-content">TO 终党碍国<br>你重复发贴，还好意思说别人冒名顶替？重复发贴死全家！<br>证据：<br><a rel="nofollow" target="_blank" title="超链接语法&amp;#65306;
+评论中的网址&amp;#65292;如果两端是空格或换行&amp;#65292;评论发布后会自动变成可点击的超链接&amp;#12290;
+
+&amp;#65288;网址必须以 http:// 或 https:// 开头&amp;#65289;" href="2014/10/weekly-share-73.md?comment=1412505822717" class="bbcode simple">2014/10/weekly-share-73.md?comment=1412505822717</a><br>我在那回复过你了，你重复我不重复</p><span id="bc_0_1MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-2074720742"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=8831010233568559171">删除2单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_1BR" class="comment-replies"></div><div id="bc_0_1B_box" class="comment-replybox-single"></div></li><li id="bc_0_2B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c6101516078184240876" class="comment-block"><div id="bc_0_2M" class="comment-header" kind="m"><cite class="user">忠党爱国</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412516217598">十月 05, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412516217598">1楼 3单元</a></div><p id="bc_0_2MC" class="comment-content">支持香港占中民主运动！！<br><br>冒名顶替者死全家。无此声明即为冒用本人名义。</p><span id="bc_0_2MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1054934421"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=6101516078184240876">删除3单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_2BR" class="comment-replies"></div><div id="bc_0_2B_box" class="comment-replybox-single"></div></li><li id="bc_0_3B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c7943226952052931618" class="comment-block"><div id="bc_0_3M" class="comment-header" kind="m"><cite class="user">get freedom</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412517463643">十月 05, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412517463643">1楼 4单元</a></div><p id="bc_0_3MC" class="comment-content">TO 3单元<br>党国叛徒，突突突，哈哈！！<br>TO 1单元 正宗滴终党碍国<br>你的长篇大论看上去都差不多，搞得我在2单元的证据链接到你另一条留言了，证据应该是：<br><a rel="nofollow" target="_blank" title="超链接语法&amp;#65306;
+评论中的网址&amp;#65292;如果两端是空格或换行&amp;#65292;评论发布后会自动变成可点击的超链接&amp;#12290;
+
+&amp;#65288;网址必须以 http:// 或 https:// 开头&amp;#65289;" href="2014/10/weekly-share-73.md?comment=1412515051733" class="bbcode simple">2014/10/weekly-share-73.md?comment=1412515051733</a><br></p><span id="bc_0_3MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1426644303"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=7943226952052931618">删除4单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_3BR" class="comment-replies"></div><div id="bc_0_3B_box" class="comment-replybox-single"></div></li><li id="bc_0_4B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/b36-rounded.png"></div><div id="c1041751746712101831" class="comment-block"><div id="bc_0_4M" class="comment-header" kind="m"><cite class="user"><a rel="nofollow" href="http://www.blogger.com/profile/07956339840212174138">FlyingForever</a></cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412519465017">十月 05, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412519465017">1楼 5单元</a></div><p id="bc_0_4MC" class="comment-content">「提名委員會四分之三的委員由香港各功能界別自主選出，中央政府不可能操控」<br>不可能個屁。<br>功能界別才二十多萬人，要操控有多難？<br>單看上次香港律師會對主席林新強的不信任投票（因為他說白皮書不影響司法獨立，要求法官需要愛國也沒有問題，還說愛國是公民責任等），就有很多律師說受到壓力，甚至被要求交出「授權票」，就可以看到你說的「不可能」有多麼不可能。<br><br>「提名委員會四分之一的委員是立法會議員和區議員，基本上等同於香港市民直選」<br>是啊，功能組別也是市民直選對吧？</p><span id="bc_0_4MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1529064241"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=1041751746712101831">删除5单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_4BR" class="comment-replies"></div><div id="bc_0_4B_box" class="comment-replybox-single"></div></li><li id="bc_0_5B" class="comment" kind="b"><div class="avatar-image-container"><img src="http://lh6.googleusercontent.com/-fpaYncBYqKs/Th477aX8reI/AAAAAAAAAco/nkud5M9T64w/s48/Thinker.jpg"></div><div id="c5088689855588827929" class="comment-block"><div id="bc_0_5M" class="comment-header" kind="m"><cite class="user blog-author"><a rel="nofollow" href="http://www.blogger.com/profile/11741356469378252621">编程随想</a></cite><span class="icon user blog-author"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412522732040">十月 05, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412522732040">1楼 6单元</a></div><p id="bc_0_5MC" class="comment-content">TO FlyingForever<br>多谢你对“忠党爱国”的反驳 :)</p><span id="bc_0_5MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1582521586"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=5088689855588827929">删除6单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_5BR" class="comment-replies"></div><div id="bc_0_5B_box" class="comment-replybox-single"></div></li><li id="bc_0_6B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c8216955821763977717" class="comment-block"><div id="bc_0_6M" class="comment-header" kind="m"><cite class="user">忠党爱国</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412567345654">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412567345654">1楼 7单元</a></div><p id="bc_0_6MC" class="comment-content">TO FlyingForever<br>你讲的很好，正如你所说，功能界别在香港市民中直接代表的人群已高达20多万，间接代表的市民已高达300余万，而全港人口刚刚突破700万。<br><br>因此，功能界别的代表性是相当有说服力的。<br><br>不要把我党想象的过于强大，我党怎么可能有能力强迫20多万香港人在各个功能界别中独立、自主、分别投票选出900名特首提名委员？我党虽然具备超能力逆天，但是这个在香港实在不具备可操作性。<br><br>其次，这有投票权的20多万香港功能界别市民，还受到相关行业300多万市民的间接影响，要这20多万有投票权的香港功能界别市民，完全违背300万市民的意愿，完全按照上峰的指令投票选出特首提名委员，怎么可能？？？？？<br><br>第三，我国全国人大在2012年发布的香港政改路线图中，已经明确了在香港立法会和特首选举委员会中逐步减少功能界别比例，直至完全取消功能界别，逐步扩大市民直选代表比例，直至香港立法会和特首选举委员会完全由市民直选代表组成。<br><br>这是白纸黑字，这是香港建制派和泛民主派一致同意的。<br><br>第四，功能界别不是我党发明的。是港英政府统治期间由英国人在香港发明创造的，英国人的目的就是通过设立功能界别，提高工商业人士和专业人士的发言权，压制底层香港市民的发言权，达到稳定香港统制的目的。<br><br>冒名顶替者死全家。无此声明即为冒用本人名义。</p><span id="bc_0_6MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-296148406"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=8216955821763977717">删除7单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_6BR" class="comment-replies"></div><div id="bc_0_6B_box" class="comment-replybox-single"></div></li><li id="bc_0_7B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c297631034027932801" class="comment-block"><div id="bc_0_7M" class="comment-header" kind="m"><cite class="user">忠党爱国</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412569408876">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412569408876">1楼 8单元</a></div><p id="bc_0_7MC" class="comment-content">To 永远高飞的少年<br><br>功能组别选举特首提名委员合情合理，适合香港社情<br><br>　
+　地区代表制可以以选区的划分来较好地实现平等的选举权，保持选民基础的大致平等。与地区代表制相比较，职业代表制（功能组别）的人口基数是按职业、行
+业、专业等划分的，不可能按地域作选区的划分，只能按经济和工商业的发展情况自然形成的就业人口划分，较难实现完全平等的选举权。<br><br>   
+     
+但也应当认识到，问题在于：在香港这样的地区特徵不明显，但职业、行业和专业特徵却很明显的大都会，现行的功能选举制度比分地区选举制度更适合香港。如果
+香港需要在立法会中有各界别、各行业、各专业、各方面的人物作为代表存在，就不要轻言废除。把头斩掉后，是不可能再长出来的。如果功能选举制度可以改良的
+话，为何不先改良呢?<br><br>        香港基本法只要求根据香港的实际情况和循序渐进的原则推进民主进程，并没有要求一普选就完全实现平等的选举权。目前世界各国中，也没有什麽发达的、民主的国家完全实现平等的选举权。<br><br>
+        
+比如美国，人口最少的佛蒙特州，每30万人中产生一名联邦参议员，而与之相反，人口最多的加利福尼亚州，每1800万人中才能产生一名联邦参议员。在联邦
+参议员，佛蒙特人的代表权是加利福尼亚人的60倍！在美国，参议员的权力和影响力可比按人口均分选区产生的联邦众议员大多了。翻翻美国宪法，看看美剧就知
+道了。<br><br>        香港只有逐步向平等的选举权迈进也就可以了。<br><br>　　基于这种认识，不难推断，功能界别选举特首提名委员是可以满足香港普选的要求的。<br><br>        冒名顶替者死全家。无此声明即为冒用本人名义。</p><span id="bc_0_7MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-296148406"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=297631034027932801">删除8单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_7BR" class="comment-replies"></div><div id="bc_0_7B_box" class="comment-replybox-single"></div></li><li id="bc_0_8B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c1233610969422341068" class="comment-block"><div id="bc_0_8M" class="comment-header" kind="m"><cite class="user">get freedom</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412573415912">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412573415912">1楼 9单元</a></div><p id="bc_0_8MC" class="comment-content">TO 终党碍国<br>被驳倒、揭穿后仍然来回复，很罕见啊，看来共匪是下了血本，可惜我们纳税人的钱又要少啰<br>“不要把我党想象的过于强大”，开始谦虚、卖萌了？<br>其
+实你党妈没有多强大，关键是没有底线。在香港搞红色恐怖，暴打、暗杀新闻人士，杀一儆百，你怎么保证你党妈以后不会用各种手段使那20万人听话。况且功能
+界别在各行业分布比例也是你党妈说了算，现在很明显有利于共匪的比例就定得高。简直是变相的人大代表，你当香港人傻子？<br>以前英国是殖民者，用英国当年的做法来证明其合理合法是什么意思？你在侮辱党国啊，小心要你下岗！<br>美国参议院wiki:<br><a rel="nofollow" target="_blank" title="超链接语法&amp;#65306;
+评论中的网址&amp;#65292;如果两端是空格或换行&amp;#65292;评论发布后会自动变成可点击的超链接&amp;#12290;
+
+&amp;#65288;网址必须以 http:// 或 https:// 开头&amp;#65289;" href="https://zh.wikipedia.org/zh-cn/%E7%BE%8E%E5%9B%BD%E5%8F%82%E8%AE%AE%E9%99%A2" class="bbcode simple">https://zh.wikipedia.org/zh-cn/%E7%BE%8E%E5%9B%BD%E5%8F%82%E8%AE%AE%E9%99%A2</a><br>你还敢扯美国，上次你说美国大法官是太上皇，被我驳得哑口无言。联邦参议员每个州有且只有两位，宪法这样设计的目的是防止人多的州对人少的州暴政，这个人数规定容易执行容易监督。反观共匪定的比例，操作空间很大，无法监督。你敢不敢把比例的依据写出来？以证明你党妈的公正</p><span id="bc_0_8MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1704181520"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=1233610969422341068">删除9单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_8BR" class="comment-replies"></div><div id="bc_0_8B_box" class="comment-replybox-single"></div></li><li id="bc_0_9B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c478760816302286685" class="comment-block"><div id="bc_0_9M" class="comment-header" kind="m"><cite class="user"><a rel="nofollow" href="https://blog.shiniv.com/">枫之落叶</a></cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412575648974">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412575648974">1楼 10单元</a></div><p id="bc_0_9MC" class="comment-content">TO 编程随想<br>博主您博客首页上的Google+转发功能不见了，还是加上为好，方便大伙儿通过Google+转发支持您。</p><span id="bc_0_9MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1390112264"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=478760816302286685">删除10单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_9BR" class="comment-replies"></div><div id="bc_0_9B_box" class="comment-replybox-single"></div></li><li id="bc_0_10B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c2323084154829708496" class="comment-block"><div id="bc_0_10M" class="comment-header" kind="m"><cite class="user"><a rel="nofollow" href="https://blog.shiniv.com/">枫之落叶</a></cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412575782029">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412575782029">1楼 11单元</a></div><p id="bc_0_10MC" class="comment-content">TO 编程随想<br>现在，只有进到博客内页才能看到Google+转发的按钮</p><span id="bc_0_10MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1390112264"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=2323084154829708496">删除11单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_10BR" class="comment-replies"></div><div id="bc_0_10B_box" class="comment-replybox-single"></div></li></div><div id="bc_0_0I" class="continue" kind="ci"><a href="javascript:;" target="_self">回复1楼</a></div></ol><div id="bc_0_0T_box" class="comment-replybox-thread"></div></div></span></div><div id="bc_0_11B_box" class="comment-replybox-single"></div></li><li id="bc_0_13B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c6093531225407019896" class="comment-block"><div id="bc_0_13M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412514269066">十月 05, 2014</a></span><a style="font-size: 125%;" class="counter" href="2014/10/weekly-share-74.md?comment=1412514269066">2楼</a></div><p id="bc_0_13MC" class="comment-content">沙发</p><span id="bc_0_13MN" class="comment-actions secondary-text" kind="m"><a kind="i" href="javascript:;" target="_self" o="r">回复2楼</a><span class="item-control blog-admin pid-1476867992"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=6093531225407019896">删除2楼</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="hide">隐藏所有匿名评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_13BR" class="comment-replies"><span id="bc_0_13b+seedS5-aD" kind="d"><div id="bc_0_12T" class="comment-thread inline-thread" kind="t" t="0" u="0"><span id="bc_0_12TT" class="thread-toggle thread-expanded" kind="g"><span id="bc_0_12TA" class="thread-arrow"></span><span id="bc_0_12TN" class="thread-count"><span id="bc_0_12TNT" style="display: none;"></span><span id="bc_0_12TNU" style="display: none;"></span><a href="javascript:;" target="_self">回复</a><div id="bc_0_12TD" class="thread-dropContainer thread-expanded"><span class="thread-drop"></span></div></span></span><ol id="bc_0_12TC" class="thread-chrome thread-expanded"><div><li id="bc_0_12B" class="comment" kind="b"><div class="avatar-image-container"><img src="http://lh6.googleusercontent.com/-fpaYncBYqKs/Th477aX8reI/AAAAAAAAAco/nkud5M9T64w/s48/Thinker.jpg"></div><div id="c2453500640556053937" class="comment-block"><div id="bc_0_12M" class="comment-header" kind="m"><cite class="user blog-author"><a rel="nofollow" href="http://www.blogger.com/profile/11741356469378252621">编程随想</a></cite><span class="icon user blog-author"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412522775507">十月 05, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412522775507">2楼 1单元</a></div><p id="bc_0_12MC" class="comment-content">TO 2楼<br>你这个“沙发”迟了一步，变成板凳 :)</p><span id="bc_0_12MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1582521586"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=2453500640556053937">删除1单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_12BR" class="comment-replies"></div><div id="bc_0_12B_box" class="comment-replybox-single"></div></li></div><div id="bc_0_12I" class="continue" kind="ci"><a href="javascript:;" target="_self">回复2楼</a></div></ol><div id="bc_0_12T_box" class="comment-replybox-thread"></div></div></span></div><div id="bc_0_13B_box" class="comment-replybox-single"></div></li><li id="bc_0_17B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/b36-rounded.png"></div><div id="c3415004645136922949" class="comment-block"><div id="bc_0_17M" class="comment-header" kind="m"><cite class="user"><a rel="nofollow" href="http://www.blogger.com/profile/08853123019167798224">v998</a></cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412514589558">十月 05, 2014</a></span><a style="font-size: 125%;" class="counter" href="2014/10/weekly-share-74.md?comment=1412514589558">3楼</a></div><p id="bc_0_17MC" class="comment-content">编随兄, 评论连结到的位置好像不准啊...</p><span id="bc_0_17MN" class="comment-actions secondary-text" kind="m"><a kind="i" href="javascript:;" target="_self" o="r">回复3楼</a><span class="item-control blog-admin pid-1429061783"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=3415004645136922949">删除3楼</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_17BR" class="comment-replies"><span id="bc_0_17b+seedS593D" kind="d"><div id="bc_0_14T" class="comment-thread inline-thread" kind="t" t="0" u="0"><span id="bc_0_14TT" class="thread-toggle thread-expanded" kind="g"><span id="bc_0_14TA" class="thread-arrow"></span><span id="bc_0_14TN" class="thread-count"><span id="bc_0_14TNT" style="display: none;"></span><span id="bc_0_14TNU" style="display: none;"></span><a href="javascript:;" target="_self">回复</a><div id="bc_0_14TD" class="thread-dropContainer thread-expanded"><span class="thread-drop"></span></div></span></span><ol id="bc_0_14TC" class="thread-chrome thread-expanded"><div><li id="bc_0_14B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/b36-rounded.png"></div><div id="c394178211897852178" class="comment-block"><div id="bc_0_14M" class="comment-header" kind="m"><cite class="user"><a rel="nofollow" href="http://www.blogger.com/profile/08853123019167798224">v998</a></cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412514608774">十月 05, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412514608774">3楼 1单元</a></div><p id="bc_0_14MC" class="comment-content">@Chrome on 8.1</p><span id="bc_0_14MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1429061783"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=394178211897852178">删除1单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_14BR" class="comment-replies"></div><div id="bc_0_14B_box" class="comment-replybox-single"></div></li><li id="bc_0_15B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/b36-rounded.png"></div><div id="c275765334350335891" class="comment-block"><div id="bc_0_15M" class="comment-header" kind="m"><cite class="user"><a rel="nofollow" href="http://www.blogger.com/profile/08853123019167798224">v998</a></cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412514655241">十月 05, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412514655241">3楼 2单元</a></div><p id="bc_0_15MC" class="comment-content">经常走到了图片的位置</p><span id="bc_0_15MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1429061783"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=275765334350335891">删除2单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_15BR" class="comment-replies"></div><div id="bc_0_15B_box" class="comment-replybox-single"></div></li><li id="bc_0_16B" class="comment" kind="b"><div class="avatar-image-container"><img src="http://lh6.googleusercontent.com/-fpaYncBYqKs/Th477aX8reI/AAAAAAAAAco/nkud5M9T64w/s48/Thinker.jpg"></div><div id="c833889248598115013" class="comment-block"><div id="bc_0_16M" class="comment-header" kind="m"><cite class="user blog-author"><a rel="nofollow" href="http://www.blogger.com/profile/11741356469378252621">编程随想</a></cite><span class="icon user blog-author"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412519557545">十月 05, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412519557545">3楼 3单元</a></div><p id="bc_0_16MC" class="comment-content">TO v998<br>多谢你的仔细测试 :)<br><br>刚才俺想了一下，有一种可能是：<br>图片加载慢，俺用 JS 脚本进行跳转的时候，图片还没有加载完。<br>等到图片加载完，会把页面拉长，然后就导致页面偏移，位置就不对了。</p><span id="bc_0_16MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1582521586"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=833889248598115013">删除3单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_16BR" class="comment-replies"></div><div id="bc_0_16B_box" class="comment-replybox-single"></div></li></div><div id="bc_0_14I" class="continue" kind="ci"><a href="javascript:;" target="_self">回复3楼</a></div></ol><div id="bc_0_14T_box" class="comment-replybox-thread"></div></div></span></div><div id="bc_0_17B_box" class="comment-replybox-single"></div></li><li id="bc_0_18B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c3376083471935379915" class="comment-block"><div id="bc_0_18M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412514598570">十月 05, 2014</a></span><a style="font-size: 125%;" class="counter" href="2014/10/weekly-share-74.md?comment=1412514598570">4楼</a></div><p id="bc_0_18MC" class="comment-content">这么靠前，兴奋啊</p><span id="bc_0_18MN" class="comment-actions secondary-text" kind="m"><a kind="i" href="javascript:;" target="_self" o="r">回复4楼</a><span class="item-control blog-admin pid-1339615872"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=3376083471935379915">删除4楼</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="hide">隐藏所有匿名评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_18BR" class="comment-replies"></div><div id="bc_0_18B_box" class="comment-replybox-single"></div></li><li id="bc_0_75B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/photo.png"></div><div id="c643183668057347849" class="comment-block"><div id="bc_0_75M" class="comment-header" kind="m"><cite class="user"><a rel="nofollow" href="http://www.blogger.com/profile/11275317159378783280">守夜人</a></cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412514624881">十月 05, 2014</a></span><a style="font-size: 125%;" class="counter" href="2014/10/weekly-share-74.md?comment=1412514624881">5楼</a></div><p id="bc_0_75MC" class="comment-content">支那五毛不会又来抢占高地吧，最近支那五毛极其活跃，而且不敢亮马甲</p><span id="bc_0_75MN" class="comment-actions secondary-text" kind="m"><a kind="i" href="javascript:;" target="_self" o="r">回复5楼</a><span class="item-control blog-admin pid-1433208295"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=643183668057347849">删除5楼</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_75BR" class="comment-replies"><span id="bc_0_75b+seedS5-MD" kind="d"><div id="bc_0_19T" class="comment-thread inline-thread" kind="t" t="0" u="0"><span id="bc_0_19TT" class="thread-toggle thread-expanded" kind="g"><span id="bc_0_19TA" class="thread-arrow"></span><span id="bc_0_19TN" class="thread-count"><span id="bc_0_19TNT" style="display: none;">0</span><span id="bc_0_19TNU" style="display: none;"></span><a href="javascript:;" target="_self">回复</a><div id="bc_0_19TD" class="thread-dropContainer thread-expanded"><span class="thread-drop"></span></div></span></span><ol id="bc_0_19TC" class="thread-chrome thread-expanded"><div><li id="bc_0_19B" class="comment" kind="b"><div class="avatar-image-container"><img src="http://lh6.googleusercontent.com/-fpaYncBYqKs/Th477aX8reI/AAAAAAAAAco/nkud5M9T64w/s48/Thinker.jpg"></div><div id="c8165919375954526118" class="comment-block"><div id="bc_0_19M" class="comment-header" kind="m"><cite class="user blog-author"><a rel="nofollow" href="http://www.blogger.com/profile/11741356469378252621">编程随想</a></cite><span class="icon user blog-author"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412519886996">十月 05, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412519886996">5楼 1单元</a></div><p id="bc_0_19MC" class="comment-content">TO 守夜人<br>俺看到你在前一篇博文的留言区里面讨论得热烈。<br>不过最好不用使用人身攻击的词汇。<br><br>俺大致看了那个匿名留言，不一定是五毛，也可能是“比较典型的犬儒”。<br>俺之前写过两篇博文：<br>《<a rel="nofollow" target="_blank" title="超链接语法&amp;#65306;
+[url=网址]标题文字[/url]
+
+&amp;#65288;网址必须以 http:// 或 https:// 开头&amp;#65289;
+
+&amp;#65288;文字部分&amp;#12304;不要&amp;#12305;使用如下的半角符号&amp;#65292;需要的话&amp;#65292;改用全角符号&amp;#65289;
+\ &lt; &gt; ( ) ' &quot; &amp; # $ %" href="2012/12/emperor-complex.md" class="bbcode with-text">天朝民众的心理分析：圣君情结</a>》<br>《<a rel="nofollow" target="_blank" title="超链接语法&amp;#65306;
+[url=网址]标题文字[/url]
+
+&amp;#65288;网址必须以 http:// 或 https:// 开头&amp;#65289;
+
+&amp;#65288;文字部分&amp;#12304;不要&amp;#12305;使用如下的半角符号&amp;#65292;需要的话&amp;#65292;改用全角符号&amp;#65289;
+\ &lt; &gt; ( ) ' &quot; &amp; # $ %" href="2012/06/stockholm-syndrome.md" class="bbcode with-text">天朝民众的心理分析：斯德哥尔摩综合症</a>》<br>后面有空的话，会再写一篇谈谈“犬儒”。<br>另，<a rel="nofollow" target="_blank" title="超链接语法&amp;#65306;
+[url=网址]标题文字[/url]
+
+&amp;#65288;网址必须以 http:// 或 https:// 开头&amp;#65289;
+
+&amp;#65288;文字部分&amp;#12304;不要&amp;#12305;使用如下的半角符号&amp;#65292;需要的话&amp;#65292;改用全角符号&amp;#65289;
+\ &lt; &gt; ( ) ' &quot; &amp; # $ %" href="https://code.google.com/p/program-think/wiki/Books" class="bbcode with-text">俺的网盘</a>上曾经分享过一本胡平写的《犬儒病》</p><span id="bc_0_19MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1582521586"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=8165919375954526118">删除1单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_19BR" class="comment-replies"></div><div id="bc_0_19B_box" class="comment-replybox-single"></div></li><li id="bc_0_20B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/b36-rounded.png"></div><div id="c2721096599904589774" class="comment-block"><div id="bc_0_20M" class="comment-header" kind="m"><cite class="user"><a rel="nofollow" href="http://www.blogger.com/profile/03115260414378289671">智多星张召忠</a></cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412523200267">十月 05, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412523200267">5楼 2单元</a></div><p id="bc_0_20MC" class="comment-content">不小心点开守夜人的页面。。。<br>您小心自己的血压啊 。。。</p><span id="bc_0_20MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1326311143"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=2721096599904589774">删除2单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_20BR" class="comment-replies"></div><div id="bc_0_20B_box" class="comment-replybox-single"></div></li><li id="bc_0_21B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/b36-rounded.png"></div><div id="c4410582685865470498" class="comment-block"><div id="bc_0_21M" class="comment-header" kind="m"><cite class="user"><a rel="nofollow" href="http://www.blogger.com/profile/11135393746462565830">Liu Yiteng</a></cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412523217965">十月 05, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412523217965">5楼 3单元</a></div><p id="bc_0_21MC" class="comment-content">喂，层主记得回复我的疑问……明天我来看看1。</p><span id="bc_0_21MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1476338144"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=4410582685865470498">删除3单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_21BR" class="comment-replies"></div><div id="bc_0_21B_box" class="comment-replybox-single"></div></li><li id="bc_0_22B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/b36-rounded.png"></div><div id="c5009775640967302279" class="comment-block"><div id="bc_0_22M" class="comment-header" kind="m"><cite class="user"><a rel="nofollow" href="http://www.blogger.com/profile/11135393746462565830">Liu Yiteng</a></cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412523230170">十月 05, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412523230170">5楼 4单元</a></div><p id="bc_0_22MC" class="comment-content">喂，层主记得回复我的疑问……明天我来看看1。</p><span id="bc_0_22MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1476338144"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=5009775640967302279">删除4单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_22BR" class="comment-replies"></div><div id="bc_0_22B_box" class="comment-replybox-single"></div></li><li id="bc_0_23B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c4899077048586481815" class="comment-block"><div id="bc_0_23M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412524950474">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412524950474">5楼 5单元</a></div><p id="bc_0_23MC" class="comment-content">哎呦，博主呀，我看过你说莫言的文章，说人家那样讲话是怂货，你呢，隐姓埋名搞抹黑（你自己说喜欢给党国抹黑），要不你站出来跟记者讲两句？你自己算什么，说人家怂，你好好照照镜子吧。</p><span id="bc_0_23MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-801345061"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=4899077048586481815">删除5单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="hide">隐藏所有匿名评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_23BR" class="comment-replies"></div><div id="bc_0_23B_box" class="comment-replybox-single"></div></li><li id="bc_0_24B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c3427545082940462239" class="comment-block"><div id="bc_0_24M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412525234292">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412525234292">5楼 6单元</a></div><p id="bc_0_24MC" class="comment-content">认怂不丢人，自己怂还嘲笑别人，我都替你难为情。</p><span id="bc_0_24MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-801345061"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=3427545082940462239">删除6单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="hide">隐藏所有匿名评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_24BR" class="comment-replies"></div><div id="bc_0_24B_box" class="comment-replybox-single"></div></li><li id="bc_0_25B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c520804942661290524" class="comment-block"><div id="bc_0_25M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412525568265">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412525568265">5楼 7单元</a></div><p id="bc_0_25MC" class="comment-content">搞得跟一大仙儿似得，弄一帮信徒，满口高深理论，搞出一帮邪星。我看那人说的“支那猪”三个字就深得你的真传。</p><span id="bc_0_25MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-801345061"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=520804942661290524">删除7单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="hide">隐藏所有匿名评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_25BR" class="comment-replies"></div><div id="bc_0_25B_box" class="comment-replybox-single"></div></li><li id="bc_0_26B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c1944752356462007134" class="comment-block"><div id="bc_0_26M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412525831755">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412525831755">5楼 8单元</a></div><p id="bc_0_26MC" class="comment-content">跟自己意见不同就立马扣一帽子，还圣君情结、犬儒，喜欢让读者站队，站错队支那猪都说得出口，你真有点阴险。</p><span id="bc_0_26MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-801345061"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=1944752356462007134">删除8单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="hide">隐藏所有匿名评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_26BR" class="comment-replies"></div><div id="bc_0_26B_box" class="comment-replybox-single"></div></li><li id="bc_0_27B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c5287036194917852314" class="comment-block"><div id="bc_0_27M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412526734050">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412526734050">5楼 9单元</a></div><p id="bc_0_27MC" class="comment-content">我以前只看文章不评论，因为来着讨论没意思，主要看一些技术文章，各种爆料也还算新鲜，也就觉得你是一个爱发牢骚的普通人，没想到你这搞站队，给人扣帽子，十足一个野心家，劝大家别跟他一起走远了。</p><span id="bc_0_27MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-801345061"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=5287036194917852314">删除9单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="hide">隐藏所有匿名评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_27BR" class="comment-replies"></div><div id="bc_0_27B_box" class="comment-replybox-single"></div></li><li id="bc_0_28B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c6824156317880305144" class="comment-block"><div id="bc_0_28M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412527692593">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412527692593">5楼 10单元</a></div><p id="bc_0_28MC" class="comment-content">支那不明白可以维基百科自己看一下，一个民族的人，对自己的同袍没有认同感，给与自己政见不同的人，扣上各种侮辱的帽子。带领被称为支那猪的同袍走向民主，还想获得大多数人的认同，你可以看看你自己写的双重思维的文章，然后对比一下你们自己。</p><span id="bc_0_28MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-801345061"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=6824156317880305144">删除10单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="hide">隐藏所有匿名评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_28BR" class="comment-replies"></div><div id="bc_0_28B_box" class="comment-replybox-single"></div></li><li id="bc_0_29B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c115242748650805817" class="comment-block"><div id="bc_0_29M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412528697769">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412528697769">5楼 11单元</a></div><p id="bc_0_29MC" class="comment-content">口
+传心授给别人扣帽子的方法，讲着着自己理想主义的春秋大梦，把更多人带向偏激，促使那些在你们心中被称为支那猪的同袍做出过激的行为。网络上的信息有好有
+坏，希望所有人都警惕的保持自己的辨别能力，就占中这件事情，新加坡的表态大家可以看看。民主也绝不是抗议闹事能够得来的。</p><span id="bc_0_29MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-801345061"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=115242748650805817">删除11单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="hide">隐藏所有匿名评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_29BR" class="comment-replies"></div><div id="bc_0_29B_box" class="comment-replybox-single"></div></li><li id="bc_0_30B" class="comment" kind="b"><div class="avatar-image-container"><img src="http://lh6.googleusercontent.com/-fpaYncBYqKs/Th477aX8reI/AAAAAAAAAco/nkud5M9T64w/s48/Thinker.jpg"></div><div id="c6874510809111329907" class="comment-block"><div id="bc_0_30M" class="comment-header" kind="m"><cite class="user blog-author"><a rel="nofollow" href="http://www.blogger.com/profile/11741356469378252621">编程随想</a></cite><span class="icon user blog-author"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412528885667">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412528885667">5楼 12单元</a></div><p id="bc_0_30MC" class="comment-content">TO 5单元的网友<br>对党斗争，当然要讲究策略。白白送死，那只能算愚蠢，称不上勇敢。<br><br>俺敢于常年累月抹黑党国，煽动颠覆政权，这要冒很大风险滴。<br>一旦暴露身份，会有什么样的牢狱之灾，大伙儿都晓得。<br>在这点上，俺当然比很多怂货要勇敢 :)</p><span id="bc_0_30MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1582521586"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=6874510809111329907">删除12单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_30BR" class="comment-replies"></div><div id="bc_0_30B_box" class="comment-replybox-single"></div></li><li id="bc_0_31B" class="comment" kind="b"><div class="avatar-image-container"><img src="http://lh6.googleusercontent.com/-fpaYncBYqKs/Th477aX8reI/AAAAAAAAAco/nkud5M9T64w/s48/Thinker.jpg"></div><div id="c4681588724540837314" class="comment-block"><div id="bc_0_31M" class="comment-header" kind="m"><cite class="user blog-author"><a rel="nofollow" href="http://www.blogger.com/profile/11741356469378252621">编程随想</a></cite><span class="icon user blog-author"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412529209743">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412529209743">5楼 13单元</a></div><p id="bc_0_31MC" class="comment-content">TO 7单元的网友<br>看你对俺的批评，显然你对俺很不了解。<br><br>你提到说：“搞得跟一大仙儿似得，弄一帮信徒，满口高深理论，搞出一帮邪星”<br><br>俺恰恰是非常反对“偶像崇拜”。<br>前不久还刚发过一篇《<a rel="nofollow" target="_blank" title="超链接语法&amp;#65306;
+[url=网址]标题文字[/url]
+
+&amp;#65288;网址必须以 http:// 或 https:// 开头&amp;#65289;
+
+&amp;#65288;文字部分&amp;#12304;不要&amp;#12305;使用如下的半角符号&amp;#65292;需要的话&amp;#65292;改用全角符号&amp;#65289;
+\ &lt; &gt; ( ) ' &quot; &amp; # $ %" href="2014/05/fans-and-idolatry.md" class="bbcode with-text">不要成为“粉丝”——谈谈“偶像崇拜”的成因和危害</a>》<br><br>另外，俺写的博文（不论是 IT 技术、还是心理学、政治学），经常以“扫盲”作标题。根本就不是你所说的“故作高深”。<br>俺的水平很一般，谈的都是一些大路货 :)</p><span id="bc_0_31MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1582521586"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=4681588724540837314">删除13单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_31BR" class="comment-replies"></div><div id="bc_0_31B_box" class="comment-replybox-single"></div></li><li id="bc_0_32B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c3033286288896955015" class="comment-block"><div id="bc_0_32M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412529545508">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412529545508">5楼 14单元</a></div><p id="bc_0_32MC" class="comment-content">在一个西方掌握普世价值的时代，被歧视的黄种人自己都看起上自己的同袍，并加以侮辱，然后在己的博客大谈双重思维，这真是让人难为情的。</p><span id="bc_0_32MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-801345061"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=3033286288896955015">删除14单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="hide">隐藏所有匿名评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_32BR" class="comment-replies"></div><div id="bc_0_32B_box" class="comment-replybox-single"></div></li><li id="bc_0_33B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c3088902491555105423" class="comment-block"><div id="bc_0_33M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412529717011">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412529717011">5楼 15单元</a></div><p id="bc_0_33MC" class="comment-content">新加坡算个球，一个弹丸的专制小国。</p><span id="bc_0_33MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-37883822"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=3088902491555105423">删除15单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="hide">隐藏所有匿名评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_33BR" class="comment-replies"></div><div id="bc_0_33B_box" class="comment-replybox-single"></div></li><li id="bc_0_34B" class="comment" kind="b"><div class="avatar-image-container"><img src="http://lh6.googleusercontent.com/-fpaYncBYqKs/Th477aX8reI/AAAAAAAAAco/nkud5M9T64w/s48/Thinker.jpg"></div><div id="c5096079160513402774" class="comment-block"><div id="bc_0_34M" class="comment-header" kind="m"><cite class="user blog-author"><a rel="nofollow" href="http://www.blogger.com/profile/11741356469378252621">编程随想</a></cite><span class="icon user blog-author"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412530091828">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412530091828">5楼 16单元</a></div><p id="bc_0_34MC" class="comment-content">TO 11单元的网友<br>你提到说：“民主也绝不是抗议闹事能够得来的”<br><br>貌似没有哪个人会认为“光靠抗议闹事就能得到民主”。<br>至少俺本人肯定不会这么看。<br>俺经常唠叨（今天晚上还提到过一次）——天朝的民主化之路，肯定是很曲折很漫长的。<br>俺的观点是：最需要优先普及的两种素质是：政治素质  和 心理素质。<br>政治素质有助于培养公民意识，摆脱臣民意识。<br>心理素质有助于摆脱洗脑，培养独立思考的习惯和各种思维能力。<br><br>另外，如果你多看俺写的博文，自然会知道：俺是经常强调“理性”的。<br>“理性”同时也是摆脱洗脑的利器之一。<br>朝廷惯用的几个忽悠手法：其中之一就是“煽动恐惧和仇恨”。面对这些招数，偏感性的人较容易上当，而偏理性的人比较不容易上当。</p><span id="bc_0_34MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1582521586"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=5096079160513402774">删除16单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_34BR" class="comment-replies"></div><div id="bc_0_34B_box" class="comment-replybox-single"></div></li><li id="bc_0_35B" class="comment" kind="b"><div class="avatar-image-container"><img src="http://lh6.googleusercontent.com/-fpaYncBYqKs/Th477aX8reI/AAAAAAAAAco/nkud5M9T64w/s48/Thinker.jpg"></div><div id="c411684906685697007" class="comment-block"><div id="bc_0_35M" class="comment-header" kind="m"><cite class="user blog-author"><a rel="nofollow" href="http://www.blogger.com/profile/11741356469378252621">编程随想</a></cite><span class="icon user blog-author"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412530267639">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412530267639">5楼 17单元</a></div><p id="bc_0_35MC" class="comment-content">TO 14单元的网友<br>看你的留言，语句不通顺。是不是打字太快，哪里写错了？</p><span id="bc_0_35MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1582521586"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=411684906685697007">删除17单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_35BR" class="comment-replies"></div><div id="bc_0_35B_box" class="comment-replybox-single"></div></li><li id="bc_0_36B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c7036424263730386654" class="comment-block"><div id="bc_0_36M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412530419824">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412530419824">5楼 18单元</a></div><p id="bc_0_36MC" class="comment-content">我说装高深是发一些圣君情结，双重思想，还有什么犬儒的文章，贬低被你们称作支那猪的同袍，来衬托自己高大上的形象，你一直觉得自己有思想，充分进化了，超凡脱俗，看不起支那猪，你呀，自己就有双重思想。你可以好好看看双重思想，写的挺有意思，尤其是2张图。</p><span id="bc_0_36MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-801345061"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=7036424263730386654">删除18单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="hide">隐藏所有匿名评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_36BR" class="comment-replies"></div><div id="bc_0_36B_box" class="comment-replybox-single"></div></li><li id="bc_0_37B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c2530369447615851785" class="comment-block"><div id="bc_0_37M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412530650524">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412530650524">5楼 19单元</a></div><p id="bc_0_37MC" class="comment-content">“新加坡算个球，一个弹丸的专制小国。”你看到了吗？为你说话的人满嘴歧视，你在这大谈民主，大谈双重人格，真的很奇怪的。</p><span id="bc_0_37MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-801345061"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=2530369447615851785">删除19单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="hide">隐藏所有匿名评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_37BR" class="comment-replies"></div><div id="bc_0_37B_box" class="comment-replybox-single"></div></li><li id="bc_0_38B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c8765591414005722473" class="comment-block"><div id="bc_0_38M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412531168323">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412531168323">5楼 20单元</a></div><p id="bc_0_38MC" class="comment-content">你觉得你支持的天安门事件、占中行为是理性的吗？我就知道，你是没有底线的人，跟你政见相同的人干什么都是理性的，口口声声说理性，然后支持人民暴动，说什么共产党洗脑，你这不是一个路子吗？</p><span id="bc_0_38MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-801345061"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=8765591414005722473">删除20单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="hide">隐藏所有匿名评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_38BR" class="comment-replies"></div><div id="bc_0_38B_box" class="comment-replybox-single"></div></li><li id="bc_0_39B" class="comment" kind="b"><div class="avatar-image-container"><img src="http://lh6.googleusercontent.com/-fpaYncBYqKs/Th477aX8reI/AAAAAAAAAco/nkud5M9T64w/s48/Thinker.jpg"></div><div id="c8800474204492957184" class="comment-block"><div id="bc_0_39M" class="comment-header" kind="m"><cite class="user blog-author"><a rel="nofollow" href="http://www.blogger.com/profile/11741356469378252621">编程随想</a></cite><span class="icon user blog-author"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412531236529">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412531236529">5楼 21单元</a></div><p id="bc_0_39MC" class="comment-content">TO 18单元的网友<br>看来你混淆了两个概念：<br>1、看不起某人<br>2、发现某人的缺点并指出来<br><br>如果按照你的逻辑，是不是鲁迅也属于“贬低同袍，来衬托自己高大上的形象”？<br><br>关于俺发表的心理学博文（圣君情结、双重思想、斯德哥尔摩综合症），如果你觉得文章有错误，欢迎指出来。<br>如果你没有指出具体的错误，单纯说俺是“装高深”，说俺是“贬低同胞”。<br>那在逻辑上显得牵强。<br>当然，如果你非要这样说，俺也没办法。这是你的言论自由 :)</p><span id="bc_0_39MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1582521586"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=8800474204492957184">删除21单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_39BR" class="comment-replies"></div><div id="bc_0_39B_box" class="comment-replybox-single"></div></li><li id="bc_0_40B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c7382935494126219784" class="comment-block"><div id="bc_0_40M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412532030952">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412532030952">5楼 22单元</a></div><p id="bc_0_40MC" class="comment-content">我
+本来不想站出来理论的，人都会有不同的观点，你们爱说什么说什么，但我看到支那猪这事儿跟你有关系，我才站出来，劝你不要宣扬这种民族歧视言论，你这的看
+客比较多，伤害民族感情，现在被歧视的黄种人以前的历史并不丢人，我也从不觉得我是中国人而自卑，至于你朋友说香港人对内地的歧视，我微微一笑，深感嘲
+讽。</p><span id="bc_0_40MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-801345061"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=7382935494126219784">删除22单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="hide">隐藏所有匿名评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_40BR" class="comment-replies"></div><div id="bc_0_40B_box" class="comment-replybox-single"></div></li><li id="bc_0_41B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c4117039058970068025" class="comment-block"><div id="bc_0_41M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412533957209">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412533957209">5楼 23单元</a></div><p id="bc_0_41MC" class="comment-content">教
+育自己的信徒给意见不合的人扣上犬儒的帽子，你不觉得这是歧视对吧，我就说嘛，你就是一个没有底线的人，还拿鲁迅自比，我不是一定要把你打倒在地踏上一万
+只脚，否定你所有文章，但人要有自省，你愿意搞犬儒，搞5毛，我不参与就行了，但你要伤害民族感情，就成了一个恶心的人，至少我现在还不觉得你是。好自为
+之。</p><span id="bc_0_41MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-801345061"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=4117039058970068025">删除23单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="hide">隐藏所有匿名评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_41BR" class="comment-replies"></div><div id="bc_0_41B_box" class="comment-replybox-single"></div></li><li id="bc_0_42B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c7662301559215110780" class="comment-block"><div id="bc_0_42M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412535348653">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412535348653">5楼 24单元</a></div><p id="bc_0_42MC" class="comment-content">当
+然你也可以说支那猪的说法和你没关系，哪个守夜人在之前的留言不是所有人都会看，这都无所谓，只要以后在你这不讨论支那猪这种种族歧视的言论就可以了，我
+看出来你也觉得这样说很过分，这就挺好，至于你像让人给我扣上犬儒的帽子，我不会介意的。你们爱怎么说这么说，你们就是这种人嘛。一个博主教导自己的看客
+怎么骂人，也挺有实力的。还是清点骂吧，民族感情已经很脆弱了。</p><span id="bc_0_42MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-801345061"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=7662301559215110780">删除24单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="hide">隐藏所有匿名评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_42BR" class="comment-replies"></div><div id="bc_0_42B_box" class="comment-replybox-single"></div></li><li id="bc_0_43B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c8393316539337326763" class="comment-block"><div id="bc_0_43M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412536347863">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412536347863">5楼 25单元</a></div><p id="bc_0_43MC" class="comment-content">我那句话打错了字我要说的是：在一个西方掌握普世价值的时代，被歧视的黄种人自己都看不起自己的同袍，并加以侮辱，然后在己的博客大谈双重思维，这真是让人难为情的。</p><span id="bc_0_43MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-801345061"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=8393316539337326763">删除25单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="hide">隐藏所有匿名评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_43BR" class="comment-replies"></div><div id="bc_0_43B_box" class="comment-replybox-single"></div></li><li id="bc_0_44B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/b36-rounded.png"></div><div id="c7118295227055004829" class="comment-block"><div id="bc_0_44M" class="comment-header" kind="m"><cite class="user"><a rel="nofollow" href="http://www.blogger.com/profile/03115260414378289671">智多星张召忠</a></cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412539421967">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412539421967">5楼 26单元</a></div><p id="bc_0_44MC" class="comment-content">这话题真是把狗都放出来了。。。</p><span id="bc_0_44MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1326311143"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=7118295227055004829">删除26单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_44BR" class="comment-replies"></div><div id="bc_0_44B_box" class="comment-replybox-single"></div></li><li id="bc_0_45B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/b36-rounded.png"></div><div id="c3416890661379851779" class="comment-block"><div id="bc_0_45M" class="comment-header" kind="m"><cite class="user"><a rel="nofollow" href="http://www.blogger.com/profile/02519951701119232420">Ho Steven</a></cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412540299713">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412540299713">5楼 27单元</a></div><p id="bc_0_45MC" class="comment-content">每
+次碰到这样的敏感帖子就会有人跳出来，他们不敢正面摆事实讲道理，字里行间充满了阴阳怪气的人身攻击，如“被歧视”，“黄种人”，“民族感情”，“阴
+险”，“怂”等，不外乎想激怒随想来达到目的。最好笑的是，别人还没说他是五毛，自己就先讲别人是五毛了（“搞犬儒，搞5毛，我不参与就行了”），其逻辑
+之混乱让人不知道他想说什么。<br><br>这种科级五毛的手法，基本是用煽动性的词语试图激怒对方，当大家失去理智和他争吵时，这些职业骂客把水搅浑的目的就达到了。大家看看被中共雇佣去港搞破坏的人，他们的所作所为是否感觉似曾相识？<br></p><span id="bc_0_45MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-2878647"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=3416890661379851779">删除27单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_45BR" class="comment-replies"></div><div id="bc_0_45B_box" class="comment-replybox-single"></div></li><li id="bc_0_46B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c682970630103617033" class="comment-block"><div id="bc_0_46M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412540880285">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412540880285">5楼 28单元</a></div><p id="bc_0_46MC" class="comment-content">既然你很理智我就问问你：<br>你承认占中的主力是学生和年轻人吗？（学生和年轻人和容易被煽动产生对社会的不满）<br>你承认报道的22万抗议者是香港居民的少数人吗？（人数少也没有一个有影响力的人站出来支持）<br>你承认这样的抗议会影响到香港的经济吗？<br>你承认学生们是拿香港的经济要挟政府来获得他们想要的民主吗？<br>当然刚才你承认这样做事不理智的。大家都看到了。<br>你承认你说自己很理智，但是表态却大相近庭吗？<br>你承认你很喜欢看到学生抗议吗？（因为这和你反对共产党的政见是一致的）<br>你承认你的看客一直在对我进行人身攻击吗？<br>你承认这些都是你教他们的吗？<br>你承认你是一个理智的人吗？<br>你可以不回答继续骂。<br></p><span id="bc_0_46MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1259200534"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=682970630103617033">删除28单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="hide">隐藏所有匿名评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_46BR" class="comment-replies"></div><div id="bc_0_46B_box" class="comment-replybox-single"></div></li><li id="bc_0_47B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/b36-rounded.png"></div><div id="c100298034380038734" class="comment-block"><div id="bc_0_47M" class="comment-header" kind="m"><cite class="user"><a rel="nofollow" href="http://www.blogger.com/profile/03115260414378289671">智多星张召忠</a></cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412541288890">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412541288890">5楼 29单元</a></div><p id="bc_0_47MC" class="comment-content">是，不是，是，只能这样，我为什么要回答这个问题？是（什么逻辑），没有一直。骂混帐是天生的，不用学。是。完。</p><span id="bc_0_47MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1326311143"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=100298034380038734">删除29单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_47BR" class="comment-replies"></div><div id="bc_0_47B_box" class="comment-replybox-single"></div></li><li id="bc_0_48B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/b36-rounded.png"></div><div id="c768503514147103496" class="comment-block"><div id="bc_0_48M" class="comment-header" kind="m"><cite class="user"><a rel="nofollow" href="http://www.blogger.com/profile/03115260414378289671">智多星张召忠</a></cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412541479272">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412541479272">5楼 30单元</a></div><p id="bc_0_48MC" class="comment-content">你为什么这么想得到别人的承认，得到一次承认，有一个五毛吗？</p><span id="bc_0_48MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1326311143"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=768503514147103496">删除30单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_48BR" class="comment-replies"></div><div id="bc_0_48B_box" class="comment-replybox-single"></div></li><li id="bc_0_49B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c3243928888115385569" class="comment-block"><div id="bc_0_49M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412541587213">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412541587213">5楼 31单元</a></div><p id="bc_0_49MC" class="comment-content">说实话我不屑于再和别人争论什么，浪费这么多时间，主要是看得起你，你想说自己理智，就得面对一些尖锐的问题，答案往往又与你的观点相违背，还和你之前的言论像违背，你就是想看看你怎么处理，你不说我是比较典型的犬儒吗？你得比我的观点更站得住脚。</p><span id="bc_0_49MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1259200534"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=3243928888115385569">删除31单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="hide">隐藏所有匿名评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_49BR" class="comment-replies"></div><div id="bc_0_49B_box" class="comment-replybox-single"></div></li><li id="bc_0_50B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c5356663403562019118" class="comment-block"><div id="bc_0_50M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412541702443">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412541702443">5楼 32单元</a></div><p id="bc_0_50MC" class="comment-content">当然你也可以看看你的拥趸都是些什么人。</p><span id="bc_0_50MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1259200534"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=5356663403562019118">删除32单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="hide">隐藏所有匿名评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_50BR" class="comment-replies"></div><div id="bc_0_50B_box" class="comment-replybox-single"></div></li><li id="bc_0_51B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/b36-rounded.png"></div><div id="c98108983360875507" class="comment-block"><div id="bc_0_51M" class="comment-header" kind="m"><cite class="user"><a rel="nofollow" href="http://www.blogger.com/profile/03115260414378289671">智多星张召忠</a></cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412541833423">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412541833423">5楼 33单元</a></div><p id="bc_0_51MC" class="comment-content">从上面看，这次的五毛有男有女。我估计五单元是个女领导，押五毛。</p><span id="bc_0_51MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1326311143"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=98108983360875507">删除33单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_51BR" class="comment-replies"></div><div id="bc_0_51B_box" class="comment-replybox-single"></div></li><li id="bc_0_52B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/b36-rounded.png"></div><div id="c6566956411486367802" class="comment-block"><div id="bc_0_52M" class="comment-header" kind="m"><cite class="user"><a rel="nofollow" href="http://www.blogger.com/profile/03115260414378289671">智多星张召忠</a></cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412542112768">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412542112768">5楼 34单元</a></div><p id="bc_0_52MC" class="comment-content">如何看这楼，匿名不是同一个人，起码是两个，而且都是五毛。鉴定完毕。赌五毛。</p><span id="bc_0_52MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1326311143"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=6566956411486367802">删除34单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_52BR" class="comment-replies"></div><div id="bc_0_52B_box" class="comment-replybox-single"></div></li><li id="bc_0_53B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/b36-rounded.png"></div><div id="c4340824288135156710" class="comment-block"><div id="bc_0_53M" class="comment-header" kind="m"><cite class="user"><a rel="nofollow" href="http://www.blogger.com/profile/02519951701119232420">Ho Steven</a></cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412549247697">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412549247697">5楼 35单元</a></div><p id="bc_0_53MC" class="comment-content">从28单元可以看出五毛使用的诱导方式，这大概也是中共近百年以来在他们称之为“思想改造”的洗脑过程中总结出来的手法。<br><br>首先，他们使用的都是封闭式提问（yes or no),而不是开放式（是什么，为什么，怎么做），这种非是即否的问法本身已经限制了回答者的反应。<br><br>其次，其所提问题显然不能反映事实，只诱导大家给出他们想要的答案。让我们用类似的方法提问：<br>你承认占中损害的是港府和中共利益吗？<br>你承认报道的22万抗议者代表了香港支持自由民主的主流民意吗？<br>你承认这样的抗议会促进香港的政治进步从而有利香港的长远发展吗，虽然会付出短期的经济代价？（何况旅游业不到香港GDP的5%）？<br>你承认学生们不惜放弃休息时间甚至学业来获得他们想要的民主吗？<br>你承认你反对学生抗议是党在背后提供经济和政治支持吗？（因为这和你支持共产党的意见是一致的）</p><span id="bc_0_53MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-2878647"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=4340824288135156710">删除35单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_53BR" class="comment-replies"></div><div id="bc_0_53B_box" class="comment-replybox-single"></div></li><li id="bc_0_54B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c7241969947945926033" class="comment-block"><div id="bc_0_54M" class="comment-header" kind="m"><cite class="user">请叫我雷锋</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412549495607">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412549495607">5楼 36单元</a></div><p id="bc_0_54MC" class="comment-content">你呀，最好弄一T恤，把“支那猪”写在上面，跟人说你定制的，天天穿着它，见了人就把你思路跟人说一遍，用不了几天你就出名了，多好！当然 ，注意安全。<br><br>那
+守日人肯定是皇军当年强奸他祖母全家女性留下在天朝的日杂，这不，总算偷蒙拐骗凑够钱留学东瀛可以认祖归宗了，你看它这几个月一口一个支那那得瑟样，呵
+呵。这样还不满足，这不，现在连名字也改回日本鬼子的，ID也叫守护大日本帝国的人了。劝君莫理会这个皇协军。它会把你的智商拉到和它同一阵线，然后用它
+丰富的经验打败你。<br><br>另外楼上的匿名兄弟，我是支持占中学生的。你看蓝杂军，又是花钱雇用黑社会打砸抢，又是非礼女占中示威者等等，真是猪狗不如，简直就像是守日人日杂它的爹娘2.0版。</p><span id="bc_0_54MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-376502170"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=7241969947945926033">删除36单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_54BR" class="comment-replies"></div><div id="bc_0_54B_box" class="comment-replybox-single"></div></li><li id="bc_0_55B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/b36-rounded.png"></div><div id="c5891936995951846599" class="comment-block"><div id="bc_0_55M" class="comment-header" kind="m"><cite class="user"><a rel="nofollow" href="http://www.blogger.com/profile/02519951701119232420">Ho Steven</a></cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412550009120">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412550009120">5楼 37单元</a></div><p id="bc_0_55MC" class="comment-content">从35单元所举例子可以看出，开放理性的思维至关重要。<br><br>我们多问问“是什么”，比如参加占中的都有什么人，是否如五毛所说都是学生，有没有工商界人士，演艺界人士，甚至牧师等各界代表。<br><br>我们多问问“为什么”，为什么他们敢不畏暴力直面镇压，真的只是一己之私，要挟经济来换取民主？<br><br>有了理性的逻辑思维，党国的洗脑和煽动技俩就不攻自破。这也是随想所说，普及和提高国民心理和政治素质的重要性所在。<br></p><span id="bc_0_55MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-2878647"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=5891936995951846599">删除37单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_55BR" class="comment-replies"></div><div id="bc_0_55B_box" class="comment-replybox-single"></div></li><li id="bc_0_56B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c3468478789394429480" class="comment-block"><div id="bc_0_56M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412550689646">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412550689646">5楼 38单元</a></div><p id="bc_0_56MC" class="comment-content">我对你们的评价是这样的：<br><br>党国对待不同政见者设置新闻审查。<br>你们对待不同政见者加以辱骂。<br><br>党国外交发言人犯下可笑错误：不要拿法律当挡箭牌<br>你们声称理智却口不对心。<br><br>党国提出求同存异的政治解决方案。<br>你们坚持排除异己的基本方针不动摇。（你们太嫩，光博取同情远远不够)<br><br>你们大谈政治却不知道政治的基础是多数人的支持，要不然你们不会拼命排除异己，很没风度。<br>你们支持“占中”学生拿香港经济做筹码来要挟政府满足政治诉求，却不知道党国的筹码是枪（党国自称是基本法，其实到最后还是用枪）。<br><br>你们不觉得自己是少数人的话可以看看有那个有影响力的人出来支持你们！（太嫩）<br><br><br><br><br></p><span id="bc_0_56MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1259200534"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=3468478789394429480">删除38单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="hide">隐藏所有匿名评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_56BR" class="comment-replies"></div><div id="bc_0_56B_box" class="comment-replybox-single"></div></li><li id="bc_0_57B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c7965433746767619163" class="comment-block"><div id="bc_0_57M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412551089627">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412551089627">5楼 39单元</a></div><p id="bc_0_57MC" class="comment-content">我其实是看得起博主的，至于你们，真是不屑一顾，我说过你们成不了的话，这话一直算数！</p><span id="bc_0_57MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1259200534"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=7965433746767619163">删除39单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="hide">隐藏所有匿名评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_57BR" class="comment-replies"></div><div id="bc_0_57B_box" class="comment-replybox-single"></div></li><li id="bc_0_58B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c8913311351511254647" class="comment-block"><div id="bc_0_58M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412551519715">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412551519715">5楼 40单元</a></div><p id="bc_0_58MC" class="comment-content">支那猪这句话呢，是“守夜人”这ID征求博主同意用来骂我的，你也受不了了是吧，“守夜人”这ID还说有人听了会高潮，我觉得雷锋同志已经高潮了。</p><span id="bc_0_58MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1259200534"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=8913311351511254647">删除40单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="hide">隐藏所有匿名评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_58BR" class="comment-replies"></div><div id="bc_0_58B_box" class="comment-replybox-single"></div></li><li id="bc_0_59B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c4552631086448354651" class="comment-block"><div id="bc_0_59M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412551675054">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412551675054">5楼 41单元</a></div><p id="bc_0_59MC" class="comment-content">不逗你们玩儿了，你们容易急眼。我等着你们早日争取民主的好消息！我也盼着这一天呢。</p><span id="bc_0_59MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1259200534"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=4552631086448354651">删除41单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="hide">隐藏所有匿名评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_59BR" class="comment-replies"></div><div id="bc_0_59B_box" class="comment-replybox-single"></div></li><li id="bc_0_60B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c3516236293632703286" class="comment-block"><div id="bc_0_60M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412552454038">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412552454038">5楼 42单元</a></div><p id="bc_0_60MC" class="comment-content">对于你们我就是哄小孩的态度，你们可以看看我和博主是怎么交流的。仔细研读一下，你就知道不光是党国矛盾。</p><span id="bc_0_60MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1259200534"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=3516236293632703286">删除42单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="hide">隐藏所有匿名评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_60BR" class="comment-replies"></div><div id="bc_0_60B_box" class="comment-replybox-single"></div></li><li id="bc_0_61B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c2393225320975400206" class="comment-block"><div id="bc_0_61M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412552621118">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412552621118">5楼 43单元</a></div><p id="bc_0_61MC" class="comment-content">至于矛盾的问题，建议博主来一篇博文，好好说一下，这么多人都不明白。</p><span id="bc_0_61MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1259200534"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=2393225320975400206">删除43单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="hide">隐藏所有匿名评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_61BR" class="comment-replies"></div><div id="bc_0_61B_box" class="comment-replybox-single"></div></li><li id="bc_0_62B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/b36-rounded.png"></div><div id="c5757761881565096583" class="comment-block"><div id="bc_0_62M" class="comment-header" kind="m"><cite class="user"><a rel="nofollow" href="http://www.blogger.com/profile/03115260414378289671">智多星张召忠</a></cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412552769091">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412552769091">5楼 44单元</a></div><p id="bc_0_62MC" class="comment-content">大家别骂他了，都是自己的钱。他要说便由得他。</p><span id="bc_0_62MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1326311143"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=5757761881565096583">删除44单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_62BR" class="comment-replies"></div><div id="bc_0_62B_box" class="comment-replybox-single"></div></li><li id="bc_0_63B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/b36-rounded.png"></div><div id="c6142826247752789934" class="comment-block"><div id="bc_0_63M" class="comment-header" kind="m"><cite class="user"><a rel="nofollow" href="http://www.blogger.com/profile/03115260414378289671">智多星张召忠</a></cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412553443927">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412553443927">5楼 45单元</a></div><p id="bc_0_63MC" class="comment-content">给个建议，要充大头鬼，尽量不要匿名。</p><span id="bc_0_63MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1326311143"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=6142826247752789934">删除45单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_63BR" class="comment-replies"></div><div id="bc_0_63B_box" class="comment-replybox-single"></div></li><li id="bc_0_64B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c2747933610394862630" class="comment-block"><div id="bc_0_64M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412555940639">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412555940639">5楼 46单元</a></div><p id="bc_0_64MC" class="comment-content">其
+实大家看了博主的双重思想文章觉得是被洗脑了，其实呢，现实当中人是有利己思想的，任何情况下人都是站在对自己有利的立场讲话（我站在我的立场说我不去抗
+议，你们说我自私）。党国不需要搞那么麻烦，给你灌输思想洗脑，施以压力，你们就得站队（当然你们也是一样的），人在这种情况就会为自己切身利益考虑说出
+矛盾的话。</p><span id="bc_0_64MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1259200534"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=2747933610394862630">删除46单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="hide">隐藏所有匿名评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_64BR" class="comment-replies"></div><div id="bc_0_64B_box" class="comment-replybox-single"></div></li><li id="bc_0_65B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c3786033703361781968" class="comment-block"><div id="bc_0_65M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412556456716">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412556456716">5楼 47单元</a></div><p id="bc_0_65MC" class="comment-content">最
+后我作为一个局外人，以温和的态度给大家点建议，我会婉转的表达（不再说你们幼稚）：有句话是这么说的，在印度生活不是要你斗得过阿三，而是要你变成阿
+三。那些充满自由民主理想的年轻人，可以想办法参政议政，以政治手段争取民主。如果你想赤手空拳威胁一个拿枪的人就太幼稚了。如果你们想着赤手空拳打到拿
+枪的人，你们就太不理智了，如果你们想弄把枪和他们对打，就不符合大多人要求和平的意愿。我也不愿意看到。带着仇恨不是一个解决问题的正确态度。</p><span id="bc_0_65MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1259200534"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=3786033703361781968">删除47单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="hide">隐藏所有匿名评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_65BR" class="comment-replies"></div><div id="bc_0_65B_box" class="comment-replybox-single"></div></li><li id="bc_0_66B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c7919093081352417218" class="comment-block"><div id="bc_0_66M" class="comment-header" kind="m"><cite class="user">终党爱国</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412558684049">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412558684049">5楼 48单元</a></div><p id="bc_0_66MC" class="comment-content">我承认占中的主力是学生和年轻人。（学生和年轻人容易产生对中共的不满）<br>我承认报道的22万抗议者是香港居民的少数人。（人数少但是有四大影帝这样的人站出来支持）<br>我承认这样的抗议会影响到香港的经济，但是对中共的影响更大。<br>我承认学生们是拿香港的经济来要挟中共来获得他们想要的民主。<br>当然刚才我不承认这样做事不理智的。大家都看到了。<br>我承认我说自己很理智，但是表态却没有大相近庭。<br>我承认我很喜欢看到学生抗议。（因为这和我反对共产党的政见是一致的）<br>我承认我的看客一直在对你进行攻击。<br>我承认这些都是我教他们的。<br>我承认我是一个理智的人。</p><span id="bc_0_66MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1174764879"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=7919093081352417218">删除48单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_66BR" class="comment-replies"></div><div id="bc_0_66B_box" class="comment-replybox-single"></div></li><li id="bc_0_67B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c8369683359789554558" class="comment-block"><div id="bc_0_67M" class="comment-header" kind="m"><cite class="user">终党爱国</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412559007300">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412559007300">5楼 49单元</a></div><p id="bc_0_67MC" class="comment-content">最
+后我作为一个局外人，以温和的态度给你点建议，我会婉转的表达（不再说你幼稚）：有句话是这么说的，在中国生活不是要你斗得过中共，而是要你变成中共。在
+中共国，那些充满自由民主理想的年轻人，不可以想办法参政议政，以政治手段争取民主。如果你想赤手空拳威胁拿枪的中共就太幼稚了。如果你们想着赤手空拳打
+到拿枪的中共，你们就太不理智了，如果你们想弄把枪和中共对打，就不符合大多人要求和平的意愿。我也不愿意看到。带着仇恨不是一个解决问题的正确态度。</p><span id="bc_0_67MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1174764879"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=8369683359789554558">删除49单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_67BR" class="comment-replies"></div><div id="bc_0_67B_box" class="comment-replybox-single"></div></li><li id="bc_0_68B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c913600102901943758" class="comment-block"><div id="bc_0_68M" class="comment-header" kind="m"><cite class="user">终党爱国</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412559362461">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412559362461">5楼 50单元</a></div><p id="bc_0_68MC" class="comment-content">其
+实大家看了博主的双重思想文章觉得并没有被洗脑，其实呢，现实当中人是有利己思想的，任何情况下人都是站在对自己有利的立场讲话（我站在我的立场说我不去
+抗议）。党国不需要搞那么麻烦，给你灌输思想洗脑，施以压力，你们就得站队（当然你们也是一样的），人在这种情况就会为自己切身利益考虑说出矛盾的话。</p><span id="bc_0_68MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1174764879"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=913600102901943758">删除50单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_68BR" class="comment-replies"></div><div id="bc_0_68B_box" class="comment-replybox-single"></div></li><li id="bc_0_69B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/b36-rounded.png"></div><div id="c5766040817344456516" class="comment-block"><div id="bc_0_69M" class="comment-header" kind="m"><cite class="user"><a rel="nofollow" href="http://www.blogger.com/profile/02356018146117023234">zhudong</a></cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412561633007">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412561633007">5楼 51单元</a></div><p id="bc_0_69MC" class="comment-content">本层讨论出现了大仙，信徒等词汇，这是混淆科学和宗教的做法，会造成科学问题无标准。<br>政治是社会科学问题，目的是建立高效的社会管理体系。科学的探讨方法不是大仙向信徒传教，而是建立理论，逻辑推论，并在现实中检验，科学需要不同观点的辩论，但有一定的标准，如理论的逻辑性和现实适用性，有些观点会被淘汰。<br>宗教的方法不同，宗教的目的是获得心灵的安慰，只要没有超越人权界限成为邪教，所有宗教都是平等的，信仰取决个人好恶，没有标准，其探讨方法类似大仙传教。<br>用宗教方法比喻科学讨论，会使科学问题失去标准，造成混乱。</p><span id="bc_0_69MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-172031764"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=5766040817344456516">删除51单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_69BR" class="comment-replies"></div><div id="bc_0_69B_box" class="comment-replybox-single"></div></li><li id="bc_0_70B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/b36-rounded.png"></div><div id="c4752733672741244809" class="comment-block"><div id="bc_0_70M" class="comment-header" kind="m"><cite class="user"><a rel="nofollow" href="http://www.blogger.com/profile/02356018146117023234">zhudong</a></cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?showComment=1412561883682#c4752733672741244809">十月 06, 2014</a></span><span class="counter">5楼 52单元</span></div><p id="bc_0_70MC" class="comment-content"><span class="deleted-comment">此评论已被作者删除。</span></p><span id="bc_0_70MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin "><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=4752733672741244809">删除52单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_70BR" class="comment-replies"></div><div id="bc_0_70B_box" class="comment-replybox-single"></div></li><li id="bc_0_71B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c1004839347096471043" class="comment-block"><div id="bc_0_71M" class="comment-header" kind="m"><cite class="user">get freedom</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412564274059">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412564274059">5楼 53单元</a></div><p id="bc_0_71MC" class="comment-content">TO 40单元<br>"支那猪这句话呢，是“守夜人”这ID征求博主同意用来骂我的" 混淆视听也太明目张胆了吧？当别人都瞎了吗？<br>本楼1单元博主对守夜人说：“俺看到你在前一篇博文的留言区里面讨论得热烈。<br>不过最好不用使用人身攻击的词汇。”</p><span id="bc_0_71MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-695323084"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=1004839347096471043">删除53单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_71BR" class="comment-replies"></div><div id="bc_0_71B_box" class="comment-replybox-single"></div></li><li id="bc_0_72B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/b36-rounded.png"></div><div id="c3511385140081828843" class="comment-block"><div id="bc_0_72M" class="comment-header" kind="m"><cite class="user"><a rel="nofollow" href="http://www.blogger.com/profile/03115260414378289671">智多星张召忠</a></cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412569532109">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412569532109">5楼 54单元</a></div><p id="bc_0_72MC" class="comment-content">五毛有个特征就是不停地逗别人说话。这次咱们帮他赚狠了。</p><span id="bc_0_72MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1326311143"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=3511385140081828843">删除54单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_72BR" class="comment-replies"></div><div id="bc_0_72B_box" class="comment-replybox-single"></div></li><li id="bc_0_73B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c2816199134146391481" class="comment-block"><div id="bc_0_73M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412613632722">十月 07, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412613632722">5楼 55单元</a></div><p id="bc_0_73MC" class="comment-content">我
+一直都喜欢编程的文章，觉得编程很多地方写的很对，我也表示支持，虽然我没没有留言。可对于占中这件事情上，博主会去支持，让我很不可思议。我不知道这个
+占中能带来多大的意义呢？这是作为我一个旁观者来说，最起码会搅乱经济，这是事实。再有，博主貌似并不是一个公正的人，因为在图片上用了大量引导中共不好
+的词语，也是让我不解的。如果博主看到，请回复，谢谢！</p><span id="bc_0_73MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1253658667"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=2816199134146391481">删除55单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="hide">隐藏所有匿名评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_73BR" class="comment-replies"></div><div id="bc_0_73B_box" class="comment-replybox-single"></div></li><li id="bc_0_74B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c6111605675922543429" class="comment-block"><div id="bc_0_74M" class="comment-header" kind="m"><cite class="user">get freedom</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412640933573">十月 07, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412640933573">5楼 56单元</a></div><p id="bc_0_74MC" class="comment-content">TO 55单元<br>这招也是老招啦。前半段假装忠实读者，然后提出批评，虽然博主是欢迎批评的，但是这种批评显然不是一个老读者提出来的。<br>另外还重复留言，证据：<br><a rel="nofollow" target="_blank" title="超链接语法&amp;#65306;
+评论中的网址&amp;#65292;如果两端是空格或换行&amp;#65292;评论发布后会自动变成可点击的超链接&amp;#12290;
+
+&amp;#65288;网址必须以 http:// 或 https:// 开头&amp;#65289;" href="2014/10/weekly-share-74.md?comment=1412613681886" class="bbcode simple">2014/10/weekly-share-74.md?comment=1412613681886</a><br>所以，你懂的</p><span id="bc_0_74MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-411702495"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=6111605675922543429">删除56单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_74BR" class="comment-replies"></div><div id="bc_0_74B_box" class="comment-replybox-single"></div></li><li id="bc_0_236B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/photo.png"></div><div id="c3979531227378244261" class="comment-block"><div id="bc_0_236M" class="comment-header" kind="m"><cite class="user"><a rel="nofollow" href="http://www.blogger.com/profile/11275317159378783280">守夜人</a></cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412686091971">十月 07, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412686091971">5楼 57单元</a></div><p id="bc_0_236MC" class="comment-content">一句“支那猪”就把五毛全都引到这个楼下了，说明我抢个前排还是非常正确的，让这帮傻逼自曝其丑是我最喜闻乐见的。<br><br>支那五毛是一群非常强悍的群体，我骂它们是支那猪，它们能嘲笑编程随想；众人把它们的诡辩拆穿了它们还能嘲笑编程随想；它们逻辑不清，自己把自己给骂了，还能嘲笑编程随想。<br><br>其
+实熟悉我的人都知道，“支那”这个词绝对不是骂他们的。我以前也非常不赞同“支那”这个词，也在这里发过牢骚，可我的思想架不住时间的考验，在伟光正的带
+领下，支那猪已经用很多无与伦比的事迹证明它们确实不配做人，想不骂它们支那猪都不行，比如在这楼跳出来的那几位就是典型的支那猪，真想看看在这屏幕后面
+是一张多么让人作呕的嘴脸。</p><span id="bc_0_236MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1433208295"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=3979531227378244261">删除57单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_236BR" class="comment-replies"></div><div id="bc_0_236B_box" class="comment-replybox-single"></div></li><li id="bc_0_268B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c8043810822990768581" class="comment-block"><div id="bc_0_268M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412795853044">十月 09, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412795853044">5楼 58单元</a></div><p id="bc_0_268MC" class="comment-content">说得好，支持你，犬养太郎。さて、犬飼太郎をあなたをサポートし、言った。</p><span id="bc_0_268MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-390769934"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=8043810822990768581">删除58单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_268BR" class="comment-replies"></div><div id="bc_0_268B_box" class="comment-replybox-single"></div></li><li id="bc_0_272B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c8496125304050945996" class="comment-block"><div id="bc_0_272M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412823005598">十月 09, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412823005598">5楼 59单元</a></div><p id="bc_0_272MC" class="comment-content">只会用机器翻译的SB不要在这里秀你的低智商了。<br>翻訳ソフトを使ったりしかできないやつさっさと消えたまえ！<br>我就不说什么支那了，自己什么样自己清楚。<br>无论是100年前还是现在，日本的发展都是很值得中国人学习的。<br>被洗脑的SB在这里都要煽动民族情绪，对这个国家没有一点好处。<br>哦，有一点，共党的头头能活得更长一点。</p><span id="bc_0_272MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1406162312"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=8496125304050945996">删除59单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_272BR" class="comment-replies"></div><div id="bc_0_272B_box" class="comment-replybox-single"></div></li><li id="bc_0_290B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c8598146941971132753" class="comment-block"><div id="bc_0_290M" class="comment-header" kind="m"><cite class="user">请叫我雷锋</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412878275668">十月 10, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412878275668">5楼 60单元</a></div><p id="bc_0_290MC" class="comment-content">认
+祖归宗就是好啊犬飼太郎，日文杠杠的。不错，不过你怎么不用你的守日人ID了，不再明目张胆地公开叫拥护大日本帝国皇军的人了？又改用偷偷摸摸的第五纵队
+手法了？犯不着这样嘛，这里随便一砖头可以拍死三五个美狗日杂的地方，你的同类很多啊。你现在这样做就太不厚道了吧？犬飼君</p><span id="bc_0_290MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1241943971"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=8598146941971132753">删除60单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_290BR" class="comment-replies"></div><div id="bc_0_290B_box" class="comment-replybox-single"></div></li><li id="bc_0_291B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c7313135622106521328" class="comment-block"><div id="bc_0_291M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412903138734">十月 10, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412903138734">5楼 61单元</a></div><p id="bc_0_291MC" class="comment-content">美狗日杂最多的是北京，习包子的公主拿美国绿卡，曾公子在澳洲拆豪宅，芮07的朋友是克林顿，689领澳洲工资……</p><span id="bc_0_291MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-858138739"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=7313135622106521328">删除61单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_291BR" class="comment-replies"></div><div id="bc_0_291B_box" class="comment-replybox-single"></div></li><li id="bc_0_294B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/photo.png"></div><div id="c2256090360953106842" class="comment-block"><div id="bc_0_294M" class="comment-header" kind="m"><cite class="user"><a rel="nofollow" href="http://www.blogger.com/profile/11275317159378783280">守夜人</a></cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412915402379">十月 10, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412915402379">5楼 62单元</a></div><p id="bc_0_294MC" class="comment-content">楼
+上的支那猪真是不专业，凡是看过我G+言论的都知道我是美军的支持者，是日本的反对者，我已经不止一次的批评日本对中国的伤害，包括战后六四援华，借着共
+匪和中华民国的矛盾坑走钓鱼岛等一系列投机行为。就算我支持美军，也不指望美军能帮助支那民主化，现实如此，没有那个国家有这个义务。<br><br>好生奇怪，由于经常跟台湾人聊天儿，过去都是被支那猪当成台湾人，这次是头一次被支那猪当成日本人。我看再扣一次香港人，这名号就集齐了。<br><br>不
+知道那位犬养太郎是哪位人士，G+上我见过几个日本民族主义者，持的都是右翼观点，不知道你是不是他们其中的一个？这里是开放的，能看到这个博客的人，都
+在提升自己的思维能力和基本的素养，对于不同的观点基本上都能讨论，只要不是持右翼观点的日本人，我相信跟这里的人百分之百有讨论的基础，然而，就算持右
+翼观点，也不见得就不能讨论。倒是支那的五毛会集体高潮，像苍蝇一样扑上来。。。。</p><span id="bc_0_294MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1433208295"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=2256090360953106842">删除62单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_294BR" class="comment-replies"></div><div id="bc_0_294B_box" class="comment-replybox-single"></div></li><li id="bc_0_298B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c3736314735562193218" class="comment-block"><div id="bc_0_298M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412937728148">十月 10, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412937728148">5楼 63单元</a></div><p id="bc_0_298MC" class="comment-content">日本确实对中国有侵犯利益的行为，但是不要忘了侵犯中国人最多的是共党。<br><br>你
+所说的六四援华，我没有找到任何依据证明两者有关系，日本没有向中国提供武器，仅仅是民间基础设施建设，无论哪个国家进行这样的贷款都是非常正常的，倒不
+如说中国人不感到感激甚至故意淡化这方面的影响才是令人感到奇怪的。关于尖閣列島，无论台湾还是大陆都是1994年《联合国海洋法公约》生效以后之后才来
+明确宣示主权的，之前的地图和国际条约一直将其视为日本领土。我知道你们很想要那块地，也很记恨曾经的战争，但是事实就是事实，请查阅资料再来说话。</p><span id="bc_0_298MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1406162312"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=3736314735562193218">删除63单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_298BR" class="comment-replies"></div><div id="bc_0_298B_box" class="comment-replybox-single"></div></li><li id="bc_0_301B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/photo.png"></div><div id="c3021015806698347957" class="comment-block"><div id="bc_0_301M" class="comment-header" kind="m"><cite class="user"><a rel="nofollow" href="http://www.blogger.com/profile/11275317159378783280">守夜人</a></cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412941196171">十月 10, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412941196171">5楼 64单元</a></div><p id="bc_0_301MC" class="comment-content">钓
+鱼岛的历史我还真不了解，钓鱼岛移交托管是在1969年，当年毛XX一高兴，直接说钓鱼岛是日本的，中华民国（台湾）也没有抗议，不知道为啥。鉴于共产党
+对领土的态度，割让任何领土的时候，共产党都不会让民众投票自决。所以我认为凡是领土争议，跟支那有关系的，都算不上正当。当然，领土问题不是重点。<br><br>重
+点就在于对华援助，64事件之后，日本是第一个恢复对支那援助的（虽然不一定相关），我的态度是，两国做生意没问题，但与狼共舞就得掂量掂量后果。发达国
+家让共匪加入wto是最大的失误之一。日本的的确确帮助支那搞起了现代化，但日本（整个世界都是如此）自己也要承受这个后果。<br><br>你说到我们
+不知道感激，中国人确实不知道，就连我这个反共反华的人也是最近才知道对华援助，为啥？教科书不提，媒体也不提。为啥不提？不就是用来反日嘛？这个都看不
+出来？你说的“我们淡化处理”也很成问题，“我们”不能投票选政府，“我们”不能修改教科书，“我们”自己不能办媒体。如此环境，何来感激？<br><br>现在共匪不说兵雄马壮，对外威胁能力日益增长是肯定的，这就是支那因为世界政府在左派思想的影响下对它妥协造成的局面之一，安倍上台，不也代表着日本打算修改昔日的对话政策吗？<br><br>我也不仅仅是对日本有微词，来支那做生意的任何国家我都有些微词，共匪对民众的监视技术，还有一些武警用的镇压工具，装备，都是从国际上搞来的，这些让它们自己造，根本造不出来。<br><br>至
+于中日战争，我觉得这是很长时间内，这个坎是迈不过去了，由于仇日宣传的影响，大部分人是不会改变对日本的态度。还有一部分摆脱共产党价值观的人，也自然
+会知道当年日本侵华，搞残了国民党，共产党借此壮大了，然后搞死了八千万人，从这个角度讲，他们就算不仇日，也不会对日本有多好的感觉。</p><span id="bc_0_301MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1433208295"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=3021015806698347957">删除64单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_301BR" class="comment-replies"></div><div id="bc_0_301B_box" class="comment-replybox-single"></div></li><li id="bc_0_323B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c8904526276222412136" class="comment-block"><div id="bc_0_323M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413059005757">十月 12, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1413059005757">5楼 65单元</a></div><p id="bc_0_323MC" class="comment-content">所以这就是太郎你的职责了，要不天皇给这么多钱供养你做什么？堡垒都是从内部攻破的，瓦解分裂中国就是你们这些21世纪汪精卫皇协军为天皇陛下尽忠再次侵华作准备要做的事。</p><span id="bc_0_323MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1138024910"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=8904526276222412136">删除65单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_323BR" class="comment-replies"></div><div id="bc_0_323B_box" class="comment-replybox-single"></div></li><li id="bc_0_332B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c8467356097006771664" class="comment-block"><div id="bc_0_332M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413117867308">十月 12, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1413117867308">5楼 66单元</a></div><p id="bc_0_332MC" class="comment-content">你这么说世界上还有哪个国家是好的？<br>可能刘晓波说的是对的，中国真的缺乏殖民历史。</p><span id="bc_0_332MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1406162312"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=8467356097006771664">删除66单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_332BR" class="comment-replies"></div><div id="bc_0_332B_box" class="comment-replybox-single"></div></li></div><div id="bc_0_19I" class="continue" kind="ci"><a href="javascript:;" target="_self">回复5楼</a></div></ol><div id="bc_0_19T_box" class="comment-replybox-thread"></div></div></span></div><div id="bc_0_75B_box" class="comment-replybox-single"></div></li><li id="bc_0_84B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c8764082504388057091" class="comment-block"><div id="bc_0_84M" class="comment-header" kind="m"><cite class="user">忠党爱国</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412514951699">十月 05, 2014</a></span><a style="font-size: 125%;" class="counter" href="2014/10/weekly-share-74.md?comment=1412514951699">6楼</a></div><p id="bc_0_84MC" class="comment-content">那些声称设立特首提名委员会，实质上就是中央政府垄断特首提名权的说法，无视了这样一个基本事实，那就是香港特首提名委员会成员，四分之三由香港各功能组别分别选出，中央政府并没有权利指定任何一名提名委员会成员。另外四分之一委员事实上由香港市民直选产生。<br><br>在各个功能组别内部，提名委员的推选办法各不相同，但是总体上是民主选举的，中央政府不可能操纵数十个功能组别各自的选举过程，不可能决定各个功能组别的选举结果。<br><br>况且，香港政改的大方向是逐步缩小，最终取消功能组别，逐步扩大直选议员比例，最终实现立法会和特首提名委员会全部由香港市民直选代表组成。 这是中央政府与香港建制派，泛民主派已经形成默契的共识。而且在全国人大2012年的决定中已有明确体现。<br><br>按照这样一个渐进的方案，稳步推进香港民主进程，是对香港人民和全体中国人民最有利，代价最小的方案。<br><br>按照香港少数极端分子的想法，撤销提名委员会筛选机制，让各路妖孽在特首选举的舞台上兴风作浪，尽情表演，这会对香港社会造成严重的伤害，甚至撕裂香港，让香港陷入无休止的政治争论中，丧失发展机遇，最终在中华民族伟大复兴的道路上彻底边缘化。<br><br>冒名顶替死全家。如无此声明，必为冒名顶替者。</p><span id="bc_0_84MN" class="comment-actions secondary-text" kind="m"><a kind="i" href="javascript:;" target="_self" o="r">回复6楼</a><span class="item-control blog-admin pid-313879263"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=8764082504388057091">删除6楼</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_84BR" class="comment-replies"><span id="bc_0_84b+seedS59-D" kind="d"><div id="bc_0_76T" class="comment-thread inline-thread" kind="t" t="0" u="0"><span id="bc_0_76TT" class="thread-toggle thread-expanded" kind="g"><span id="bc_0_76TA" class="thread-arrow"></span><span id="bc_0_76TN" class="thread-count"><span id="bc_0_76TNT" style="display: none;"></span><span id="bc_0_76TNU" style="display: none;"></span><a href="javascript:;" target="_self">回复</a><div id="bc_0_76TD" class="thread-dropContainer thread-expanded"><span class="thread-drop"></span></div></span></span><ol id="bc_0_76TC" class="thread-chrome thread-expanded"><div><li id="bc_0_76B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c4104046420590715759" class="comment-block"><div id="bc_0_76M" class="comment-header" kind="m"><cite class="user">get freedom</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412515429562">十月 05, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412515429562">6楼 1单元</a></div><p id="bc_0_76MC" class="comment-content">我去，终党碍国都跑到我前面了，这么积极，加班费挺高啊<br>你重复发贴，还好意思说别人冒名顶替？重复发贴死全家！<br>证据：<br><a rel="nofollow" target="_blank" title="超链接语法&amp;#65306;
+评论中的网址&amp;#65292;如果两端是空格或换行&amp;#65292;评论发布后会自动变成可点击的超链接&amp;#12290;
+
+&amp;#65288;网址必须以 http:// 或 https:// 开头&amp;#65289;" href="2014/10/weekly-share-73.md?comment=1412507272252" class="bbcode simple">2014/10/weekly-share-73.md?comment=1412507272252</a><br>我在那回复过你了，你重复我不重复</p><span id="bc_0_76MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1311858796"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=4104046420590715759">删除1单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_76BR" class="comment-replies"></div><div id="bc_0_76B_box" class="comment-replybox-single"></div></li><li id="bc_0_77B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c6873162241027955091" class="comment-block"><div id="bc_0_77M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412516320167">十月 05, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412516320167">6楼 2单元</a></div><p id="bc_0_77MC" class="comment-content">作
+为在香港的大陆学生，我想回答一下这个提名委员会的问题。根据《香港基本法》第45条，普选行政长官的候选人是“由一个有广泛代表性的提名委员会按民主程
+序提名”。但很多香港人质疑这个提名委员会的“广泛代表性”，按照目前的方案，只有24万人可以选举提名委员会的委员，而却有350多万人可以选举立法会
+议员，因此这个提名委员会从一开始就无法代表300多万人的意见了。目前选举委员会共1200人，分为4个界别，每个界别300人，但很多港人对于选举委
+员会的界别划分有意见。例如教育界（第 2 界别内的小界别）选民最多，有 8 万多人，只有 30 票；渔<br>农界（第 3 界别内的小界别）选民只有 159 人（其实根据统计资料，渔农界大概有4000余人，但只有159人具有投票权），却有 60 票。</p><span id="bc_0_77MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1476867992"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=6873162241027955091">删除2单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="hide">隐藏所有匿名评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_77BR" class="comment-replies"></div><div id="bc_0_77B_box" class="comment-replybox-single"></div></li><li id="bc_0_78B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c2646351136366314334" class="comment-block"><div id="bc_0_78M" class="comment-header" kind="m"><cite class="user">忠党爱国</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412519337790">十月 05, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412519337790">6楼 3单元</a></div><p id="bc_0_78MC" class="comment-content">全国人民代表大会之前已有决定，逐步缩小功能界别代表比例，最终取消功能组别，逐步扩大直选议员比例，最终实现立法会和特首提名委员会全部由香港市民直选代表组成。<br><br>按照全国人大的安排，香港市民在不久的将来，不仅可以一人一票普选香港特首，更可以一人一票直选立法会议员和特首提名委员会委员，从而完整实现一国两制，港人治港。<br><br>希望广大香港同胞不要被少数政客利用了。<br><br>冒名顶替者死全家。无此声明即为冒用本人名义。<br><br>冒名顶替者在为你们所谓的民主斗士抹黑。</p><span id="bc_0_78MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-313879263"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=2646351136366314334">删除3单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_78BR" class="comment-replies"></div><div id="bc_0_78B_box" class="comment-replybox-single"></div></li><li id="bc_0_79B" class="comment" kind="b"><div class="avatar-image-container"><img src="http://lh6.googleusercontent.com/-fpaYncBYqKs/Th477aX8reI/AAAAAAAAAco/nkud5M9T64w/s48/Thinker.jpg"></div><div id="c4213666463888359556" class="comment-block"><div id="bc_0_79M" class="comment-header" kind="m"><cite class="user blog-author"><a rel="nofollow" href="http://www.blogger.com/profile/11741356469378252621">编程随想</a></cite><span class="icon user blog-author"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412521855797">十月 05, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412521855797">6楼 4单元</a></div><p id="bc_0_79MC" class="comment-content">TO 正牌的“忠党爱国”<br>关于“提名委员会”是否被中央政府操控，1楼5单元 给出了对你的反驳。<br><br>你提到说：<br>“全国人民代表大会之前已有决定，逐步缩小功能界别代表比例，最终取消功能组别”<br><br>咱们朝廷的掌门人习包子，不是经常自诩“三个自信”吗。<br>既然朝廷这么自信，不如现在就“取消功能组别”，实现真普选。这样香港的民众也不会闹，皆大欢喜嘛。<br><br>所以，要么“朝廷的自信”是假的。要么“最终取消功能组别”是假的。</p><span id="bc_0_79MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1582521586"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=4213666463888359556">删除4单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_79BR" class="comment-replies"></div><div id="bc_0_79B_box" class="comment-replybox-single"></div></li><li id="bc_0_80B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c2534177297419037697" class="comment-block"><div id="bc_0_80M" class="comment-header" kind="m"><cite class="user">get freedom</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412523456974">十月 05, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412523456974">6楼 5单元</a></div><p id="bc_0_80MC" class="comment-content">共匪的话能信？官员财产公示吹了多少年？政治改革吹了多少年？</p><span id="bc_0_80MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-297699521"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=2534177297419037697">删除5单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_80BR" class="comment-replies"></div><div id="bc_0_80B_box" class="comment-replybox-single"></div></li><li id="bc_0_81B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c5219290835232373964" class="comment-block"><div id="bc_0_81M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412527351428">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412527351428">6楼 6单元</a></div><p id="bc_0_81MC" class="comment-content">这年头加个班也不容易。现在帖子涨价了吧，昨天听隔壁过来打扫卫生的说最近1块2了哦。</p><span id="bc_0_81MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1991666660"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=5219290835232373964">删除6单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="hide">隐藏所有匿名评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_81BR" class="comment-replies"></div><div id="bc_0_81B_box" class="comment-replybox-single"></div></li><li id="bc_0_82B" class="comment" kind="b"><div class="avatar-image-container"><img src="http://lh6.googleusercontent.com/-fpaYncBYqKs/Th477aX8reI/AAAAAAAAAco/nkud5M9T64w/s48/Thinker.jpg"></div><div id="c6362216245587963643" class="comment-block"><div id="bc_0_82M" class="comment-header" kind="m"><cite class="user blog-author"><a rel="nofollow" href="http://www.blogger.com/profile/11741356469378252621">编程随想</a></cite><span class="icon user blog-author"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412530402456">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412530402456">6楼 7单元</a></div><p id="bc_0_82MC" class="comment-content">TO get freedom<br>如果俺没记错的话，胡耀邦时代就提到过“官员财产公开制度”。<br>到如今都30年了。连影子都没见着。<br>和“官员财产公开”相对比的是——前2年关于网络实名制的立法，全国人大以“闪电式”的速度就通过了。</p><span id="bc_0_82MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1582521586"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=6362216245587963643">删除7单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_82BR" class="comment-replies"></div><div id="bc_0_82B_box" class="comment-replybox-single"></div></li><li id="bc_0_83B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/b36-rounded.png"></div><div id="c5151107195792628752" class="comment-block"><div id="bc_0_83M" class="comment-header" kind="m"><cite class="user"><a rel="nofollow" href="http://www.blogger.com/profile/03115260414378289671">智多星张召忠</a></cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412541662835">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412541662835">6楼 8单元</a></div><p id="bc_0_83MC" class="comment-content">忠党兄，楼上有您同事吗？</p><span id="bc_0_83MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1326311143"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=5151107195792628752">删除8单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_83BR" class="comment-replies"></div><div id="bc_0_83B_box" class="comment-replybox-single"></div></li></div><div id="bc_0_76I" class="continue" kind="ci"><a href="javascript:;" target="_self">回复6楼</a></div></ol><div id="bc_0_76T_box" class="comment-replybox-thread"></div></div></span></div><div id="bc_0_84B_box" class="comment-replybox-single"></div></li><li id="bc_0_85B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c8860443049440652780" class="comment-block"><div id="bc_0_85M" class="comment-header" kind="m"><cite class="user">get freedom</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412515046954">十月 05, 2014</a></span><a style="font-size: 125%;" class="counter" href="2014/10/weekly-share-74.md?comment=1412515046954">7楼</a></div><p id="bc_0_85MC" class="comment-content">tor太卡，几次评论发不出，沙发应该没有了</p><span id="bc_0_85MN" class="comment-actions secondary-text" kind="m"><a kind="i" href="javascript:;" target="_self" o="r">回复7楼</a><span class="item-control blog-admin pid-1311858796"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=8860443049440652780">删除7楼</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_85BR" class="comment-replies"></div><div id="bc_0_85B_box" class="comment-replybox-single"></div></li><li id="bc_0_90B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c7548320488805581940" class="comment-block"><div id="bc_0_90M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412515086146">十月 05, 2014</a></span><a style="font-size: 125%;" class="counter" href="2014/10/weekly-share-74.md?comment=1412515086146">8楼</a></div><p id="bc_0_90MC" class="comment-content">有明白人说说这事的结局吗？共党是不会让步的，学生会吃亏的。他们还有什么筹码。现在就是秀才遇见兵。</p><span id="bc_0_90MN" class="comment-actions secondary-text" kind="m"><a kind="i" href="javascript:;" target="_self" o="r">回复8楼</a><span class="item-control blog-admin pid-1339615872"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=7548320488805581940">删除8楼</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="hide">隐藏所有匿名评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_90BR" class="comment-replies"><span id="bc_0_90b+seedS5-SD" kind="d"><div id="bc_0_86T" class="comment-thread inline-thread" kind="t" t="0" u="0"><span id="bc_0_86TT" class="thread-toggle thread-expanded" kind="g"><span id="bc_0_86TA" class="thread-arrow"></span><span id="bc_0_86TN" class="thread-count"><span id="bc_0_86TNT" style="display: none;"></span><span id="bc_0_86TNU" style="display: none;"></span><a href="javascript:;" target="_self">回复</a><div id="bc_0_86TD" class="thread-dropContainer thread-expanded"><span class="thread-drop"></span></div></span></span><ol id="bc_0_86TC" class="thread-chrome thread-expanded"><div><li id="bc_0_86B" class="comment" kind="b"><div class="avatar-image-container"><img src="http://lh6.googleusercontent.com/-fpaYncBYqKs/Th477aX8reI/AAAAAAAAAco/nkud5M9T64w/s48/Thinker.jpg"></div><div id="c6574844000862948235" class="comment-block"><div id="bc_0_86M" class="comment-header" kind="m"><cite class="user blog-author"><a rel="nofollow" href="http://www.blogger.com/profile/11741356469378252621">编程随想</a></cite><span class="icon user blog-author"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412521207836">十月 05, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412521207836">8楼 1单元</a></div><p id="bc_0_86MC" class="comment-content">TO 8楼的网友<br>结局不好说，受到很多因素的影响。<br>不过俺觉得应该会出现：抗争的长期化。<br>关于“占中”这个话题，去年就开始了。到明年也未必会了结。</p><span id="bc_0_86MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1582521586"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=6574844000862948235">删除1单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_86BR" class="comment-replies"></div><div id="bc_0_86B_box" class="comment-replybox-single"></div></li><li id="bc_0_87B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c1242875828771791694" class="comment-block"><div id="bc_0_87M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412530025819">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412530025819">8楼 2单元</a></div><p id="bc_0_87MC" class="comment-content">结局就是共匪玩完。反正现在共匪民心丧尽，港人就一条路走，要么下跪要么站起来。很显然抗争必然长期化，拖也要拖死共匪。</p><span id="bc_0_87MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-37883822"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=1242875828771791694">删除2单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="hide">隐藏所有匿名评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_87BR" class="comment-replies"></div><div id="bc_0_87B_box" class="comment-replybox-single"></div></li><li id="bc_0_88B" class="comment" kind="b"><div class="avatar-image-container"><img src="http://lh6.googleusercontent.com/-fpaYncBYqKs/Th477aX8reI/AAAAAAAAAco/nkud5M9T64w/s48/Thinker.jpg"></div><div id="c3063539403750422597" class="comment-block"><div id="bc_0_88M" class="comment-header" kind="m"><cite class="user blog-author"><a rel="nofollow" href="http://www.blogger.com/profile/11741356469378252621">编程随想</a></cite><span class="icon user blog-author"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412530499230">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412530499230">8楼 3单元</a></div><p id="bc_0_88MC" class="comment-content">TO 2单元的网友<br>俺希望香港的民主化运动能够作为内地的样板——这也是目前朝廷最不想看到的。</p><span id="bc_0_88MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1582521586"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=3063539403750422597">删除3单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_88BR" class="comment-replies"></div><div id="bc_0_88B_box" class="comment-replybox-single"></div></li><li id="bc_0_89B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c269291315329484185" class="comment-block"><div id="bc_0_89M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412569519991">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412569519991">8楼 4单元</a></div><p id="bc_0_89MC" class="comment-content">香港人手上的籌碼太多了   不怕兵    兵才怕香港    </p><span id="bc_0_89MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1552328928"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=269291315329484185">删除4单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="hide">隐藏所有匿名评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_89BR" class="comment-replies"></div><div id="bc_0_89B_box" class="comment-replybox-single"></div></li></div><div id="bc_0_86I" class="continue" kind="ci"><a href="javascript:;" target="_self">回复8楼</a></div></ol><div id="bc_0_86T_box" class="comment-replybox-thread"></div></div></span></div><div id="bc_0_90B_box" class="comment-replybox-single"></div></li><li id="bc_0_97B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c327591113823258896" class="comment-block"><div id="bc_0_97M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412517446183">十月 05, 2014</a></span><a style="font-size: 125%;" class="counter" href="2014/10/weekly-share-74.md?comment=1412517446183">9楼</a></div><p id="bc_0_97MC" class="comment-content">香港人就活该被奴役，<br>1。部分商家认为是学生而不是梁振英影响了他们做生意<br>2。占中者想与港府对话，但特首办的人数才百余人<br>3。居民区的人数太多，哪怕排除了黑社会的人，也的确引起一部分市民的不满。不管背后有什么理由，简单来看的话就是你挡了我的路！</p><span id="bc_0_97MN" class="comment-actions secondary-text" kind="m"><a kind="i" href="javascript:;" target="_self" o="r">回复9楼</a><span class="item-control blog-admin pid-2122670635"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=327591113823258896">删除9楼</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="hide">隐藏所有匿名评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_97BR" class="comment-replies"><span id="bc_0_97b+seedS5-RD" kind="d"><div id="bc_0_91T" class="comment-thread inline-thread" kind="t" t="0" u="0"><span id="bc_0_91TT" class="thread-toggle thread-expanded" kind="g"><span id="bc_0_91TA" class="thread-arrow"></span><span id="bc_0_91TN" class="thread-count"><span id="bc_0_91TNT" style="display: none;"></span><span id="bc_0_91TNU" style="display: none;"></span><a href="javascript:;" target="_self">回复</a><div id="bc_0_91TD" class="thread-dropContainer thread-expanded"><span class="thread-drop"></span></div></span></span><ol id="bc_0_91TC" class="thread-chrome thread-expanded"><div><li id="bc_0_91B" class="comment" kind="b"><div class="avatar-image-container"><img src="http://lh6.googleusercontent.com/-fpaYncBYqKs/Th477aX8reI/AAAAAAAAAco/nkud5M9T64w/s48/Thinker.jpg"></div><div id="c3550540196277519081" class="comment-block"><div id="bc_0_91M" class="comment-header" kind="m"><cite class="user blog-author"><a rel="nofollow" href="http://www.blogger.com/profile/11741356469378252621">编程随想</a></cite><span class="icon user blog-author"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412520980431">十月 05, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412520980431">9楼 1单元</a></div><p id="bc_0_91MC" class="comment-content">TO 9楼的网友<br>针对你提到的几点，说说俺的观点供参考。<br><br>在出事的旺角周边，是繁华闹市区，确实商铺很多。<br>但是商家的人数和居民区的人数相比，应该还是少数。<br>而学生在那里聚集，“对居民区的影响”应该不如“对商铺的影响”。<br>就算居民区的人感觉不爽，也未必会去找学生们斗殴（不妨设身处地想想，如果你住在那里，会因为交通受影响而去打人吗）<br><br>商铺的人，倒是有可能因为商业利益受损，而感觉很不爽。<br>但是那里的商铺业主，如果要亲自出马或者招呼几个伙计，人数也不会太多。<br>而那天殴打学生的群体，人数很多。<br>显然，不像是单个商铺业主的行为。<br><br>所以，俺只能想到两种可能性：<br>1、要么如外界普遍猜测，是黑社会组织，背后有政治利益在推动<br>2、要么是旺角周边多个商铺的业主联手雇人来斗殴。<br><br>俺倾向于认为前者的可能性较大，后者的可能性很小。<br>在目前这个敏感时期，如果有很多商铺业主联手去雇人来斗殴，终归会走漏风声。<br>一旦被查出来，罪名很大的。所以后者的可能性很小。</p><span id="bc_0_91MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1582521586"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=3550540196277519081">删除1单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_91BR" class="comment-replies"></div><div id="bc_0_91B_box" class="comment-replybox-single"></div></li><li id="bc_0_92B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c7811951588031225930" class="comment-block"><div id="bc_0_92M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412530465413">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412530465413">9楼 2单元</a></div><p id="bc_0_92MC" class="comment-content">有几个商户真会为了几个钱毁掉未来毁掉下一代，这种没有政治头脑的猪头经商血本无归是必须的，没有长远眼光，只知眼前利益的奸商迟早玩完，香港共匪化，那就喝西北风吧！</p><span id="bc_0_92MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-37883822"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=7811951588031225930">删除2单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="hide">隐藏所有匿名评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_92BR" class="comment-replies"></div><div id="bc_0_92B_box" class="comment-replybox-single"></div></li><li id="bc_0_93B" class="comment" kind="b"><div class="avatar-image-container"><img src="http://lh6.googleusercontent.com/-fpaYncBYqKs/Th477aX8reI/AAAAAAAAAco/nkud5M9T64w/s48/Thinker.jpg"></div><div id="c1317942534950225427" class="comment-block"><div id="bc_0_93M" class="comment-header" kind="m"><cite class="user blog-author"><a rel="nofollow" href="http://www.blogger.com/profile/11741356469378252621">编程随想</a></cite><span class="icon user blog-author"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412530777582">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412530777582">9楼 3单元</a></div><p id="bc_0_93MC" class="comment-content">TO 2单元的网友<br>看来你跟俺的观点类似。<br>很奇怪居然墙内还有不少人相信朝廷的说辞——旺角附近的居民跟“占中抗议者”斗殴。</p><span id="bc_0_93MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1582521586"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=1317942534950225427">删除3单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_93BR" class="comment-replies"></div><div id="bc_0_93B_box" class="comment-replybox-single"></div></li><li id="bc_0_94B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c2706709064049975838" class="comment-block"><div id="bc_0_94M" class="comment-header" kind="m"><cite class="user">本评论注定被吃</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412554687700">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412554687700">9楼 4单元</a></div><p id="bc_0_94MC" class="comment-content"><div class="bbcode-img"><img onerror="this.alt='&amp;#12288;图片加载失败 :(&amp;#12288;'" title="图片语法&amp;#65306;
+[img]图片网址[/img]
+
+&amp;#65288;网址必须以 http:// 或 https:// 开头&amp;#65289;" class="loaded" src="http://www.botanwang.com/sites/default/files/images/005NmIA4gw1el0ormg3foj30bu073t9o.jpg"><br>（要修改“BBCode图片的显示方式”，请猛击“<a href="p/options.md#bbcode" target="_blank">界面配置</a>”）</div><br><div class="bbcode-img"><img onerror="this.alt='&amp;#12288;图片加载失败 :(&amp;#12288;'" title="图片语法&amp;#65306;
+[img]图片网址[/img]
+
+&amp;#65288;网址必须以 http:// 或 https:// 开头&amp;#65289;" class="loaded" src="http://www.botanwang.com/sites/default/files/images/005MCovsjw1el09qfz9rej30c80et75o.jpg"><br>（要修改“BBCode图片的显示方式”，请猛击“<a href="p/options.md#bbcode" target="_blank">界面配置</a>”）</div><br>有
+一种职业叫做“暴徒”，他们都戴口罩、配“蓝丝带”！网友人肉结果：口罩女叫李红霞， 生于1961年，籍贯：石河子； 
+2000年后新疆军区转入后勤部，2005年进入香港中联部编制，大校军衔，她老公是人大教授。另外，网曝照片中这位昨晚在旺角扮古惑仔，结果被学生和周
+围的真社团人士围住质疑后，他立刻亮出警员证保平安。——请你们不要把在大陆的恶习带到香港去好吗？那里有全世界的媒体在等着看你们真实的嘴脸。<br></p><span id="bc_0_94MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1416972968"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=2706709064049975838">删除4单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_94BR" class="comment-replies"></div><div id="bc_0_94B_box" class="comment-replybox-single"></div></li><li id="bc_0_95B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c7821707254307244029" class="comment-block"><div id="bc_0_95M" class="comment-header" kind="m"><cite class="user">get freedom</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412558399023">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412558399023">9楼 5单元</a></div><p id="bc_0_95MC" class="comment-content">TO 博主<br>这有什么奇怪的。没有其他信息来源+缺乏思维能力，那还不是共匪说什么就信什么。<br>google：香港 警黑合作 证据<br>搜出来一堆。<br>CCAV报道占中、评论占中时，画面都是香港的高楼街道，没有一点混乱的样子；采访的人都是反占中的，更搞笑的居然还有非香港口音的。一个稍微有点思维能力的人都会怀疑了，可惜这样的人太少。<br>口口声声说是【非法】集会，连画面都不敢放，内心多恐惧啊。相较之下，CCAV对其他“非法”活动那是狠狠曝光，什么画面没有？名人嫖娼、吸毒……完了还央视认罪。</p><span id="bc_0_95MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1595957855"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=7821707254307244029">删除5单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_95BR" class="comment-replies"></div><div id="bc_0_95B_box" class="comment-replybox-single"></div></li><li id="bc_0_96B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/b36-rounded.png"></div><div id="c1469224907828191520" class="comment-block"><div id="bc_0_96M" class="comment-header" kind="m"><cite class="user"><a rel="nofollow" href="http://www.blogger.com/profile/02356018146117023234">zhudong</a></cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412574201231">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412574201231">9楼 6单元</a></div><p id="bc_0_96MC" class="comment-content">1、占中支持者有争取民主普选的权利，这种权利不因为多数人不主张而消失。<br>2、占中早就说明，是在法律框架下无法主张合理权利（在提名委员会中无代表）时，采用低限度违法手段的抗议，所以占中确实是非法的。<br>3、即使占中是违法的，自有执法者处理，居民没有执法权（正当防卫有严格的条件）。</p><span id="bc_0_96MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-172031764"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=1469224907828191520">删除6单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_96BR" class="comment-replies"></div><div id="bc_0_96B_box" class="comment-replybox-single"></div></li></div><div id="bc_0_91I" class="continue" kind="ci"><a href="javascript:;" target="_self">回复9楼</a></div></ol><div id="bc_0_91T_box" class="comment-replybox-thread"></div></div></span></div><div id="bc_0_97B_box" class="comment-replybox-single"></div></li><li id="bc_0_100B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/openid36-rounded.png"></div><div id="c7211047837907102930" class="comment-block"><div id="bc_0_100M" class="comment-header" kind="m"><cite class="user"><a rel="nofollow" href="http://shelikhoo.pip.verisignlabs.com/">Shelikhoo</a></cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412517679151">十月 05, 2014</a></span><a style="font-size: 125%;" class="counter" href="2014/10/weekly-share-74.md?comment=1412517679151">10楼</a></div><p id="bc_0_100MC" class="comment-content">爱国就是用自己的努力将国家变为自己理想的国度.比起很多庆幸自己没有参加8-9捡回一条命的人来说,这些占中的香港人才是真正热爱香港的人呀.</p><span id="bc_0_100MN" class="comment-actions secondary-text" kind="m"><a kind="i" href="javascript:;" target="_self" o="r">回复10楼</a><span class="item-control blog-admin pid-139261091"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=7211047837907102930">删除10楼</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_100BR" class="comment-replies"><span id="bc_0_100b+seedS5-bD" kind="d"><div id="bc_0_98T" class="comment-thread inline-thread" kind="t" t="0" u="0"><span id="bc_0_98TT" class="thread-toggle thread-expanded" kind="g"><span id="bc_0_98TA" class="thread-arrow"></span><span id="bc_0_98TN" class="thread-count"><span id="bc_0_98TNT" style="display: none;"></span><span id="bc_0_98TNU" style="display: none;"></span><a href="javascript:;" target="_self">回复</a><div id="bc_0_98TD" class="thread-dropContainer thread-expanded"><span class="thread-drop"></span></div></span></span><ol id="bc_0_98TC" class="thread-chrome thread-expanded"><div><li id="bc_0_98B" class="comment" kind="b"><div class="avatar-image-container"><img src="http://lh6.googleusercontent.com/-fpaYncBYqKs/Th477aX8reI/AAAAAAAAAco/nkud5M9T64w/s48/Thinker.jpg"></div><div id="c6270715002570134961" class="comment-block"><div id="bc_0_98M" class="comment-header" kind="m"><cite class="user blog-author"><a rel="nofollow" href="http://www.blogger.com/profile/11741356469378252621">编程随想</a></cite><span class="icon user blog-author"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412523176578">十月 05, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412523176578">10楼 1单元</a></div><p id="bc_0_98MC" class="comment-content">TO Shelikhoo<br>同意你所说 :)<br><br>补充一下：<br>真正爱国的人，通常都具有“公民意识”，积极参与公共事务。<br>相反，那些对公共事务麻木的人，那些自己不努力却整天寄希望于出现一个圣君或清官。这种人是典型“臣民意识”（也就是“奴性”）<br>中国历史上从秦朝到现在，大部分时间都是中央集权的大帝国。<br>愚民政策造就的奴性文化，已经深入骨髓。<br>所以，天朝民主化的道路还很漫长曲折，大伙儿要有长期奋斗的心理准备。</p><span id="bc_0_98MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1582521586"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=6270715002570134961">删除1单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_98BR" class="comment-replies"></div><div id="bc_0_98B_box" class="comment-replybox-single"></div></li><li id="bc_0_99B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c4644229144333863308" class="comment-block"><div id="bc_0_99M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412527415516">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412527415516">10楼 2单元</a></div><p id="bc_0_99MC" class="comment-content">中国人大部分都是奴性十足的。</p><span id="bc_0_99MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1991666660"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=4644229144333863308">删除2单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="hide">隐藏所有匿名评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_99BR" class="comment-replies"></div><div id="bc_0_99B_box" class="comment-replybox-single"></div></li></div><div id="bc_0_98I" class="continue" kind="ci"><a href="javascript:;" target="_self">回复10楼</a></div></ol><div id="bc_0_98T_box" class="comment-replybox-thread"></div></div></span></div><div id="bc_0_100B_box" class="comment-replybox-single"></div></li><li id="bc_0_106B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c1967184083117566664" class="comment-block"><div id="bc_0_106M" class="comment-header" kind="m"><cite class="user"><a rel="nofollow" href="2014/10/weekly-share-74.md%23comments">支持编程随想</a></cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412518126955">十月 05, 2014</a></span><a style="font-size: 125%;" class="counter" href="2014/10/weekly-share-74.md?comment=1412518126955">11楼</a></div><p id="bc_0_106MC" class="comment-content">这个是“高级黑” ！！！<br><br>深圳同胞冒多大的风险才写了这篇文章，而且被揭露是错的后还不删文章，就是想让广大民众知道中共有多黑。骂中共，还能在深圳网站公开发表，我们应该佩服作者.</p><span id="bc_0_106MN" class="comment-actions secondary-text" kind="m"><a kind="i" href="javascript:;" target="_self" o="r">回复11楼</a><span class="item-control blog-admin pid-1811089692"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=1967184083117566664">删除11楼</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_106BR" class="comment-replies"><span id="bc_0_106b+seedS5-GD" kind="d"><div id="bc_0_101T" class="comment-thread inline-thread" kind="t" t="0" u="0"><span id="bc_0_101TT" class="thread-toggle thread-expanded" kind="g"><span id="bc_0_101TA" class="thread-arrow"></span><span id="bc_0_101TN" class="thread-count"><span id="bc_0_101TNT" style="display: none;"></span><span id="bc_0_101TNU" style="display: none;"></span><a href="javascript:;" target="_self">回复</a><div id="bc_0_101TD" class="thread-dropContainer thread-expanded"><span class="thread-drop"></span></div></span></span><ol id="bc_0_101TC" class="thread-chrome thread-expanded"><div><li id="bc_0_101B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c6303437155547114007" class="comment-block"><div id="bc_0_101M" class="comment-header" kind="m"><cite class="user"><a rel="nofollow" href="2014/10/weekly-share-74.md%3Fcomment%3D1412518126955">支持编程随想</a></cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412518219772">十月 05, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412518219772">11楼 1单元</a></div><p id="bc_0_101MC" class="comment-content">我说的是这篇文章“《深圳高中生致信香港同龄同学：我们都有一个家叫中国》”</p><span id="bc_0_101MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1811089692"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=6303437155547114007">删除1单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_101BR" class="comment-replies"></div><div id="bc_0_101B_box" class="comment-replybox-single"></div></li><li id="bc_0_102B" class="comment" kind="b"><div class="avatar-image-container"><img src="http://lh6.googleusercontent.com/-fpaYncBYqKs/Th477aX8reI/AAAAAAAAAco/nkud5M9T64w/s48/Thinker.jpg"></div><div id="c7816767013530971944" class="comment-block"><div id="bc_0_102M" class="comment-header" kind="m"><cite class="user blog-author"><a rel="nofollow" href="http://www.blogger.com/profile/11741356469378252621">编程随想</a></cite><span class="icon user blog-author"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412520258887">十月 05, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412520258887">11楼 2单元</a></div><p id="bc_0_102MC" class="comment-content">TO 支持编程随想<br>俺觉得不像。<br><br>之所以一直没有把这篇露馅的文章撤下来，是因为——如果撤下来，党国等于承认这篇文章有问题。<br>所以喉舌的媒体只好一直留着这篇五毛文。</p><span id="bc_0_102MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1582521586"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=7816767013530971944">删除2单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_102BR" class="comment-replies"></div><div id="bc_0_102B_box" class="comment-replybox-single"></div></li><li id="bc_0_103B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c1950745416060027408" class="comment-block"><div id="bc_0_103M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412527502354">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412527502354">11楼 3单元</a></div><p id="bc_0_103MC" class="comment-content">编程同志不知道，这种文章才叫高级黑啊。这么明显的命门，感叹现在宣传口招的都是一群废物啊。</p><span id="bc_0_103MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1991666660"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=1950745416060027408">删除3单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="hide">隐藏所有匿名评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_103BR" class="comment-replies"></div><div id="bc_0_103B_box" class="comment-replybox-single"></div></li><li id="bc_0_104B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c8679803539708677561" class="comment-block"><div id="bc_0_104M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412530659495">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412530659495">11楼 4单元</a></div><p id="bc_0_104MC" class="comment-content">应该是无意识的高级黑，哈哈，反正在党文化思维里面要找到真逻辑的东西还真难。不怪他们，独裁天生如此。</p><span id="bc_0_104MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-37883822"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=8679803539708677561">删除4单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="hide">隐藏所有匿名评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_104BR" class="comment-replies"></div><div id="bc_0_104B_box" class="comment-replybox-single"></div></li><li id="bc_0_105B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c4360095237872086105" class="comment-block"><div id="bc_0_105M" class="comment-header" kind="m"><cite class="user">本评论注定被吃</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412554489217">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412554489217">11楼 5单元</a></div><p id="bc_0_105MC" class="comment-content">接着黎智英那个也很黑啊<br>“昨
+天转发的那条钛媒体质疑黎智英做空港股的文章，因为触碰禁令，今天网站和微信双罚，停止更新一个月。//游云庭律师 
+：科技网站钛媒体被停止更新五天，因为钛媒体发了一篇文章，质疑新华社说黎智英借占领中环做空股市获利百亿。用下流无耻，流氓成性形容他们在谎言被戳穿后
+的恼羞成怒不算过分吧？——啥叫新闻钳制？这就是。不过，当流氓遭遇了学霸时，流氓就会耍流氓了。下次新华社再造谣时，最起码也得找个专业人士咨询一下，
+不要一拍脑袋就发表出来了。”</p><span id="bc_0_105MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1416972968"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=4360095237872086105">删除5单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_105BR" class="comment-replies"></div><div id="bc_0_105B_box" class="comment-replybox-single"></div></li></div><div id="bc_0_101I" class="continue" kind="ci"><a href="javascript:;" target="_self">回复11楼</a></div></ol><div id="bc_0_101T_box" class="comment-replybox-thread"></div></div></span></div><div id="bc_0_106B_box" class="comment-replybox-single"></div></li><li id="bc_0_107B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c8451641984227344067" class="comment-block"><div id="bc_0_107M" class="comment-header" kind="m"><cite class="user">本评论注定被吃</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412518460965">十月 05, 2014</a></span><a style="font-size: 125%;" class="counter" href="2014/10/weekly-share-74.md?comment=1412518460965">12楼</a></div><p id="bc_0_107MC" class="comment-content">香港公安用救护车运送“橡皮子弹”，要是战争场合是违反国际法的。香港是示威，钻了空子。</p><span id="bc_0_107MN" class="comment-actions secondary-text" kind="m"><a kind="i" href="javascript:;" target="_self" o="r">回复12楼</a><span class="item-control blog-admin pid-1572957734"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=8451641984227344067">删除12楼</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_107BR" class="comment-replies"><span id="bc_0_107b+seedFJD" kind="d"><div id="bc_0_330T" class="comment-thread inline-thread" kind="t" t="0" u="0"><span id="bc_0_330TT" class="thread-toggle thread-expanded" kind="g"><span id="bc_0_330TA" class="thread-arrow"></span><span id="bc_0_330TN" class="thread-count"><span id="bc_0_330TNT" style="display: none;">0</span><span id="bc_0_330TNU" style="display: none;"></span><a href="javascript:;" target="_self">Replies</a><div id="bc_0_330TD" class="thread-dropContainer thread-expanded"><span class="thread-drop"></span></div></span></span><ol id="bc_0_330TC" class="thread-chrome thread-expanded" unselectable="on"><div style="zoom:1" unselectable="on"><li id="bc_0_330B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c8372823146228568798" class="comment-block"><div id="bc_0_330M" class="comment-header" kind="m"><cite class="user">今天开始</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413116409341">十月 12, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1413116409341">12楼 1单元</a></div><p id="bc_0_330MC" class="comment-content">对
+墙外来讲,党国只能派些五毛捣乱骚扰而已,在墙内,如今正在开动马力宣传抹黑,有唱有和,如果有一天能在民众中带动大量自干无起来发声,那就是党国对香港
+动硬的的时候了.可如今大陆民众习惯性政治冷漠,怀疑一切无关私利之事,只知也只能向钱看,只有政府自唱自和,无人喝彩,这才是最要命的事.你可以抹黑无
+下限,俺只是不信不关心,这可如何是好?香港这事可不如用民族主义来反日那么简单就能煽动得起来的.看看这些猪脑子还能想出什么没下限的主意来.</p><span id="bc_0_330MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-2052968349"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=8372823146228568798">删除1单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_330BR" class="comment-replies"></div><div id="bc_0_330B_box" class="comment-replybox-single"></div></li></div><div id="bc_0_330I" class="continue" kind="ci"><a href="javascript:;" target="_self">回复12楼</a></div></ol><div id="bc_0_330T_box" class="comment-replybox-thread"></div></div></span></div><div id="bc_0_107B_box" class="comment-replybox-single"></div></li><li id="bc_0_109B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c5892960871398650723" class="comment-block"><div id="bc_0_109M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412519331851">十月 05, 2014</a></span><a style="font-size: 125%;" class="counter" href="2014/10/weekly-share-74.md?comment=1412519331851">13楼</a></div><p id="bc_0_109MC" class="comment-content">为什么前一篇博文的评论显示不出来了</p><span id="bc_0_109MN" class="comment-actions secondary-text" kind="m"><a kind="i" href="javascript:;" target="_self" o="r">回复13楼</a><span class="item-control blog-admin pid-438163549"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=5892960871398650723">删除13楼</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="hide">隐藏所有匿名评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_109BR" class="comment-replies"><span id="bc_0_109b+seedS5-hD" kind="d"><div id="bc_0_108T" class="comment-thread inline-thread" kind="t" t="0" u="0"><span id="bc_0_108TT" class="thread-toggle thread-expanded" kind="g"><span id="bc_0_108TA" class="thread-arrow"></span><span id="bc_0_108TN" class="thread-count"><span id="bc_0_108TNT" style="display: none;"></span><span id="bc_0_108TNU" style="display: none;"></span><a href="javascript:;" target="_self">回复</a><div id="bc_0_108TD" class="thread-dropContainer thread-expanded"><span class="thread-drop"></span></div></span></span><ol id="bc_0_108TC" class="thread-chrome thread-expanded"><div><li id="bc_0_108B" class="comment" kind="b"><div class="avatar-image-container"><img src="http://lh6.googleusercontent.com/-fpaYncBYqKs/Th477aX8reI/AAAAAAAAAco/nkud5M9T64w/s48/Thinker.jpg"></div><div id="c5957194848894644693" class="comment-block"><div id="bc_0_108M" class="comment-header" kind="m"><cite class="user blog-author"><a rel="nofollow" href="http://www.blogger.com/profile/11741356469378252621">编程随想</a></cite><span class="icon user blog-author"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412523600679">十月 05, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412523600679">13楼 1单元</a></div><p id="bc_0_108MC" class="comment-content">TO 13楼的网友<br>应该能显示的。<br>你再刷新一下看看。<br><br>可能是刚才俺在调试代码，有段时间代码改坏了（大概几秒钟的间隔），正好碰上你在刷新。</p><span id="bc_0_108MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1582521586"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=5957194848894644693">删除1单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_108BR" class="comment-replies"></div><div id="bc_0_108B_box" class="comment-replybox-single"></div></li></div><div id="bc_0_108I" class="continue" kind="ci"><a href="javascript:;" target="_self">回复13楼</a></div></ol><div id="bc_0_108T_box" class="comment-replybox-thread"></div></div></span></div><div id="bc_0_109B_box" class="comment-replybox-single"></div></li><li id="bc_0_115B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c7269660152939039175" class="comment-block"><div id="bc_0_115M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412520051690">十月 05, 2014</a></span><a style="font-size: 125%;" class="counter" href="2014/10/weekly-share-74.md?comment=1412520051690">14楼</a></div><p id="bc_0_115MC" class="comment-content">1984
+年的《中英联合声明》对特首的选举描述不清，没有提及普选的存在，然而英国政府在签署《联合声明》后临撤走前连忙想在港试“普选”，这就是英国政府耍滑不
+妥之处了，要是在1984年前甚至1984年的几十年前就制定了普选的制度，这样后继政权也会按惯例普选，但是港英政府是在签了《联合声明》后临急埋了这
+个地雷，向港人散播虚无缥缈的期盼，令这些人争普选，自己撤走也埋个烂摊子等后继的政权收拾，这些人被港英政府的误导引致今天这样的乱事，还有就是，这次
+说是民主运动还不如说是一场政变，一开始这堆港人已处在攻势，政府处在守势，刚好运动的始作俑者之一是一个叫周永康的人，大陆周永康跟港人周永康虽然仅是
+名字一样的两个人，然而两个周永康闹的事却很像，一个部署武警部队围攻北京政府部门，一个煽动市民围堵港府总部，两个周永康都是政变人士，他们的态度都很
+嚣张，实际不管你用啥名义号召武警部队还是人数很多的市民冲撞政府的总部，已是违法的暴徒，甚至是危险的政变势力，警卫实弹射杀侵袭的你也没话说的，不排
+除这次民主运动背后有中共派系内斗的影子，号召占中的几个人都很跷蹊，这两天事态冷却了一点又有人捣乱，又给他们话柄再次聚集，这堆参与政变的港人小心被
+人利用了还觉得自己很正义</p><span id="bc_0_115MN" class="comment-actions secondary-text" kind="m"><a kind="i" href="javascript:;" target="_self" o="r">回复14楼</a><span class="item-control blog-admin pid-778247574"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=7269660152939039175">删除14楼</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="hide">隐藏所有匿名评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_115BR" class="comment-replies"><span id="bc_0_115b+seedS5-iD" kind="d"><div id="bc_0_110T" class="comment-thread inline-thread" kind="t" t="0" u="0"><span id="bc_0_110TT" class="thread-toggle thread-expanded" kind="g"><span id="bc_0_110TA" class="thread-arrow"></span><span id="bc_0_110TN" class="thread-count"><span id="bc_0_110TNT" style="display: none;"></span><span id="bc_0_110TNU" style="display: none;"></span><a href="javascript:;" target="_self">回复</a><div id="bc_0_110TD" class="thread-dropContainer thread-expanded"><span class="thread-drop"></span></div></span></span><ol id="bc_0_110TC" class="thread-chrome thread-expanded"><div><li id="bc_0_110B" class="comment" kind="b"><div class="avatar-image-container"><img src="http://lh6.googleusercontent.com/-fpaYncBYqKs/Th477aX8reI/AAAAAAAAAco/nkud5M9T64w/s48/Thinker.jpg"></div><div id="c6245874579159859829" class="comment-block"><div id="bc_0_110M" class="comment-header" kind="m"><cite class="user blog-author"><a rel="nofollow" href="http://www.blogger.com/profile/11741356469378252621">编程随想</a></cite><span class="icon user blog-author"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412523699309">十月 05, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412523699309">14楼 1单元</a></div><p id="bc_0_110MC" class="comment-content">TO 14楼的网友<br>你可以参考俺前几天的博文《<a rel="nofollow" target="_blank" title="超链接语法&amp;#65306;
+[url=网址]标题文字[/url]
+
+&amp;#65288;网址必须以 http:// 或 https:// 开头&amp;#65289;
+
+&amp;#65288;文字部分&amp;#12304;不要&amp;#12305;使用如下的半角符号&amp;#65292;需要的话&amp;#65292;改用全角符号&amp;#65289;
+\ &lt; &gt; ( ) ' &quot; &amp; # $ %" href="2014/09/weekly-share-71.md" class="bbcode with-text">每周转载：关于香港和澳门的特首选举（外媒报道和网友评论）</a>》，了解一下为啥英国在 中英谈判 之前没有实现彻底的民主化。<br>根源在“北京政府”这边。</p><span id="bc_0_110MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1582521586"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=6245874579159859829">删除1单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_110BR" class="comment-replies"></div><div id="bc_0_110B_box" class="comment-replybox-single"></div></li><li id="bc_0_111B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c7854783838239551351" class="comment-block"><div id="bc_0_111M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412531014840">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412531014840">14楼 2单元</a></div><p id="bc_0_111MC" class="comment-content">共匪真是邪恶啊。</p><span id="bc_0_111MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-37883822"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=7854783838239551351">删除2单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="hide">隐藏所有匿名评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_111BR" class="comment-replies"></div><div id="bc_0_111B_box" class="comment-replybox-single"></div></li><li id="bc_0_112B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c6246040723671515755" class="comment-block"><div id="bc_0_112M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412531146786">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412531146786">14楼 3单元</a></div><p id="bc_0_112MC" class="comment-content">请细查"在1984年前甚至1984年的几十年前就制定了普选的制度"，英国政府不是在1960年而是更早甚至在共产党接管中国大陆前已制定这个普选的制度后继的港共也不会不遵守的，双方都有错误，不是所有都赖中共政府</p><span id="bc_0_112MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-2044154884"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=6246040723671515755">删除3单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="hide">隐藏所有匿名评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_112BR" class="comment-replies"></div><div id="bc_0_112B_box" class="comment-replybox-single"></div></li><li id="bc_0_113B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c7079485316857255215" class="comment-block"><div id="bc_0_113M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412532482478">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412532482478">14楼 4单元</a></div><p id="bc_0_113MC" class="comment-content">英
+国外交部的档案中，记载了1958年1月30日中国总理周恩来会见英国代表团时向英国首相麦克米伦转达的话：“如今英国和香港政府中有人阴谋将香港变成新
+加坡那样的自治领。希望麦克米伦明白，中国会将任何令香港变成自治领的做法视之为不友善的举动。中国希望香港今日的殖民地地位不会有丝毫的改变。”中国政
+府最担心的是，香港人一旦享有民主权利，便会成为一个自治的地区，进而像新加坡那样脱离英国独立。当时的香港居民中，有大批在内战、土改时期逃离大陆的难
+民，后来在三年大饥荒时期，又有数以十万计的大陆人冒死逃到香港。他们如果手中有选票，绝对不会选择回归到共产党统治下的中国。</p><span id="bc_0_113MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-37883822"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=7079485316857255215">删除4单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="hide">隐藏所有匿名评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_113BR" class="comment-replies"></div><div id="bc_0_113B_box" class="comment-replybox-single"></div></li><li id="bc_0_114B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c3318310957876003234" class="comment-block"><div id="bc_0_114M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412564134634">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412564134634">14楼 5单元</a></div><p id="bc_0_114MC" class="comment-content">樓主太小看香港人的智商了</p><span id="bc_0_114MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-877380135"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=3318310957876003234">删除5单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="hide">隐藏所有匿名评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_114BR" class="comment-replies"></div><div id="bc_0_114B_box" class="comment-replybox-single"></div></li></div><div id="bc_0_110I" class="continue" kind="ci"><a href="javascript:;" target="_self">回复14楼</a></div></ol><div id="bc_0_110T_box" class="comment-replybox-thread"></div></div></span></div><div id="bc_0_115B_box" class="comment-replybox-single"></div></li><li id="bc_0_117B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c2069686823368417497" class="comment-block"><div id="bc_0_117M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412520769519">十月 05, 2014</a></span><a style="font-size: 125%;" class="counter" href="2014/10/weekly-share-74.md?comment=1412520769519">15楼</a></div><p id="bc_0_117MC" class="comment-content">支持占中，就算失败也要支持，占中是香港人民的占中，不是占中领袖的占中，是香港人民争取民主的运动，是中国民主化的第一枪。民众不要听那些利用民众争取真普选愿望搞阴谋的领袖，要有自己的主见，要有独立的民主信念，击垮一切试图破坏公民运动的行动和阴谋。</p><span id="bc_0_117MN" class="comment-actions secondary-text" kind="m"><a kind="i" href="javascript:;" target="_self" o="r">回复15楼</a><span class="item-control blog-admin pid-659271547"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=2069686823368417497">删除15楼</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="hide">隐藏所有匿名评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_117BR" class="comment-replies"><span id="bc_0_117b+seedS5_KD" kind="d"><div id="bc_0_116T" class="comment-thread inline-thread" kind="t" t="0" u="0"><span id="bc_0_116TT" class="thread-toggle thread-expanded" kind="g"><span id="bc_0_116TA" class="thread-arrow"></span><span id="bc_0_116TN" class="thread-count"><span id="bc_0_116TNT" style="display: none;"></span><span id="bc_0_116TNU" style="display: none;"></span><a href="javascript:;" target="_self">回复</a><div id="bc_0_116TD" class="thread-dropContainer thread-expanded"><span class="thread-drop"></span></div></span></span><ol id="bc_0_116TC" class="thread-chrome thread-expanded"><div><li id="bc_0_116B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c3754849440289224128" class="comment-block"><div id="bc_0_116M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412531287583">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412531287583">15楼 1单元</a></div><p id="bc_0_116MC" class="comment-content">这一次香港民主抗议的最大的优势就是港人有着共同的政治诉求，那就是真普选，这一点不可能被分化，共匪黔驴技穷，只能出阴招，可是在如此发达的信息时代，阴招都变成了砸自己脚的石头。</p><span id="bc_0_116MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-37883822"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=3754849440289224128">删除1单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="hide">隐藏所有匿名评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_116BR" class="comment-replies"></div><div id="bc_0_116B_box" class="comment-replybox-single"></div></li></div><div id="bc_0_116I" class="continue" kind="ci"><a href="javascript:;" target="_self">回复15楼</a></div></ol><div id="bc_0_116T_box" class="comment-replybox-thread"></div></div></span></div><div id="bc_0_117B_box" class="comment-replybox-single"></div></li><li id="bc_0_119B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/photo_003.jpg"></div><div id="c1878862756660122653" class="comment-block"><div id="bc_0_119M" class="comment-header" kind="m"><cite class="user"><a rel="nofollow" href="http://www.blogger.com/profile/17185368920867656689">Tony Yule</a></cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412520804190">十月 05, 2014</a></span><a style="font-size: 125%;" class="counter" href="2014/10/weekly-share-74.md?comment=1412520804190">16楼</a></div><p id="bc_0_119MC" class="comment-content">博
+主 你发表一下你的看法吧  我经常听石涛TV  分析现在香港的局势  和有关 89 64事情 习近平的父亲 强烈反对武力镇压  
+习近平会做什么样的决定。 还有就是 我从事计算机方面 SAP开发 想工作几年以后 技术移民  博主 可以给大伙分析一下 如何移民吗</p><span id="bc_0_119MN" class="comment-actions secondary-text" kind="m"><a kind="i" href="javascript:;" target="_self" o="r">回复16楼</a><span class="item-control blog-admin pid-1060213586"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=1878862756660122653">删除16楼</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_119BR" class="comment-replies"><span id="bc_0_119b+seedS5-jD" kind="d"><div id="bc_0_118T" class="comment-thread inline-thread" kind="t" t="0" u="0"><span id="bc_0_118TT" class="thread-toggle thread-expanded" kind="g"><span id="bc_0_118TA" class="thread-arrow"></span><span id="bc_0_118TN" class="thread-count"><span id="bc_0_118TNT" style="display: none;"></span><span id="bc_0_118TNU" style="display: none;"></span><a href="javascript:;" target="_self">回复</a><div id="bc_0_118TD" class="thread-dropContainer thread-expanded"><span class="thread-drop"></span></div></span></span><ol id="bc_0_118TC" class="thread-chrome thread-expanded"><div><li id="bc_0_118B" class="comment" kind="b"><div class="avatar-image-container"><img src="http://lh6.googleusercontent.com/-fpaYncBYqKs/Th477aX8reI/AAAAAAAAAco/nkud5M9T64w/s48/Thinker.jpg"></div><div id="c4065487695347111236" class="comment-block"><div id="bc_0_118M" class="comment-header" kind="m"><cite class="user blog-author"><a rel="nofollow" href="http://www.blogger.com/profile/11741356469378252621">编程随想</a></cite><span class="icon user blog-author"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412523984196">十月 05, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412523984196">16楼 1单元</a></div><p id="bc_0_118MC" class="comment-content">TO Tony Yule<br>多谢 IT 同行来捧场 :)<br><br>习近平他爹，人品还不错。<br>但是习近平的人品，就不好说喽。<br>至少俺个人认为：【不要】指望习包子会搞实质性的政改。<br>习包子依然是权贵集团的人。<br>有兴趣的话可以看看俺整理的《<a rel="nofollow" target="_blank" title="超链接语法&amp;#65306;
+[url=网址]标题文字[/url]
+
+&amp;#65288;网址必须以 http:// 或 https:// 开头&amp;#65289;
+
+&amp;#65288;文字部分&amp;#12304;不要&amp;#12305;使用如下的半角符号&amp;#65292;需要的话&amp;#65292;改用全角符号&amp;#65289;
+\ &lt; &gt; ( ) ' &quot; &amp; # $ %" href="2013/03/princelings.md" class="bbcode with-text">太子党关系网络</a>》。<br>习近平家族里面有好几个亿万富豪。<br><br>俺目前还在天朝之内，对技术移民的事情，不太了解。抱歉 :(<br>你可以去 Google 一下，貌似有专门的一些论坛。</p><span id="bc_0_118MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1582521586"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=4065487695347111236">删除1单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_118BR" class="comment-replies"></div><div id="bc_0_118B_box" class="comment-replybox-single"></div></li></div><div id="bc_0_118I" class="continue" kind="ci"><a href="javascript:;" target="_self">回复16楼</a></div></ol><div id="bc_0_118T_box" class="comment-replybox-thread"></div></div></span></div><div id="bc_0_119B_box" class="comment-replybox-single"></div></li><li id="bc_0_124B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c685813205870695410" class="comment-block"><div id="bc_0_124M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412521833379">十月 05, 2014</a></span><a style="font-size: 125%;" class="counter" href="2014/10/weekly-share-74.md?comment=1412521833379">17楼</a></div><p id="bc_0_124MC" class="comment-content">香港还有一条路可以争民主，那就是要求加入中华民国，建议示威者使用有关的口号想政府施压，中共不怕那些所谓的西方敌对势力，但对台湾肯定有所忌讳，因为都是中国人，民族主义用不上了。<br></p><span id="bc_0_124MN" class="comment-actions secondary-text" kind="m"><a kind="i" href="javascript:;" target="_self" o="r">回复17楼</a><span class="item-control blog-admin pid-659271547"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=685813205870695410">删除17楼</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="hide">隐藏所有匿名评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_124BR" class="comment-replies"><span id="bc_0_124b+seedS5-kD" kind="d"><div id="bc_0_120T" class="comment-thread inline-thread" kind="t" t="0" u="0"><span id="bc_0_120TT" class="thread-toggle thread-expanded" kind="g"><span id="bc_0_120TA" class="thread-arrow"></span><span id="bc_0_120TN" class="thread-count"><span id="bc_0_120TNT" style="display: none;">0</span><span id="bc_0_120TNU" style="display: none;"></span><a href="javascript:;" target="_self">回复</a><div id="bc_0_120TD" class="thread-dropContainer thread-expanded"><span class="thread-drop"></span></div></span></span><ol id="bc_0_120TC" class="thread-chrome thread-expanded"><div><li id="bc_0_120B" class="comment" kind="b"><div class="avatar-image-container"><img src="http://lh6.googleusercontent.com/-fpaYncBYqKs/Th477aX8reI/AAAAAAAAAco/nkud5M9T64w/s48/Thinker.jpg"></div><div id="c7770145676493568311" class="comment-block"><div id="bc_0_120M" class="comment-header" kind="m"><cite class="user blog-author"><a rel="nofollow" href="http://www.blogger.com/profile/11741356469378252621">编程随想</a></cite><span class="icon user blog-author"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412524144892">十月 05, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412524144892">17楼 1单元</a></div><p id="bc_0_120MC" class="comment-content">TO 17楼的网友<br>你这个思路别具一格，有创意 :)<br><br>因为朝廷号称“只有一个中国”，香港加入“中华民国”就不能算“港独” :)</p><span id="bc_0_120MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1582521586"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=7770145676493568311">删除1单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_120BR" class="comment-replies"></div><div id="bc_0_120B_box" class="comment-replybox-single"></div></li><li id="bc_0_121B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/b36-rounded.png"></div><div id="c8543789540855911381" class="comment-block"><div id="bc_0_121M" class="comment-header" kind="m"><cite class="user"><a rel="nofollow" href="http://www.blogger.com/profile/11135393746462565830">Liu Yiteng</a></cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412526242639">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412526242639">17楼 2单元</a></div><p id="bc_0_121MC" class="comment-content">但是光加入民国一条就足够上坦克了，民国是什么东西？中央不承认啊，要是中央默许了这不是等于承认了台独么。</p><span id="bc_0_121MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1476338144"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=8543789540855911381">删除2单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_121BR" class="comment-replies"></div><div id="bc_0_121B_box" class="comment-replybox-single"></div></li><li id="bc_0_122B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c5415286208397907024" class="comment-block"><div id="bc_0_122M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412531552194">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412531552194">17楼 3单元</a></div><p id="bc_0_122MC" class="comment-content">可怜那饭桶一般的马英九他敢接受么，台湾真是自身难保啊。台湾只可能独立没有别的出路，统一那时扯淡，就算中国民主也不可能，就兲朝屁民那尿性复辟那是分分钟的事。毛子就是样板。</p><span id="bc_0_122MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-37883822"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=5415286208397907024">删除3单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="hide">隐藏所有匿名评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_122BR" class="comment-replies"></div><div id="bc_0_122B_box" class="comment-replybox-single"></div></li><li id="bc_0_123B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c5656899222426675351" class="comment-block"><div id="bc_0_123M" class="comment-header" kind="m"><cite class="user">get freedom</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412569903798">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412569903798">17楼 4单元</a></div><p id="bc_0_123MC" class="comment-content">这个点子确实蛮好。我之前也有类似的想法，但觉得马英九这个软蛋很可能会拒绝，之后仔细一想，觉得还是有意义的，也具有可行性。<br>首先香港和平集会民众【自发】举起青天白日满地红小旗、挂上孙中山像，注意【去中心化】，不要让集会领导人发起，否则容易共匪以“煽颠”之类罪名的抓捕。港台联动，台湾民众可以在台湾支持香港，像马英九施压，也可以到香港来参与集会。<br>这有什么意义咧？<br>《影响力》里提到有个类似与谈判技巧的东西。你要真普选，共匪就只给你假普选；你要加入中华民国，共匪就慌了：还是留在这吧，给你真普选。<br>马英九如果想跪发表声明，拒绝香港加入咋办咧？那马必定民心尽失，下界大选国民党基本没戏，对共匪势力是承重打击。<br>如果共匪出动坦克咋办咧？我觉得概率极小。因为现在不像25年前，共匪当时光脚不怕穿鞋，现在要顾及贪官太子党在香港、在西方的财产/利益，而且国际制裁还会使国内经济大衰退，危及政权。万一真的镇压了，不用硬碰硬，学习上次催泪弹清场的经验，你来我就走，你走我又来。<br>所以如按照我说的做，我觉得这个点子是有意义的，也具有可行性。</p><span id="bc_0_123MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1137364464"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=5656899222426675351">删除4单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_123BR" class="comment-replies"></div><div id="bc_0_123B_box" class="comment-replybox-single"></div></li><li id="bc_0_250B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c2306856062627916452" class="comment-block"><div id="bc_0_250M" class="comment-header" kind="m"><cite class="user">忠党爱国</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412723732401">十月 08, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412723732401">17楼 5单元</a></div><p id="bc_0_250MC" class="comment-content">在天朝这边也许可以说我们要和台湾省合并？</p><span id="bc_0_250MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-731270282"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=2306856062627916452">删除5单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_250BR" class="comment-replies"></div><div id="bc_0_250B_box" class="comment-replybox-single"></div></li><li id="bc_0_255B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c6361163992620220311" class="comment-block"><div id="bc_0_255M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412743460191">十月 08, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412743460191">17楼 6单元</a></div><p id="bc_0_255MC" class="comment-content">要是厦门说这话还能考量，其他地方直接坦克</p><span id="bc_0_255MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1406162312"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=6361163992620220311">删除6单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_255BR" class="comment-replies"></div><div id="bc_0_255B_box" class="comment-replybox-single"></div></li><li id="bc_0_295B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/b36-rounded.png"></div><div id="c8373479381904016093" class="comment-block"><div id="bc_0_295M" class="comment-header" kind="m"><cite class="user"><a rel="nofollow" href="http://www.blogger.com/profile/07162082826860628544">Christian Sun</a></cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412930173595">十月 10, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412930173595">17楼 7单元</a></div><p id="bc_0_295MC" class="comment-content">问题是中华民国实际控制的地方太小，军事力量比共党太过弱小。美国只能保证台湾，香港保证不了。还不如回归英联邦呢。</p><span id="bc_0_295MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1159133755"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=8373479381904016093">删除7单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_295BR" class="comment-replies"></div><div id="bc_0_295B_box" class="comment-replybox-single"></div></li></div><div id="bc_0_120I" class="continue" kind="ci"><a href="javascript:;" target="_self">回复17楼</a></div></ol><div id="bc_0_120T_box" class="comment-replybox-thread"></div></div></span></div><div id="bc_0_124B_box" class="comment-replybox-single"></div></li><li id="bc_0_129B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c5840387242533536619" class="comment-block"><div id="bc_0_129M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412522062840">十月 05, 2014</a></span><a style="font-size: 125%;" class="counter" href="2014/10/weekly-share-74.md?comment=1412522062840">18楼</a></div><p id="bc_0_129MC" class="comment-content">香港还有一条路可以争民主，那就是要求加入中华民国，建议示威者使用有关的口号想政府施压，中共不怕那些所谓的西方敌对势力，但对台湾肯定有所忌讳，因为都是中国人，民族主义用不上了。<br></p><span id="bc_0_129MN" class="comment-actions secondary-text" kind="m"><a kind="i" href="javascript:;" target="_self" o="r">回复18楼</a><span class="item-control blog-admin pid-659271547"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=5840387242533536619">删除18楼</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="hide">隐藏所有匿名评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_129BR" class="comment-replies"><span id="bc_0_129b+seedS5-XD" kind="d"><div id="bc_0_125T" class="comment-thread inline-thread" kind="t" t="0" u="0"><span id="bc_0_125TT" class="thread-toggle thread-expanded" kind="g"><span id="bc_0_125TA" class="thread-arrow"></span><span id="bc_0_125TN" class="thread-count"><span id="bc_0_125TNT" style="display: none;"></span><span id="bc_0_125TNU" style="display: none;"></span><a href="javascript:;" target="_self">回复</a><div id="bc_0_125TD" class="thread-dropContainer thread-expanded"><span class="thread-drop"></span></div></span></span><ol id="bc_0_125TC" class="thread-chrome thread-expanded"><div><li id="bc_0_125B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/b36-rounded.png"></div><div id="c8389714671508370840" class="comment-block"><div id="bc_0_125M" class="comment-header" kind="m"><cite class="user"><a rel="nofollow" href="http://www.blogger.com/profile/11135393746462565830">Liu Yiteng</a></cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412522505626">十月 05, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412522505626">18楼 1单元</a></div><p id="bc_0_125MC" class="comment-content">这个太蠢了，马上就会招来坦克。</p><span id="bc_0_125MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1476338144"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=8389714671508370840">删除1单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_125BR" class="comment-replies"></div><div id="bc_0_125B_box" class="comment-replybox-single"></div></li><li id="bc_0_126B" class="comment" kind="b"><div class="avatar-image-container"><img src="http://lh6.googleusercontent.com/-fpaYncBYqKs/Th477aX8reI/AAAAAAAAAco/nkud5M9T64w/s48/Thinker.jpg"></div><div id="c3125976241035950928" class="comment-block"><div id="bc_0_126M" class="comment-header" kind="m"><cite class="user blog-author"><a rel="nofollow" href="http://www.blogger.com/profile/11741356469378252621">编程随想</a></cite><span class="icon user blog-author"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412524439575">十月 05, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412524439575">18楼 2单元</a></div><p id="bc_0_126MC" class="comment-content">TO Liu Yiteng<br>招来坦克倒未必。<br>记得之前已经出现过“港独”的口号，也没见朝廷咋样。<br>如今这个互联网时代，不到万不得已，朝廷不会贸然动用正规军。顶多动用武警、驻港部队。<br><br>17、18楼的点子，比“港独”的诉求要狡猾一些 :)</p><span id="bc_0_126MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1582521586"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=3125976241035950928">删除2单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_126BR" class="comment-replies"></div><div id="bc_0_126B_box" class="comment-replybox-single"></div></li><li id="bc_0_127B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/b36-rounded.png"></div><div id="c5396982813252529992" class="comment-block"><div id="bc_0_127M" class="comment-header" kind="m"><cite class="user"><a rel="nofollow" href="http://www.blogger.com/profile/11135393746462565830">Liu Yiteng</a></cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412525996235">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412525996235">18楼 3单元</a></div><p id="bc_0_127MC" class="comment-content">口号是口号，和实际去做还是有大区别，就连我都想到如果这种事情成为既成事实，用坦克解决，他们怎么可能想不到。</p><span id="bc_0_127MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1476338144"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=5396982813252529992">删除3单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_127BR" class="comment-replies"></div><div id="bc_0_127B_box" class="comment-replybox-single"></div></li><li id="bc_0_128B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c6244827030181768089" class="comment-block"><div id="bc_0_128M" class="comment-header" kind="m"><cite class="user"><a rel="nofollow" href="">Therapy</a></cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412559721676">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412559721676">18楼 4单元</a></div><p id="bc_0_128MC" class="comment-content">如今共党陷入了两难：派坦克就要面对更多的坦克，给民主就不得不给更多的民主。<br>各位认为裆中央会怎么做？<br>我认为不惜与全世界对抗也不放弃高压统治就是共党的本性。香港，说不好啊。</p><span id="bc_0_128MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1406162312"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=6244827030181768089">删除4单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_128BR" class="comment-replies"></div><div id="bc_0_128B_box" class="comment-replybox-single"></div></li></div><div id="bc_0_125I" class="continue" kind="ci"><a href="javascript:;" target="_self">回复18楼</a></div></ol><div id="bc_0_125T_box" class="comment-replybox-thread"></div></div></span></div><div id="bc_0_129B_box" class="comment-replybox-single"></div></li><li id="bc_0_130B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c7657654591037891204" class="comment-block"><div id="bc_0_130M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412522435325">十月 05, 2014</a></span><a style="font-size: 125%;" class="counter" href="2014/10/weekly-share-74.md?comment=1412522435325">19楼</a></div><p id="bc_0_130MC" class="comment-content">支持占中，就算失败也要支持，占中是香港人民的占中，不是占中领袖的占中，是香港人民争取民主的运动，是中国民主化的第一枪。民众不要听那些利用民众争取真普选愿望搞阴谋的领袖，要有自己的主见，要有独立的民主信念，击垮一切试图破坏公民运动的行动和阴谋。</p><span id="bc_0_130MN" class="comment-actions secondary-text" kind="m"><a kind="i" href="javascript:;" target="_self" o="r">回复19楼</a><span class="item-control blog-admin pid-659271547"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=7657654591037891204">删除19楼</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="hide">隐藏所有匿名评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_130BR" class="comment-replies"></div><div id="bc_0_130B_box" class="comment-replybox-single"></div></li><li id="bc_0_133B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/b36-rounded.png"></div><div id="c8024187404401607608" class="comment-block"><div id="bc_0_133M" class="comment-header" kind="m"><cite class="user"><a rel="nofollow" href="http://www.blogger.com/profile/08853123019167798224">v998</a></cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412522758145">十月 05, 2014</a></span><a style="font-size: 125%;" class="counter" href="2014/10/weekly-share-74.md?comment=1412522758145">20楼</a></div><p id="bc_0_133MC" class="comment-content">哈, 看fb上數十篇的文章也不及編隨的評論</p><span id="bc_0_133MN" class="comment-actions secondary-text" kind="m"><a kind="i" href="javascript:;" target="_self" o="r">回复20楼</a><span class="item-control blog-admin pid-1429061783"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=8024187404401607608">删除20楼</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_133BR" class="comment-replies"><span id="bc_0_133b+seedS5-mD" kind="d"><div id="bc_0_131T" class="comment-thread inline-thread" kind="t" t="0" u="0"><span id="bc_0_131TT" class="thread-toggle thread-expanded" kind="g"><span id="bc_0_131TA" class="thread-arrow"></span><span id="bc_0_131TN" class="thread-count"><span id="bc_0_131TNT" style="display: none;">0</span><span id="bc_0_131TNU" style="display: none;"></span><a href="javascript:;" target="_self">回复</a><div id="bc_0_131TD" class="thread-dropContainer thread-expanded"><span class="thread-drop"></span></div></span></span><ol id="bc_0_131TC" class="thread-chrome thread-expanded"><div><li id="bc_0_131B" class="comment" kind="b"><div class="avatar-image-container"><img src="http://lh6.googleusercontent.com/-fpaYncBYqKs/Th477aX8reI/AAAAAAAAAco/nkud5M9T64w/s48/Thinker.jpg"></div><div id="c8556411009030405909" class="comment-block"><div id="bc_0_131M" class="comment-header" kind="m"><cite class="user blog-author"><a rel="nofollow" href="http://www.blogger.com/profile/11741356469378252621">编程随想</a></cite><span class="icon user blog-author"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412524756250">十月 05, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412524756250">20楼 1单元</a></div><p id="bc_0_131MC" class="comment-content">TO v998<br>大概两三年前，就有读者说：俺博客的评论比博文更有看头。</p><span id="bc_0_131MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1582521586"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=8556411009030405909">删除1单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_131BR" class="comment-replies"></div><div id="bc_0_131B_box" class="comment-replybox-single"></div></li><li id="bc_0_132B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c4546544958294901465" class="comment-block"><div id="bc_0_132M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412531725873">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412531725873">20楼 2单元</a></div><p id="bc_0_132MC" class="comment-content">来此的人应该不会是蠢货的，五毛除外。</p><span id="bc_0_132MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-37883822"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=4546544958294901465">删除2单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="hide">隐藏所有匿名评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_132BR" class="comment-replies"></div><div id="bc_0_132B_box" class="comment-replybox-single"></div></li><li id="bc_0_221B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c8285912899829562376" class="comment-block"><div id="bc_0_221M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412671625608">十月 07, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412671625608">20楼 3单元</a></div><p id="bc_0_221MC" class="comment-content">本博客质量好的评论实在是凤毛麟角（大海捞针啊），时不时经常有人身攻击<br>还是博文好看些、有启发性（除了“每周转载”差强人意）。</p><span id="bc_0_221MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-438163549"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=8285912899829562376">删除3单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_221BR" class="comment-replies"></div><div id="bc_0_221B_box" class="comment-replybox-single"></div></li><li id="bc_0_223B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c1678706020075647784" class="comment-block"><div id="bc_0_223M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412671940462">十月 07, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412671940462">20楼 4单元</a></div><p id="bc_0_223MC" class="comment-content">补充：本博客质量好的评论指的是大部分网友（包括博主在内）的留言</p><span id="bc_0_223MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-438163549"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=1678706020075647784">删除4单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_223BR" class="comment-replies"></div><div id="bc_0_223B_box" class="comment-replybox-single"></div></li></div><div id="bc_0_131I" class="continue" kind="ci"><a href="javascript:;" target="_self">回复20楼</a></div></ol><div id="bc_0_131T_box" class="comment-replybox-thread"></div></div></span></div><div id="bc_0_133B_box" class="comment-replybox-single"></div></li><li id="bc_0_144B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/b36-rounded.png"></div><div id="c2516063866240437507" class="comment-block"><div id="bc_0_144M" class="comment-header" kind="m"><cite class="user"><a rel="nofollow" href="http://www.blogger.com/profile/11135393746462565830">Liu Yiteng</a></cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412523372839">十月 05, 2014</a></span><a style="font-size: 125%;" class="counter" href="2014/10/weekly-share-74.md?comment=1412523372839">21楼</a></div><p id="bc_0_144MC" class="comment-content">空间上发了状态，提到了相关事情，提到“外媒”，“代表性”，然后评论就被河蟹了</p><span id="bc_0_144MN" class="comment-actions secondary-text" kind="m"><a kind="i" href="javascript:;" target="_self" o="r">回复21楼</a><span class="item-control blog-admin pid-1476338144"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=2516063866240437507">删除21楼</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_144BR" class="comment-replies"><span id="bc_0_144b+seedS5-nD" kind="d"><div id="bc_0_134T" class="comment-thread inline-thread" kind="t" t="0" u="0"><span id="bc_0_134TT" class="thread-toggle thread-expanded" kind="g"><span id="bc_0_134TA" class="thread-arrow"></span><span id="bc_0_134TN" class="thread-count"><span id="bc_0_134TNT" style="display: none;">0</span><span id="bc_0_134TNU" style="display: none;"></span><a href="javascript:;" target="_self">回复</a><div id="bc_0_134TD" class="thread-dropContainer thread-expanded"><span class="thread-drop"></span></div></span></span><ol id="bc_0_134TC" class="thread-chrome thread-expanded"><div><li id="bc_0_134B" class="comment" kind="b"><div class="avatar-image-container"><img src="http://lh6.googleusercontent.com/-fpaYncBYqKs/Th477aX8reI/AAAAAAAAAco/nkud5M9T64w/s48/Thinker.jpg"></div><div id="c8042180677554079620" class="comment-block"><div id="bc_0_134M" class="comment-header" kind="m"><cite class="user blog-author"><a rel="nofollow" href="http://www.blogger.com/profile/11741356469378252621">编程随想</a></cite><span class="icon user blog-author"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412524873992">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412524873992">21楼 1单元</a></div><p id="bc_0_134MC" class="comment-content">TO Liu Yiteng<br>如今是敏感时期，墙内的互联网公司，他们的管理员肯定在加班加点审查言论呢。<br><br>你在自己的空间上发政治内容，要小心一点，别让朝廷的走狗给跨省了。</p><span id="bc_0_134MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1582521586"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=8042180677554079620">删除1单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_134BR" class="comment-replies"></div><div id="bc_0_134B_box" class="comment-replybox-single"></div></li><li id="bc_0_135B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/b36-rounded.png"></div><div id="c5444083147334803581" class="comment-block"><div id="bc_0_135M" class="comment-header" kind="m"><cite class="user"><a rel="nofollow" href="http://www.blogger.com/profile/11135393746462565830">Liu Yiteng</a></cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412525806712">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412525806712">21楼 2单元</a></div><p id="bc_0_135MC" class="comment-content">我就传了个新华日报46年的图= =不至于吧</p><span id="bc_0_135MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1476338144"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=5444083147334803581">删除2单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_135BR" class="comment-replies"></div><div id="bc_0_135B_box" class="comment-replybox-single"></div></li><li id="bc_0_136B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c704355368288372132" class="comment-block"><div id="bc_0_136M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412527918266">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412527918266">21楼 3单元</a></div><p id="bc_0_136MC" class="comment-content">最好小心一点，加强隐蔽性。</p><span id="bc_0_136MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1991666660"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=704355368288372132">删除3单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="hide">隐藏所有匿名评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_136BR" class="comment-replies"></div><div id="bc_0_136B_box" class="comment-replybox-single"></div></li><li id="bc_0_137B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c1535994638227359803" class="comment-block"><div id="bc_0_137M" class="comment-header" kind="m"><cite class="user">把脉中国</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412594812700">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412594812700">21楼 4单元</a></div><p id="bc_0_137MC" class="comment-content">我昨天想通过TOR进行新郎微薄注册，可惜必须用手机或者油箱，但是申请GOOGLE的邮箱还要自己的手机或者国内的油箱，这点感觉很不安全，尤其手机注册，很容易被定位，害得我没有注册成功，大家有哪些经验分享一下，这样好能在墙内安全的发信息了。</p><span id="bc_0_137MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-184165420"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=1535994638227359803">删除4单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_137BR" class="comment-replies"></div><div id="bc_0_137B_box" class="comment-replybox-single"></div></li><li id="bc_0_138B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/b36-rounded.png"></div><div id="c6261337440005279008" class="comment-block"><div id="bc_0_138M" class="comment-header" kind="m"><cite class="user"><a rel="nofollow" href="http://www.blogger.com/profile/08853123019167798224">v998</a></cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412596281422">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412596281422">21楼 5单元</a></div><p id="bc_0_138MC" class="comment-content">TO FLAT4,<br>If you can't register Gmail account, then have a look at<br><a rel="nofollow" target="_blank" title="超链接语法&amp;#65306;
+评论中的网址&amp;#65292;如果两端是空格或换行&amp;#65292;评论发布后会自动变成可点击的超链接&amp;#12290;
+
+&amp;#65288;网址必须以 http:// 或 https:// 开头&amp;#65289;" href="https://prism-break.org/en/categories/gnu-linux/#email-accounts" class="bbcode simple">https://prism-break.org/en/categories/gnu-linux/#email-accounts</a><br><a rel="nofollow" target="_blank" title="超链接语法&amp;#65306;
+评论中的网址&amp;#65292;如果两端是空格或换行&amp;#65292;评论发布后会自动变成可点击的超链接&amp;#12290;
+
+&amp;#65288;网址必须以 http:// 或 https:// 开头&amp;#65289;" href="http://prxbx.com/email/" class="bbcode simple">http://prxbx.com/email/</a></p><span id="bc_0_138MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1429061783"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=6261337440005279008">删除5单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_138BR" class="comment-replies"></div><div id="bc_0_138B_box" class="comment-replybox-single"></div></li><li id="bc_0_139B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c5636864045025687062" class="comment-block"><div id="bc_0_139M" class="comment-header" kind="m"><cite class="user">get freedom</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412599180343">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412599180343">21楼 6单元</a></div><p id="bc_0_139MC" class="comment-content">我前段时间注册google帐号，用tor固定美国的出口，上textnow.com搞一个美国的虚拟号码，选人口少<br>的州（不行的话可以多试几个州），在google用这个号码进行【语音】验证，然后在textnow.com就会收到一段语音留言，填上语音里的验证码就OK了。不知现在这个方法行吗，你可以试试看。<br>在微博微信分享可以把整篇博文转成图片。<br>另外还有网友搞的免翻墙镜像：<br><a rel="nofollow" target="_blank" title="超链接语法&amp;#65306;
+评论中的网址&amp;#65292;如果两端是空格或换行&amp;#65292;评论发布后会自动变成可点击的超链接&amp;#12290;
+
+&amp;#65288;网址必须以 http:// 或 https:// 开头&amp;#65289;" href="https://github.com/xl2014/suixiang" class="bbcode simple">https://github.com/xl2014/suixiang</a><br>以上镜像单独分享某篇博文也是行的</p><span id="bc_0_139MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-448972523"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=5636864045025687062">删除6单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_139BR" class="comment-replies"></div><div id="bc_0_139B_box" class="comment-replybox-single"></div></li><li id="bc_0_140B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c6937437146710554043" class="comment-block"><div id="bc_0_140M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412602990266">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412602990266">21楼 7单元</a></div><p id="bc_0_140MC" class="comment-content">TO get freedom<br>语音验证应该要装个麦克风或耳机吧？之前用textnow硬是接收不到谷歌的短信验证，语音验证能行吗？</p><span id="bc_0_140MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-438163549"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=6937437146710554043">删除7单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="hide">隐藏所有匿名评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_140BR" class="comment-replies"></div><div id="bc_0_140B_box" class="comment-replybox-single"></div></li><li id="bc_0_141B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c5763023225796031834" class="comment-block"><div id="bc_0_141M" class="comment-header" kind="m"><cite class="user">get freedom</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412604441352">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412604441352">21楼 8单元</a></div><p id="bc_0_141MC" class="comment-content">反正电脑能发出声音就行了。好像还可以下载下来，传到手机上听，没声卡都行了，哈哈。textnow会收到一个信息，有个播放按钮。自己试试看就知道了，反正我之前行的。按照我的方法，特别注意IP地址，要有美国IP</p><span id="bc_0_141MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1207700592"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=5763023225796031834">删除8单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_141BR" class="comment-replies"></div><div id="bc_0_141B_box" class="comment-replybox-single"></div></li><li id="bc_0_142B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c7227631732854255584" class="comment-block"><div id="bc_0_142M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412604918905">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412604918905">21楼 9单元</a></div><p id="bc_0_142MC" class="comment-content">TO get freedom<br>你提到用人口少的州，我怎么知道哪些州人口少啊？</p><span id="bc_0_142MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-438163549"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=7227631732854255584">删除9单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="hide">隐藏所有匿名评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_142BR" class="comment-replies"></div><div id="bc_0_142B_box" class="comment-replybox-single"></div></li><li id="bc_0_143B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c7927587635333857033" class="comment-block"><div id="bc_0_143M" class="comment-header" kind="m"><cite class="user">get freedom</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412605773403">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412605773403">21楼 10单元</a></div><p id="bc_0_143MC" class="comment-content">现在是什么年代？google都不用，还注册google帐号？<br>google: 美国各州人口排名</p><span id="bc_0_143MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-139408477"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=7927587635333857033">删除10单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_143BR" class="comment-replies"></div><div id="bc_0_143B_box" class="comment-replybox-single"></div></li><li id="bc_0_219B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/b36-rounded.png"></div><div id="c8656607106412947467" class="comment-block"><div id="bc_0_219M" class="comment-header" kind="m"><cite class="user"><a rel="nofollow" href="http://www.blogger.com/profile/11135393746462565830">Liu Yiteng</a></cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412664424555">十月 07, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412664424555">21楼 11单元</a></div><p id="bc_0_219MC" class="comment-content">镜像后面死链多啊，需要维护一下……</p><span id="bc_0_219MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1476338144"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=8656607106412947467">删除11单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_219BR" class="comment-replies"></div><div id="bc_0_219B_box" class="comment-replybox-single"></div></li><li id="bc_0_224B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c8289312429752015478" class="comment-block"><div id="bc_0_224M" class="comment-header" kind="m"><cite class="user">get freedom</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412673188452">十月 07, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412673188452">21楼 12单元</a></div><p id="bc_0_224MC" class="comment-content">TO Liu Yiteng<br>github新版镜像死链多这个问题我也发现了<br>我记得旧版没这么多死链的。旧博文在更新新版时被改坏了。你可以看看commit的代码变化就知道原因了。</p><span id="bc_0_224MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1409452067"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=8289312429752015478">删除12单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_224BR" class="comment-replies"></div><div id="bc_0_224B_box" class="comment-replybox-single"></div></li></div><div id="bc_0_134I" class="continue" kind="ci"><a href="javascript:;" target="_self">回复21楼</a></div></ol><div id="bc_0_134T_box" class="comment-replybox-thread"></div></div></span></div><div id="bc_0_144B_box" class="comment-replybox-single"></div></li><li id="bc_0_145B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c7632260464975204507" class="comment-block"><div id="bc_0_145M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412526314593">十月 06, 2014</a></span><a style="font-size: 125%;" class="counter" href="2014/10/weekly-share-74.md?comment=1412526314593">22楼</a></div><p id="bc_0_145MC" class="comment-content">支持一下。</p><span id="bc_0_145MN" class="comment-actions secondary-text" kind="m"><a kind="i" href="javascript:;" target="_self" o="r">回复22楼</a><span class="item-control blog-admin pid-2091719192"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=7632260464975204507">删除22楼</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="hide">隐藏所有匿名评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_145BR" class="comment-replies"></div><div id="bc_0_145B_box" class="comment-replybox-single"></div></li><li id="bc_0_148B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/b36-rounded.png"></div><div id="c2799673503116377901" class="comment-block"><div id="bc_0_148M" class="comment-header" kind="m"><cite class="user"><a rel="nofollow" href="http://www.blogger.com/profile/11135393746462565830">Liu Yiteng</a></cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412526402257">十月 06, 2014</a></span><a style="font-size: 125%;" class="counter" href="2014/10/weekly-share-74.md?comment=1412526402257">23楼</a></div><p id="bc_0_148MC" class="comment-content">博主你对坦克本身什么看法，假如中国某个地方的独立既成现实，比如台湾<br>我这么认为<br><a rel="nofollow" target="_blank" title="超链接语法&amp;#65306;
+评论中的网址&amp;#65292;如果两端是空格或换行&amp;#65292;评论发布后会自动变成可点击的超链接&amp;#12290;
+
+&amp;#65288;网址必须以 http:// 或 https:// 开头&amp;#65289;" href="2014/10/weekly-share-73.md?comment=1412521104769" class="bbcode simple">2014/10/weekly-share-73.md?comment=1412521104769</a></p><span id="bc_0_148MN" class="comment-actions secondary-text" kind="m"><a kind="i" href="javascript:;" target="_self" o="r">回复23楼</a><span class="item-control blog-admin pid-1476338144"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=2799673503116377901">删除23楼</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_148BR" class="comment-replies"><span id="bc_0_148b+seedS5_OD" kind="d"><div id="bc_0_146T" class="comment-thread inline-thread" kind="t" t="0" u="0"><span id="bc_0_146TT" class="thread-toggle thread-expanded" kind="g"><span id="bc_0_146TA" class="thread-arrow"></span><span id="bc_0_146TN" class="thread-count"><span id="bc_0_146TNT" style="display: none;"></span><span id="bc_0_146TNU" style="display: none;"></span><a href="javascript:;" target="_self">回复</a><div id="bc_0_146TD" class="thread-dropContainer thread-expanded"><span class="thread-drop"></span></div></span></span><ol id="bc_0_146TC" class="thread-chrome thread-expanded"><div><li id="bc_0_146B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c6438189982499351284" class="comment-block"><div id="bc_0_146M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412532070826">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412532070826">23楼 1单元</a></div><p id="bc_0_146MC" class="comment-content">如果有了既成事实，按共匪行事的思维，它完蛋了。</p><span id="bc_0_146MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-37883822"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=6438189982499351284">删除1单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="hide">隐藏所有匿名评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_146BR" class="comment-replies"></div><div id="bc_0_146B_box" class="comment-replybox-single"></div></li><li id="bc_0_147B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c8794096236557896916" class="comment-block"><div id="bc_0_147M" class="comment-header" kind="m"><cite class="user"><a rel="nofollow" href="">Therapy</a></cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412559298172">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412559298172">23楼 2单元</a></div><p id="bc_0_147MC" class="comment-content">要是没有发生什么事突然宣布独立，那共党只能隔岸骂骂娘。但是如果给了解放军调集准备的时间，什么都有可能发生。</p><span id="bc_0_147MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1406162312"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=8794096236557896916">删除2单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_147BR" class="comment-replies"></div><div id="bc_0_147B_box" class="comment-replybox-single"></div></li></div><div id="bc_0_146I" class="continue" kind="ci"><a href="javascript:;" target="_self">回复23楼</a></div></ol><div id="bc_0_146T_box" class="comment-replybox-thread"></div></div></span></div><div id="bc_0_148B_box" class="comment-replybox-single"></div></li><li id="bc_0_150B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c5324175008583155786" class="comment-block"><div id="bc_0_150M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412532243940">十月 06, 2014</a></span><a style="font-size: 125%;" class="counter" href="2014/10/weekly-share-74.md?comment=1412532243940">24楼</a></div><p id="bc_0_150MC" class="comment-content">电脑两个内存卡槽，一个装了2G的内存，不能装虚拟机，另一个未装，想在另一卡槽装一个4G的不同牌子的内存（同牌子的买不到了），请问这样可以吗？哪个牌子的内存好呢？</p><span id="bc_0_150MN" class="comment-actions secondary-text" kind="m"><a kind="i" href="javascript:;" target="_self" o="r">回复24楼</a><span class="item-control blog-admin pid-1318841274"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=5324175008583155786">删除24楼</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="hide">隐藏所有匿名评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_150BR" class="comment-replies"><span id="bc_0_150b+seedS5_RD" kind="d"><div id="bc_0_149T" class="comment-thread inline-thread" kind="t" t="0" u="0"><span id="bc_0_149TT" class="thread-toggle thread-expanded" kind="g"><span id="bc_0_149TA" class="thread-arrow"></span><span id="bc_0_149TN" class="thread-count"><span id="bc_0_149TNT" style="display: none;"></span><span id="bc_0_149TNU" style="display: none;"></span><a href="javascript:;" target="_self">回复</a><div id="bc_0_149TD" class="thread-dropContainer thread-expanded"><span class="thread-drop"></span></div></span></span><ol id="bc_0_149TC" class="thread-chrome thread-expanded"><div><li id="bc_0_149B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c7971398111540765448" class="comment-block"><div id="bc_0_149M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412533036524">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412533036524">24楼 1单元</a></div><p id="bc_0_149MC" class="comment-content">可以，只要规格相同。不过大小不一的内存，不能组成双通道。内存金士顿，三星的比较多吧，兼容性也不错。</p><span id="bc_0_149MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-37883822"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=7971398111540765448">删除1单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="hide">隐藏所有匿名评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_149BR" class="comment-replies"></div><div id="bc_0_149B_box" class="comment-replybox-single"></div></li></div><div id="bc_0_149I" class="continue" kind="ci"><a href="javascript:;" target="_self">回复24楼</a></div></ol><div id="bc_0_149T_box" class="comment-replybox-thread"></div></div></span></div><div id="bc_0_150B_box" class="comment-replybox-single"></div></li><li id="bc_0_154B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/b36-rounded.png"></div><div id="c8743553555475171925" class="comment-block"><div id="bc_0_154M" class="comment-header" kind="m"><cite class="user"><a rel="nofollow" href="http://www.blogger.com/profile/03115260414378289671">智多星张召忠</a></cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412540770032">十月 06, 2014</a></span><a style="font-size: 125%;" class="counter" href="2014/10/weekly-share-74.md?comment=1412540770032">25楼</a></div><p id="bc_0_154MC" class="comment-content">唉。。。<br>来这里看评论好累，功力太差，每次都要搞清楚谁是五毛，谁不是五毛。以前认一个五毛，好简单的事。<br><br>不过他们打字打多了，我认为这个行业应该是快干不下去了。</p><span id="bc_0_154MN" class="comment-actions secondary-text" kind="m"><a kind="i" href="javascript:;" target="_self" o="r">回复25楼</a><span class="item-control blog-admin pid-1326311143"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=8743553555475171925">删除25楼</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_154BR" class="comment-replies"><span id="bc_0_154b+seedS5_gD" kind="d"><div id="bc_0_151T" class="comment-thread inline-thread" kind="t" t="0" u="0"><span id="bc_0_151TT" class="thread-toggle thread-expanded" kind="g"><span id="bc_0_151TA" class="thread-arrow"></span><span id="bc_0_151TN" class="thread-count"><span id="bc_0_151TNT" style="display: none;"></span><span id="bc_0_151TNU" style="display: none;"></span><a href="javascript:;" target="_self">回复</a><div id="bc_0_151TD" class="thread-dropContainer thread-expanded"><span class="thread-drop"></span></div></span></span><ol id="bc_0_151TC" class="thread-chrome thread-expanded"><div><li id="bc_0_151B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/b36-rounded.png"></div><div id="c6610003224898557798" class="comment-block"><div id="bc_0_151M" class="comment-header" kind="m"><cite class="user"><a rel="nofollow" href="http://www.blogger.com/profile/03115260414378289671">智多星张召忠</a></cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412542012252">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412542012252">25楼 1单元</a></div><p id="bc_0_151MC" class="comment-content">初步教程，匿名不是同一个人，叫忠党爱国的，起码有三个人。<br>现在打字不按回车，打不够40字，估计就没工资。</p><span id="bc_0_151MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1326311143"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=6610003224898557798">删除1单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_151BR" class="comment-replies"></div><div id="bc_0_151B_box" class="comment-replybox-single"></div></li><li id="bc_0_152B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c4343568578877163525" class="comment-block"><div id="bc_0_152M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412559350963">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412559350963">25楼 2单元</a></div><p id="bc_0_152MC" class="comment-content">to 智多星张召忠<br>你在自问自答吗</p><span id="bc_0_152MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-438163549"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=4343568578877163525">删除2单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="hide">隐藏所有匿名评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_152BR" class="comment-replies"></div><div id="bc_0_152B_box" class="comment-replybox-single"></div></li><li id="bc_0_153B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/b36-rounded.png"></div><div id="c7963913988983323843" class="comment-block"><div id="bc_0_153M" class="comment-header" kind="m"><cite class="user"><a rel="nofollow" href="http://www.blogger.com/profile/03115260414378289671">智多星张召忠</a></cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412569725548">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412569725548">25楼 3单元</a></div><p id="bc_0_153MC" class="comment-content">抱歉，老毛病，自己的问题自己解答。有人补充也欢迎，帮助读者解决思维的混乱功德无量。</p><span id="bc_0_153MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1326311143"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=7963913988983323843">删除3单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_153BR" class="comment-replies"></div><div id="bc_0_153B_box" class="comment-replybox-single"></div></li></div><div id="bc_0_151I" class="continue" kind="ci"><a href="javascript:;" target="_self">回复25楼</a></div></ol><div id="bc_0_151T_box" class="comment-replybox-thread"></div></div></span></div><div id="bc_0_154B_box" class="comment-replybox-single"></div></li><li id="bc_0_155B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/photo_002.jpg"></div><div id="c8952671178161955841" class="comment-block"><div id="bc_0_155M" class="comment-header" kind="m"><cite class="user"><a rel="nofollow" href="http://www.blogger.com/profile/15577949483039622921">zhongcai Li</a></cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412540826281">十月 06, 2014</a></span><a style="font-size: 125%;" class="counter" href="2014/10/weekly-share-74.md?comment=1412540826281">26楼</a></div><p id="bc_0_155MC" class="comment-content">啥时候能抢个沙发?嘿嘿</p><span id="bc_0_155MN" class="comment-actions secondary-text" kind="m"><a kind="i" href="javascript:;" target="_self" o="r">回复26楼</a><span class="item-control blog-admin pid-1325116746"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=8952671178161955841">删除26楼</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_155BR" class="comment-replies"></div><div id="bc_0_155B_box" class="comment-replybox-single"></div></li><li id="bc_0_157B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/b36-rounded.png"></div><div id="c37784732832241909" class="comment-block"><div id="bc_0_157M" class="comment-header" kind="m"><cite class="user"><a rel="nofollow" href="http://www.blogger.com/profile/03115260414378289671">智多星张召忠</a></cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412542915842">十月 06, 2014</a></span><a style="font-size: 125%;" class="counter" href="2014/10/weekly-share-74.md?comment=1412542915842">27楼</a></div><p id="bc_0_157MC" class="comment-content">如何搜索人渣？<br><br>请在q群里搜索“网络评论”。有兴趣可以看看，到底有多少个群。<br>有了这个群，他们可以约在同一时间，在同一地点，用不同网名来制造舆论。当然这里，有“匿名”，就不用不同网名了。<br>如果是不同群来联谊，迷惑性就更强了。</p><span id="bc_0_157MN" class="comment-actions secondary-text" kind="m"><a kind="i" href="javascript:;" target="_self" o="r">回复27楼</a><span class="item-control blog-admin pid-1326311143"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=37784732832241909">删除27楼</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_157BR" class="comment-replies"><span id="bc_0_157b+seedS5_-D" kind="d"><div id="bc_0_156T" class="comment-thread inline-thread" kind="t" t="0" u="0"><span id="bc_0_156TT" class="thread-toggle thread-expanded" kind="g"><span id="bc_0_156TA" class="thread-arrow"></span><span id="bc_0_156TN" class="thread-count"><span id="bc_0_156TNT" style="display: none;"></span><span id="bc_0_156TNU" style="display: none;"></span><a href="javascript:;" target="_self">回复</a><div id="bc_0_156TD" class="thread-dropContainer thread-expanded"><span class="thread-drop"></span></div></span></span><ol id="bc_0_156TC" class="thread-chrome thread-expanded"><div><li id="bc_0_156B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c2543082616281855277" class="comment-block"><div id="bc_0_156M" class="comment-header" kind="m"><cite class="user">get freedom</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412561588348">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412561588348">27楼 1单元</a></div><p id="bc_0_156MC" class="comment-content">这个方法赞！<br>我觉得谁要是去当卧底蛮有意思的<br>把它们的聊天记录拉出来，截图，po在这里，看5毛还来不</p><span id="bc_0_156MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-2109834596"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=2543082616281855277">删除1单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_156BR" class="comment-replies"></div><div id="bc_0_156B_box" class="comment-replybox-single"></div></li></div><div id="bc_0_156I" class="continue" kind="ci"><a href="javascript:;" target="_self">回复27楼</a></div></ol><div id="bc_0_156T_box" class="comment-replybox-thread"></div></div></span></div><div id="bc_0_157B_box" class="comment-replybox-single"></div></li><li id="bc_0_160B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/b36-rounded.png"></div><div id="c5972086926803365459" class="comment-block"><div id="bc_0_160M" class="comment-header" kind="m"><cite class="user"><a rel="nofollow" href="http://www.blogger.com/profile/02519951701119232420">Ho Steven</a></cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412548095636">十月 06, 2014</a></span><a style="font-size: 125%;" class="counter" href="2014/10/weekly-share-74.md?comment=1412548095636">28楼</a></div><p id="bc_0_160MC" class="comment-content">早在数年前，中共煽动抗日打砸抢时，这样的Q群就大量存在了。他们像文革红小兵搞串联一样，在大量Q群发消息进行煽动。有人在天涯指出这点，帖子马上就被删掉了。<br><br>估计这些都是中宣部下属的外围组织，正反映了中国国民的悲哀。党用百姓的钱对付百姓，党库国库不分，政府从不敢公布党的收入与预算。党就是中国最大的硕鼠，这一点我们还不如17世纪的英国，有真正的议会制约权力。</p><span id="bc_0_160MN" class="comment-actions secondary-text" kind="m"><a kind="i" href="javascript:;" target="_self" o="r">回复28楼</a><span class="item-control blog-admin pid-2878647"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=5972086926803365459">删除28楼</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_160BR" class="comment-replies"><span id="bc_0_160b+seedS5_uD" kind="d"><div id="bc_0_158T" class="comment-thread inline-thread" kind="t" t="0" u="0"><span id="bc_0_158TT" class="thread-toggle thread-expanded" kind="g"><span id="bc_0_158TA" class="thread-arrow"></span><span id="bc_0_158TN" class="thread-count"><span id="bc_0_158TNT" style="display: none;"></span><span id="bc_0_158TNU" style="display: none;"></span><a href="javascript:;" target="_self">回复</a><div id="bc_0_158TD" class="thread-dropContainer thread-expanded"><span class="thread-drop"></span></div></span></span><ol id="bc_0_158TC" class="thread-chrome thread-expanded"><div><li id="bc_0_158B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/b36-rounded.png"></div><div id="c7263231426567580537" class="comment-block"><div id="bc_0_158M" class="comment-header" kind="m"><cite class="user"><a rel="nofollow" href="http://www.blogger.com/profile/03115260414378289671">智多星张召忠</a></cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412553234689">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412553234689">28楼 1单元</a></div><p id="bc_0_158MC" class="comment-content">唉，长太息以掩涕兮，哀民生之多艰。</p><span id="bc_0_158MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1326311143"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=7263231426567580537">删除1单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_158BR" class="comment-replies"></div><div id="bc_0_158B_box" class="comment-replybox-single"></div></li><li id="bc_0_159B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c8025632894783674910" class="comment-block"><div id="bc_0_159M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412561528787">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412561528787">28楼 2单元</a></div><p id="bc_0_159MC" class="comment-content">可以肯定的，这些群都是地方宣传部弄的，网评员大本营。</p><span id="bc_0_159MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-177191827"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=8025632894783674910">删除2单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="hide">隐藏所有匿名评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_159BR" class="comment-replies"></div><div id="bc_0_159B_box" class="comment-replybox-single"></div></li></div><div id="bc_0_158I" class="continue" kind="ci"><a href="javascript:;" target="_self">回复28楼</a></div></ol><div id="bc_0_158T_box" class="comment-replybox-thread"></div></div></span></div><div id="bc_0_160B_box" class="comment-replybox-single"></div></li><li id="bc_0_161B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/b36-rounded.png"></div><div id="c7531539809733413059" class="comment-block"><div id="bc_0_161M" class="comment-header" kind="m"><cite class="user"><a rel="nofollow" href="http://www.blogger.com/profile/11135393746462565830">Liu Yiteng</a></cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412558600373">十月 06, 2014</a></span><a style="font-size: 125%;" class="counter" href="2014/10/weekly-share-74.md?comment=1412558600373">29楼</a></div><p id="bc_0_161MC" class="comment-content">这是国内媒体最新报道<br><br>现在占中到底是个什么形势，大部分地区是否仍然坚持<br><br>香港部分“占中”者撤离街区<br>2014-10-06 新京报<br>据新华社电 香港“占领中环”的部分参与者5日表示，同意将所占据的地点移交警方以缓和与警方关系。同时，特区政府教育局宣布，受“占中”影响的湾仔区、中西区中学6日复课。<br><br>行政长官办公室外参与“占中”的部分参与者5日傍晚表示，决定离开龙和道及添华路的路面。<br><br>他们表示，市民对连日的占领行为持负面印象，阻碍救援及运送补给物资，现在是时候撤离。他们与现场警方指挥官握手，警方欢迎他们的决定。“占中”参与者剪开在龙和道铁马的索带，警车随即驶入。<br><br>在九龙旺角亚皆老街与弥敦道交界处，还有部分学生决定离开并转移至金钟，对几天来影响附近居民及商户表示歉意。<br><br>在下午召开的特区政府跨部门联合记者会上，香港特区教育局5日决定，受“占中”影响的湾仔区、中西区中学6日（周一）复课。政府将密切留意情况，以决定两个地区的幼儿园、小学及特殊学校何时复课。<br><br>表态<br><br>港府：对话大门始终敞开<br><br>特区行政会议全体非官守议员呼吁所有“占中”人士离开<br><br>香港特区政府发言人5日表示，只要参与“占中”的学生组织愿意，政府与学生的对话大门始终是敞开的。政务司司长随时乐意与学生组织继续为对话作出工作层面的筹备。<br><br>发言人表示，只要学生组织愿意，对话的大门一直是开启的。在筹备对话的同时，政府希望相关团体就以下两方面作出协助和配合：<br><br>一、使出入政府总部的交通至少局部恢复，使约三千名政府人员6日能恢复上班，政府总部可以恢复运作。<br><br>二、开通金钟一带主要干道，减少对该区交通的影响，使中西区及湾仔区的学校在多日停课后6日可以复课。<br><br>香港特区行政会议全体非官守议员5日就“占领中环”发表声明，对连日来在“占中”集会现场发生的暴力行为予以谴责，绝不容忍任何暴力行为，并呼吁各方保持克制。<br><br>声明认为，警方维持公众秩序，秉公执法，行政会议全体非官守议员表示支持，呼吁所有参与“占中”行动及集会的人士尽快离开集会现场，以使被堵塞多日的道路及受影响的公共交通服务得以早日恢复正常，让市民和学生可于6日周一照常上班上学。<br><br>行政会议全体非官守议员呼吁集会人士不再堵塞通往政府总部的出入口，让公务员可以正常上班，继续为市民服务。全体非官守议员促请参与“占中”的学生组织就讨论政改与政府开展对话。<br><br>根据香港特区基本法，行政会议是协助行政长官决策的机构，其现任的非官守议员有十四名，均为特区立法会议员。<br><br>影响<br><br>“占中”造成3500亿港元损失<br><br>综合新华社电 “就像突然停电一样，一小时内影响不大，最多冰箱里的东西受点影响。但停电时间一长，冰箱里的东西就要坏了。”中金公司首席经济学家彭文生5日表示，一周以来“占领中环”已对香港民生经济等方面造成一定影响，如果继续下去，负面效应将会扩大，令人担忧。<br><br>港股跌3% 港元对美元汇率下降<br><br>“占领中环”非法集会已经进入第八天。彭文生认为，“占中”对香港短期影响主要在旅游和零售业方面，“国庆期间内地和国外游客都受到‘占中’影响而减少到香港旅行，冲击显而易见。”<br><br>有香港经济学家以港股市值下跌指数折算认为，“占中”发生至今，初步评估给香港造成3500亿港元经济损失。<br><br>彭文生表示，目前香港股市下跌，幅度在3%左右；港币对美元的汇率也受到一些影响，从7.75变成7.76。如果“占中”停止，影响还可以接受，但若持续时间较长，尤其是发生一些较大冲突，危害不可估量。<br><br>香港特区行政长官梁振英4日发表电视讲话说，3日下午到晚上，在旺角发生“占中”和“反占中”群众冲突事件，造成多人受伤。特区政府强烈谴责所有人的暴力行为，事件发展下去，极有可能失控，对市民安全和社会秩序造成严重后果。<br><br>中证资本市场运行统计监测中心分析师曾光说，“沪港通”公布后，国外热钱涌入香港，蓄势进入内地。但近来恒生指数一直处于下行趋势，尤其最近几天，不排除投资者受“占中”影响纷纷撤资，导致股价下跌。<br><br>有专家对“占中”冲击香港营商环境感到忧虑。中信证券首席经济学家诸建芳认为，香港的零售业和商务活动在“占中”事件中首当其冲受到负面影响，尤其“占中”所在正是香港核心地方，危害更加明显。<br><br>“十一”前两日赴港自由行降6.4%<br><br>街道堵塞、交通瘫痪、商店关门、学校停课、冲突时现……持续多日的香港“占领中环”非法集会严重干扰社会秩序、破坏营商环境，给香港市民的生活带来极大不便，也显著影响内地游客赴港旅游的意愿。<br><br>在广州市中心一家旅行社门店内，一位工作人员表示，和去年“十一”黄金周相比，主动征询香港游的游客数量下降了一半。“以往每天约有30人前来咨询和办理手续，今年黄金周每天来问的只有十来人，有时只有两三人，担忧香港秩序不稳和受到示威者冲击是主要原因。”<br><br>目前，旺角、中环、铜锣湾、金钟、尖沙咀等香港商业旺地和交通要道依然被违法示威人士霸占，多家沿街的商铺关门。香港旅游联业工会已发表严正声明，谴责“占中”行动蔓延扩大，重创包括零售、饮食、酒店和运输等旅游业的62万从业人员生计。<br><br>中
+国内地是香港最大的旅客来源市场，去年内地访港旅客总数达4070万人次，占整体访港旅客的75%。然而，今年受“占中”影响，“十一”黄金周首两日内地
+来港旅客同比减少1.7%，内地自由行旅客更减少6.4%。众多旅行团出现退团潮，业界估计下周内地团数目将减七至八成。此外，加拿大和澳大利亚等国家也
+发布了赴港旅行预警。<br><br>声音<br><br>香港各界呼吁“占中”者撤离<br><br>●香港建造商会 “占中”不是解决问题的方法，只会造成社会不安、撕裂及损害。希望集会人士尽快回家，“占中”人士尽快和平散去。<br><br>●学友社 衷心呼吁学生尽快撤离集会场地，返回课堂继续学业；透过理性对话，和平解决当前危机，让学校及社会尽快恢复正常运作。<br><br>●香港佛教联合会 希望所有参与“占中”集会的人士保持冷静，立即和平离开所有集会现场；希望所有佛教徒、佛教学校师生不要走近现场或附近地方，希望“占中”组织者抛开小我，放下成见，以香港社会稳定及市民生计大局为重。<br><br>●香港多所高校 冀“占中”参与者立即撤离，有序离开，希望以和平理性的态度，透过对话沟通解决问题。其中，香港大学校长马斐森发表声明，呼吁港大学生及教职员，马上撤离现场。<br><br>●全国政协常委唐英年 政制改革是循序渐进，应该依循基本法及全国人大常委会的决定；解决问题最好的方法是对话，而不是对峙。他相信特区政府已经听到大家的诉求，接下来应该理性、务实地建立沟通，避免不必要的冲突再次发生。<br><br>●香港中文大学校长沈祖尧 恳请学生立即撤离，重开道路。<br></p><span id="bc_0_161MN" class="comment-actions secondary-text" kind="m"><a kind="i" href="javascript:;" target="_self" o="r">回复29楼</a><span class="item-control blog-admin pid-1476338144"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=7531539809733413059">删除29楼</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_161BR" class="comment-replies"></div><div id="bc_0_161B_box" class="comment-replybox-single"></div></li><li id="bc_0_162B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c3940042804425952202" class="comment-block"><div id="bc_0_162M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412560905127">十月 06, 2014</a></span><a style="font-size: 125%;" class="counter" href="2014/10/weekly-share-74.md?comment=1412560905127">30楼</a></div><p id="bc_0_162MC" class="comment-content">看了10月5日的无线新闻，觉得占中很快就会结束，最多再坚持4，5日。可是这场运动让人看到了希望， 香港的年轻一代站在同一条战线上，团结一致，争取民主，香港的未来将属于年轻一代 ，当下一次运动再起时，他们就是香港的主流。香港人会记住这场运动的。</p><span id="bc_0_162MN" class="comment-actions secondary-text" kind="m"><a kind="i" href="javascript:;" target="_self" o="r">回复30楼</a><span class="item-control blog-admin pid-659271547"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=3940042804425952202">删除30楼</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="hide">隐藏所有匿名评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_162BR" class="comment-replies"></div><div id="bc_0_162B_box" class="comment-replybox-single"></div></li><li id="bc_0_163B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c1462441275655173129" class="comment-block"><div id="bc_0_163M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412562033984">十月 06, 2014</a></span><a style="font-size: 125%;" class="counter" href="2014/10/weekly-share-74.md?comment=1412562033984">31楼</a></div><p id="bc_0_163MC" class="comment-content">香港占中运动可以说是香港年轻一代的自觉运动，那些领袖全都靠边站了，根本控制不了整场运动，更不用说是西方势力干涉煽动的，美国在昨天表态，占中运动影响了中美关系，为了中美关系着想，美国希望占中者和政府对话，和平解决问题，只对占中运动表示关切。</p><span id="bc_0_163MN" class="comment-actions secondary-text" kind="m"><a kind="i" href="javascript:;" target="_self" o="r">回复31楼</a><span class="item-control blog-admin pid-659271547"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=1462441275655173129">删除31楼</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="hide">隐藏所有匿名评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_163BR" class="comment-replies"></div><div id="bc_0_163B_box" class="comment-replybox-single"></div></li><li id="bc_0_164B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c8518548919054012202" class="comment-block"><div id="bc_0_164M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412565197749">十月 06, 2014</a></span><a style="font-size: 125%;" class="counter" href="2014/10/weekly-share-74.md?comment=1412565197749">32楼</a></div><p id="bc_0_164MC" class="comment-content">香
+港年轻人能有今天如此坚定的民主信念，还要感谢司徒华和他创立的支联会，更要感谢1989年在天安门广场抗争的学生和市民，正因为有了他们，才有了支联
+会，正因为这些学生市民被残忍镇压，香港人才开始认识到富裕的生活不是一切，拥有民主自由才能保障自己的尊严。我系广东人，香港近在迟尺，我唔能够漠视不
+理，我撑香港。</p><span id="bc_0_164MN" class="comment-actions secondary-text" kind="m"><a kind="i" href="javascript:;" target="_self" o="r">回复32楼</a><span class="item-control blog-admin pid-659271547"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=8518548919054012202">删除32楼</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="hide">隐藏所有匿名评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_164BR" class="comment-replies"></div><div id="bc_0_164B_box" class="comment-replybox-single"></div></li><li id="bc_0_165B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c541054946023483643" class="comment-block"><div id="bc_0_165M" class="comment-header" kind="m"><cite class="user">终党爱国</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412567399475">十月 06, 2014</a></span><a style="font-size: 125%;" class="counter" href="2014/10/weekly-share-74.md?comment=1412567399475">33楼</a></div><p id="bc_0_165MC" class="comment-content">带着浓厚臣民意识的人批判香港，就像被关在笼子里的小鸟赞美笼子而批判蓝天一样搞笑。臣民和公民是两重不同的思维境界，其差别大约是古代和现代的差别，野蛮和文明的差别，甚至有可能是兽类与人类的差别。</p><span id="bc_0_165MN" class="comment-actions secondary-text" kind="m"><a kind="i" href="javascript:;" target="_self" o="r">回复33楼</a><span class="item-control blog-admin pid-891951410"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=541054946023483643">删除33楼</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_165BR" class="comment-replies"><span id="bc_0_165b+seedDSD" kind="d"><div id="bc_0_211T" class="comment-thread inline-thread" kind="t" t="0" u="0"><span id="bc_0_211TT" class="thread-toggle thread-expanded" kind="g"><span id="bc_0_211TA" class="thread-arrow"></span><span id="bc_0_211TN" class="thread-count"><span id="bc_0_211TNT" style="display: none;">0</span><span id="bc_0_211TNU" style="display: none;"></span><a href="javascript:;" target="_self">Replies</a><div id="bc_0_211TD" class="thread-dropContainer thread-expanded"><span class="thread-drop"></span></div></span></span><ol id="bc_0_211TC" class="thread-chrome thread-expanded" unselectable="on"><div style="zoom:1" unselectable="on"><li id="bc_0_211B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c2846814655189315772" class="comment-block"><div id="bc_0_211M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412650486735">十月 07, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412650486735">33楼 1单元</a></div><p id="bc_0_211MC" class="comment-content">臣民和公民在人類社會進化上差了一個層次  公民是現代人類  臣民則貌似史前人類  </p><span id="bc_0_211MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1111829712"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=2846814655189315772">删除1单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_211BR" class="comment-replies"></div><div id="bc_0_211B_box" class="comment-replybox-single"></div></li></div><div id="bc_0_211I" class="continue" kind="ci"><a href="javascript:;" target="_self">回复33楼</a></div></ol><div id="bc_0_211T_box" class="comment-replybox-thread"></div></div></span></div><div id="bc_0_165B_box" class="comment-replybox-single"></div></li><li id="bc_0_167B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c586422352586308912" class="comment-block"><div id="bc_0_167M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412570472692">十月 06, 2014</a></span><a style="font-size: 125%;" class="counter" href="2014/10/weekly-share-74.md?comment=1412570472692">34楼</a></div><p id="bc_0_167MC" class="comment-content">楼主,你思博客更新太慢了,每天都进来看一下,可是没什么新内容,你挖的那么多坑也都不填了?俺要表示抗议了!</p><span id="bc_0_167MN" class="comment-actions secondary-text" kind="m"><a kind="i" href="javascript:;" target="_self" o="r">回复34楼</a><span class="item-control blog-admin pid-405643341"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=586422352586308912">删除34楼</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="hide">隐藏所有匿名评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_167BR" class="comment-replies"><span id="bc_0_167b+seedS6AUD" kind="d"><div id="bc_0_166T" class="comment-thread inline-thread" kind="t" t="0" u="0"><span id="bc_0_166TT" class="thread-toggle thread-expanded" kind="g"><span id="bc_0_166TA" class="thread-arrow"></span><span id="bc_0_166TN" class="thread-count"><span id="bc_0_166TNT" style="display: none;"></span><span id="bc_0_166TNU" style="display: none;"></span><a href="javascript:;" target="_self">回复</a><div id="bc_0_166TD" class="thread-dropContainer thread-expanded"><span class="thread-drop"></span></div></span></span><ol id="bc_0_166TC" class="thread-chrome thread-expanded"><div><li id="bc_0_166B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c4572978212352959035" class="comment-block"><div id="bc_0_166M" class="comment-header" kind="m"><cite class="user">get freedom</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412577284277">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412577284277">34楼 1单元</a></div><p id="bc_0_166MC" class="comment-content">每天都进来看一下？不知值有种东西叫RSS订阅？右上角也有邮件订阅。<br>如果你是老读者，博主多次说他时间有限你不知道？<br>这么一分析，我只能对你说呵呵了<br></p><span id="bc_0_166MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-2107778372"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=4572978212352959035">删除1单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_166BR" class="comment-replies"></div><div id="bc_0_166B_box" class="comment-replybox-single"></div></li></div><div id="bc_0_166I" class="continue" kind="ci"><a href="javascript:;" target="_self">回复34楼</a></div></ol><div id="bc_0_166T_box" class="comment-replybox-thread"></div></div></span></div><div id="bc_0_167B_box" class="comment-replybox-single"></div></li><li id="bc_0_168B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c8539447329227805769" class="comment-block"><div id="bc_0_168M" class="comment-header" kind="m"><cite class="user">爱国</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412575972051">十月 06, 2014</a></span><a style="font-size: 125%;" class="counter" href="2014/10/weekly-share-74.md?comment=1412575972051">35楼</a></div><p id="bc_0_168MC" class="comment-content">楼主你好。作为一名没有独立思考能力的在校大学生。我来说一下我所看到的。<br>首
+先是微博方面，关键词被屏蔽。搜索关键词“香港”可以看到，主流宣传媒体主要是几个论调。一方面说有海外势力煽动，一方面说这是非法集会，一方面片面介绍
+1200人选举制的伟光正，比较奇葩的论点是说香港经济不行了所以才闹的，绝口不提香港人的诉求。评论是一片一片的刷各种谩骂。（此时，我感到不适）<br>（事实上也有其他声音，比如有个微博讲的是怎样可以在网站发送支持信息投放到集会广场的留言板的。但是我关注了几个，发现这些声音迅速被删掉了）<br>然后在其他网站，我找不到一个可以正常探讨这件事的网站。各大论坛删帖避难，连知乎都把相关帖子删了。<br><br>有几件事让我感到恐惧：<br>一是只允许主流媒体发生，禁止普通人开口说话。只允许一种声音，禁止不同声音（有不同声音就直接被喷是汉奸走狗美分公知）。<br>Instagram被大陆方面墙了。很让人恐惧的是，我在上面看到同样的喷子（和微博喷子一个品种），在用谩骂和侮辱性言辞煽动港陆双方的仇恨。我很难理解这种憎恨的来源。<br><br>我用评论和部分和喷子对喷的港人沟通。<br>我告诉他们我不明真相，但是我不愿被代表，中国人不止一种声音，同样有人（比如我）不愿表态但愿意保持关注，同时我告诉他们要保重，自己小心，因为我对政府不报期望。<br>他们表示能多些我这样的理性旁观者就是对他们的最大帮助了。<br><br>我希望楼主能收集下国内报道，用双方言论做个对比，可以让人更清晰的看到，真相究竟是什么。</p><span id="bc_0_168MN" class="comment-actions secondary-text" kind="m"><a kind="i" href="javascript:;" target="_self" o="r">回复35楼</a><span class="item-control blog-admin pid-1016898236"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=8539447329227805769">删除35楼</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_168BR" class="comment-replies"></div><div id="bc_0_168B_box" class="comment-replybox-single"></div></li><li id="bc_0_170B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c8452915924323641680" class="comment-block"><div id="bc_0_170M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412576232157">十月 06, 2014</a></span><a style="font-size: 125%;" class="counter" href="2014/10/weekly-share-74.md?comment=1412576232157">36楼</a></div><p id="bc_0_170MC" class="comment-content">这TM是没钱开房了吗，跟政府耍流氓来了！看看现在的学生多有出息。</p><span id="bc_0_170MN" class="comment-actions secondary-text" kind="m"><a kind="i" href="javascript:;" target="_self" o="r">回复36楼</a><span class="item-control blog-admin pid-271149971"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=8452915924323641680">删除36楼</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="hide">隐藏所有匿名评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_170BR" class="comment-replies"><span id="bc_0_170b+seedS6AyD" kind="d"><div id="bc_0_169T" class="comment-thread inline-thread" kind="t" t="0" u="0"><span id="bc_0_169TT" class="thread-toggle thread-expanded" kind="g"><span id="bc_0_169TA" class="thread-arrow"></span><span id="bc_0_169TN" class="thread-count"><span id="bc_0_169TNT" style="display: none;"></span><span id="bc_0_169TNU" style="display: none;"></span><a href="javascript:;" target="_self">回复</a><div id="bc_0_169TD" class="thread-dropContainer thread-expanded"><span class="thread-drop"></span></div></span></span><ol id="bc_0_169TC" class="thread-chrome thread-expanded"><div><li id="bc_0_169B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c1108544284543555171" class="comment-block"><div id="bc_0_169M" class="comment-header" kind="m"><cite class="user">终党爱国</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412607001711">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412607001711">36楼 1单元</a></div><p id="bc_0_169MC" class="comment-content">这TM是没钱开房了吗，政府跟着耍流氓来了！看看现在的学生多有出息。</p><span id="bc_0_169MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-772881133"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=1108544284543555171">删除1单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_169BR" class="comment-replies"></div><div id="bc_0_169B_box" class="comment-replybox-single"></div></li></div><div id="bc_0_169I" class="continue" kind="ci"><a href="javascript:;" target="_self">回复36楼</a></div></ol><div id="bc_0_169T_box" class="comment-replybox-thread"></div></div></span></div><div id="bc_0_170B_box" class="comment-replybox-single"></div></li><li id="bc_0_173B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c9073896501835613797" class="comment-block"><div id="bc_0_173M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412576388361">十月 06, 2014</a></span><a style="font-size: 125%;" class="counter" href="2014/10/weekly-share-74.md?comment=1412576388361">37楼</a></div><p id="bc_0_173MC" class="comment-content">没钱开房跟政府要啊，耍流氓可是要进监狱的。目无法制的一帮狗杂种，妨碍别人赚钱。</p><span id="bc_0_173MN" class="comment-actions secondary-text" kind="m"><a kind="i" href="javascript:;" target="_self" o="r">回复37楼</a><span class="item-control blog-admin pid-271149971"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=9073896501835613797">删除37楼</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="hide">隐藏所有匿名评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_173BR" class="comment-replies"><span id="bc_0_173b+seedS6AoD" kind="d"><div id="bc_0_171T" class="comment-thread inline-thread" kind="t" t="0" u="0"><span id="bc_0_171TT" class="thread-toggle thread-expanded" kind="g"><span id="bc_0_171TA" class="thread-arrow"></span><span id="bc_0_171TN" class="thread-count"><span id="bc_0_171TNT" style="display: none;"></span><span id="bc_0_171TNU" style="display: none;"></span><a href="javascript:;" target="_self">回复</a><div id="bc_0_171TD" class="thread-dropContainer thread-expanded"><span class="thread-drop"></span></div></span></span><ol id="bc_0_171TC" class="thread-chrome thread-expanded"><div><li id="bc_0_171B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c2279889075805036088" class="comment-block"><div id="bc_0_171M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412601630969">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412601630969">37楼 1单元</a></div><p id="bc_0_171MC" class="comment-content">耍流氓<br>中
+共搞一党独裁专制，不给民众真正的民主选举权利，以至政府官员拥有不受任何监督的绝对权力，从而形成家族世袭，裙带提携，卖官鬻职，贿赂公行，强征地，强
+折迁，鱼肉百姓。犯下此类祸国害民之事，却不许百姓批评政府，动辄便是什么“煽动颠覆”、“寻衅滋事”打击迫害敢于批评政府和官员的人，甚至要求官员公示
+财产也有“罪”而获刑。诸如此类，你们在做，地球人在看。</p><span id="bc_0_171MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-91145962"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=2279889075805036088">删除1单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="hide">隐藏所有匿名评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_171BR" class="comment-replies"></div><div id="bc_0_171B_box" class="comment-replybox-single"></div></li><li id="bc_0_172B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/b36-rounded.png"></div><div id="c3936869802837977786" class="comment-block"><div id="bc_0_172M" class="comment-header" kind="m"><cite class="user"><a rel="nofollow" href="http://www.blogger.com/profile/03115260414378289671">智多星张召忠</a></cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412623643929">十月 07, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412623643929">37楼 2单元</a></div><p id="bc_0_172MC" class="comment-content">说你是五毛会打烂你饭碗吗？</p><span id="bc_0_172MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1326311143"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=3936869802837977786">删除2单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_172BR" class="comment-replies"></div><div id="bc_0_172B_box" class="comment-replybox-single"></div></li></div><div id="bc_0_171I" class="continue" kind="ci"><a href="javascript:;" target="_self">回复37楼</a></div></ol><div id="bc_0_171T_box" class="comment-replybox-thread"></div></div></span></div><div id="bc_0_173B_box" class="comment-replybox-single"></div></li><li id="bc_0_182B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c2069569935076718670" class="comment-block"><div id="bc_0_182M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412577462034">十月 06, 2014</a></span><a style="font-size: 125%;" class="counter" href="2014/10/weekly-share-74.md?comment=1412577462034">38楼</a></div><p id="bc_0_182MC" class="comment-content">任何国家的法律都不允许公民做与政府敌对的活动，社会稳定才是经济发展的大前提。如果追求民主让社会安定变得不可控，我支持政府采用武力。</p><span id="bc_0_182MN" class="comment-actions secondary-text" kind="m"><a kind="i" href="javascript:;" target="_self" o="r">回复38楼</a><span class="item-control blog-admin pid-271149971"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=2069569935076718670">删除38楼</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="hide">隐藏所有匿名评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_182BR" class="comment-replies"><span id="bc_0_182b+seedS6AXD" kind="d"><div id="bc_0_174T" class="comment-thread inline-thread" kind="t" t="0" u="0"><span id="bc_0_174TT" class="thread-toggle thread-expanded" kind="g"><span id="bc_0_174TA" class="thread-arrow"></span><span id="bc_0_174TN" class="thread-count"><span id="bc_0_174TNT" style="display: none;">0</span><span id="bc_0_174TNU" style="display: none;"></span><a href="javascript:;" target="_self">回复</a><div id="bc_0_174TD" class="thread-dropContainer thread-expanded"><span class="thread-drop"></span></div></span></span><ol id="bc_0_174TC" class="thread-chrome thread-expanded"><div><li id="bc_0_174B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c2611680588655890944" class="comment-block"><div id="bc_0_174M" class="comment-header" kind="m"><cite class="user">get freedom</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412579704503">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412579704503">38楼 1单元</a></div><p id="bc_0_174MC" class="comment-content">社会稳定？让贪官稳定地洗钱、稳定地吃特供、稳定地享特权……<br>经济发展？贫富差距越来越大，毒空气、毒土地、毒食品……<br><br>当法律失去公正, 则反抗成为义务。<br>When injustice becomes law, resistance becomes duty. ——美国国父 托马斯·杰斐逊</p><span id="bc_0_174MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1595957855"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=2611680588655890944">删除1单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_174BR" class="comment-replies"></div><div id="bc_0_174B_box" class="comment-replybox-single"></div></li><li id="bc_0_175B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c5411408777421441758" class="comment-block"><div id="bc_0_175M" class="comment-header" kind="m"><cite class="user">本评论注定被吃</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412584921758">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412584921758">38楼 2单元</a></div><p id="bc_0_175MC" class="comment-content">“任何国家的法律都不允许公民做与政府敌对的活动”<br>这句话就是天大的谎言，民主国家反对党几乎天天跟政府为敌，揪政府小辫子。</p><span id="bc_0_175MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-767162141"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=5411408777421441758">删除2单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_175BR" class="comment-replies"></div><div id="bc_0_175B_box" class="comment-replybox-single"></div></li><li id="bc_0_176B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c7935824831445520418" class="comment-block"><div id="bc_0_176M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412586119790">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412586119790">38楼 3单元</a></div><p id="bc_0_176MC" class="comment-content">你可以看看美国对待示威者的态度，你好好看看人家是怎么做的，不是让你记住人家是怎么说的。</p><span id="bc_0_176MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-271149971"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=7935824831445520418">删除3单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="hide">隐藏所有匿名评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_176BR" class="comment-replies"></div><div id="bc_0_176B_box" class="comment-replybox-single"></div></li><li id="bc_0_177B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c1015627653208547632" class="comment-block"><div id="bc_0_177M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412586773749">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412586773749">38楼 4单元</a></div><p id="bc_0_177MC" class="comment-content">你想反对中国政府你会有100个理由<br>你想反对美国政府你也有100个理由<br>当然你想诉诸暴力，一个理由就让你失道寡助，那就是和平。</p><span id="bc_0_177MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-271149971"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=1015627653208547632">删除4单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="hide">隐藏所有匿名评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_177BR" class="comment-replies"></div><div id="bc_0_177B_box" class="comment-replybox-single"></div></li><li id="bc_0_178B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c5427244467454911771" class="comment-block"><div id="bc_0_178M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412587349565">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412587349565">38楼 5单元</a></div><p id="bc_0_178MC" class="comment-content">得，现在和平这个词又被拖出来了。稳定压倒一切看来又过时了。</p><span id="bc_0_178MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1405451381"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=5427244467454911771">删除5单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="hide">隐藏所有匿名评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_178BR" class="comment-replies"></div><div id="bc_0_178B_box" class="comment-replybox-single"></div></li><li id="bc_0_179B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c9020436200920976606" class="comment-block"><div id="bc_0_179M" class="comment-header" kind="m"><cite class="user">本评论注定被吃</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412588390137">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412588390137">38楼 6单元</a></div><p id="bc_0_179MC" class="comment-content">现状是和平占中被黑社会暴力对待。呵呵</p><span id="bc_0_179MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1191349293"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=9020436200920976606">删除6单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_179BR" class="comment-replies"></div><div id="bc_0_179B_box" class="comment-replybox-single"></div></li><li id="bc_0_180B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c3447869059358809839" class="comment-block"><div id="bc_0_180M" class="comment-header" kind="m"><cite class="user">get freedom</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412600611637">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412600611637">38楼 7单元</a></div><p id="bc_0_180MC" class="comment-content">共匪夺权时你不讲和平，用坦克镇压手无寸铁的市民时你不讲和平，现在共匪用催泪弹对付雨伞+口罩，你来讲和平？！</p><span id="bc_0_180MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-442293612"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=3447869059358809839">删除7单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_180BR" class="comment-replies"></div><div id="bc_0_180B_box" class="comment-replybox-single"></div></li><li id="bc_0_181B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c1405917173790980007" class="comment-block"><div id="bc_0_181M" class="comment-header" kind="m"><cite class="user">终党爱国</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412606839236">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412606839236">38楼 8单元</a></div><p id="bc_0_181MC" class="comment-content">任何国家的法律都允许公民做与政府不敌对的活动，社会稳定是经济发展的大前提。如果追求专制让社会安定变得可控，我支持人民采用武力。</p><span id="bc_0_181MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-772881133"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=1405917173790980007">删除8单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_181BR" class="comment-replies"></div><div id="bc_0_181B_box" class="comment-replybox-single"></div></li><li id="bc_0_216B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c7279578487080357641" class="comment-block"><div id="bc_0_216M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412662223793">十月 07, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412662223793">38楼 9单元</a></div><p id="bc_0_216MC" class="comment-content">忠党爱国，你又重复发帖了。大家跟你说过多少次了，不要重复发帖。又不是不让你说话了，你至于这么翻来覆去地说吗？</p><span id="bc_0_216MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1933392178"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=7279578487080357641">删除9单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_216BR" class="comment-replies"></div><div id="bc_0_216B_box" class="comment-replybox-single"></div></li><li id="bc_0_218B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c5011207754033039913" class="comment-block"><div id="bc_0_218M" class="comment-header" kind="m"><cite class="user">get freedom</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412664010709">十月 07, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412664010709">38楼 10单元</a></div><p id="bc_0_218MC" class="comment-content">TO 7单元<br>蛤蛤，你说的是楼上6单元那个“终党爱国”吗？看清楚哦，不是“忠党爱国”，而且你仔细看他的内容：<br>任何国家的法律【都允许】公民做与政府不敌对的活动，社会稳定是经济发展的大前提。如果追求专制让社会安定变得可控，我支持【人民】采用武力。</p><span id="bc_0_218MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-935833681"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=5011207754033039913">删除10单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_218BR" class="comment-replies"></div><div id="bc_0_218B_box" class="comment-replybox-single"></div></li></div><div id="bc_0_174I" class="continue" kind="ci"><a href="javascript:;" target="_self">回复38楼</a></div></ol><div id="bc_0_174T_box" class="comment-replybox-thread"></div></div></span></div><div id="bc_0_182B_box" class="comment-replybox-single"></div></li><li id="bc_0_183B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c7538552317333973237" class="comment-block"><div id="bc_0_183M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412577522382">十月 06, 2014</a></span><a style="font-size: 125%;" class="counter" href="2014/10/weekly-share-74.md?comment=1412577522382">39楼</a></div><p id="bc_0_183MC" class="comment-content">香港是天朝权贵洗钱的大本营，光一个徐才厚在香港就被爆出上百亿，特首不听话，这帮家伙的内裤都要掉了，</p><span id="bc_0_183MN" class="comment-actions secondary-text" kind="m"><a kind="i" href="javascript:;" target="_self" o="r">回复39楼</a><span class="item-control blog-admin pid-1360193300"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=7538552317333973237">删除39楼</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="hide">隐藏所有匿名评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_183BR" class="comment-replies"></div><div id="bc_0_183B_box" class="comment-replybox-single"></div></li><li id="bc_0_184B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c887625809132064933" class="comment-block"><div id="bc_0_184M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412579735671">十月 06, 2014</a></span><a style="font-size: 125%;" class="counter" href="2014/10/weekly-share-74.md?comment=1412579735671">40楼</a></div><p id="bc_0_184MC" class="comment-content"> 40102</p><span id="bc_0_184MN" class="comment-actions secondary-text" kind="m"><a kind="i" href="javascript:;" target="_self" o="r">回复40楼</a><span class="item-control blog-admin pid-280416553"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=887625809132064933">删除40楼</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="hide">隐藏所有匿名评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_184BR" class="comment-replies"></div><div id="bc_0_184B_box" class="comment-replybox-single"></div></li><li id="bc_0_185B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c6643079093158474359" class="comment-block"><div id="bc_0_185M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412584954090">十月 06, 2014</a></span><a style="font-size: 125%;" class="counter" href="2014/10/weekly-share-74.md?comment=1412584954090">41楼</a></div><p id="bc_0_185MC" class="comment-content">何清涟: 图穷匕首现：“一国两制”接近终结<br>.<br>05.10.2014 17:04<br><br>10月3日之后，北京一直在为解决占中问题营造“台阶”，这个台阶既让外界看到中共不惜一切代价维护专制极权的决心，也可以帮助港府尽解决占中问题，但结果是失去香港民心，暴露了中国政府行为黑社会化的本相。<br><br>*北京搭建“台阶”的构件是什么？*<br><br>由于北京的处置措施及官媒杀气外露的宣传，不少外媒认为，“令人想起25年前天安门事件。”<br><br>与
+25年前动用军队武力清场不同，此刻中共搭建的这个“台阶”充分显示了北京在诈术方面的“进步”：洒钱购买“营造”民意；颠倒黑白的宣传攻势；港警通过有
+选择的执法纵容反占中者暴力（包括对女生进行性骚扰）；造谣以图瓦解占中者斗志（让一名协警冒充学生与警方握手表示警民合作并将撤退），……总之，除伤害
+生命的杀伤力之外的各种意在逼退占中者的伤害力，能够想得出来的，几乎全用上了。香港《明报》公布了一张“旺角围城”的图片，从图片来看，反占中者对占中
+者形成了包围之势。<br><br>据各种现场报导及消息，自10月3日开始出现的反占中者当中，有本港居民，还有伪装成反占中者的便衣警察、黑社会成
+员，以及大陆临时组织过来的人。部分认为占中影响其生意的商家也参与其中；香港亲北京的民建联议员钟嘉敏花钱买人反占中，也已经被揭露。蓝丝带行动出钱征
+集参加者的广告被公布在网上。<br><br>香港警察在现场虽然将人潮分隔成两批，但选择性执法，对施暴者佯装不见，在占中者要求下抓住几位，一离开现
+场就放掉，便于其重新入场。香港“独立媒体”网站对此发出质疑：“港警是选择性执法，抑或听命于他人？ ” 
+CNN、《华尔街日报》等西方媒体对香港警方明显偏袒反占中者均有报道。<br><br>发动反占中包围占中参与者的目的是一箭双雕，一是在现场制造混乱，给港府清场制造借口；二是迫使示威者不得不撤退。<br><br>与25年前的中共用军队屠城相比，这些阴损手段确实比出动军队镇压高明且不留痕迹，比如香港警方就不承认自己偏袒，冒充学生代表的警察被抓住，立刻说自己是协警，正准备不干了。<br><br>二
+是开始在全球中文媒体上开始反占中宣传。自9月28日至10月3日，北京封杀国内任何关于和平占中的消息；10月3日，当局暗中引导策划的反占中行动到位
+之后，北京开始玩起谎言中夹杂着部分真实的宣传游戏：中国媒体及社交平台解禁“占中” 
+，腾讯手机版首页就是《人民日报》当天发布的《为香港政府守护法治点赞》及新华社的《梁振英呼吁市民不应使用暴力》。这两篇文章隐去了反占中者是当局暗中
+布局引导的真相，将暴力行为说成是占中运动引发。这种宣传手法为“黑白颠倒”这个成语做了最生动的诠释。<br><br>多年以来中共投入巨资的大外宣终
+于派上用场。据中国官媒国际在线报道，“10月3日上午，一篇名为《百家海外华文媒体保卫香港宣言》的文章出现在多家海外华文媒体网站的显著位置，并迅速
+被国内的各大网站转载”。据我查对，在这篇宣言上联署的142家海外华文传媒，其中有不少是多次参加北京官方举办的“世界华文传媒论坛” 
+以及“海外华文媒体高级研修班”的座上宾。这次算是“养兵千日，用在一时”，以“国际媒体”身份帮了北京一把。<br><br>与25年前天安门事件发生
+时相比，中共这次应对香港占中的措施丰富得多。1989年，北京能够控制的媒体仅仅只限于国内，即使如此，《人民日报》、CCTV也曾有过几天的短暂“起
+义” 
+；中共在香港的喉舌媒体《文汇报》亦于屠杀次日留白以示哀悼与抗议，海外华文媒体几乎全都与外媒一致，对北京的屠城表示谴责。这一次却通过多心苦心经营的
+大外宣在中文媒体世界为自身营造出“得道多助”的假相。<br><br>*“一国两制”牌坊终于倒塌*<br><br>香港占中者此刻还在坚持苦守，无论今后几天内是被迫撤退还是被武力清场，从道义上来说，北京是笃定的输家。<br><br>第
+一，中共政府信用彻底崩塌。国内民众对政府的信任度早就降至低点，《人民论坛》今年9月中旬公布的《当代社会病态调查》已充分证实这一点，当被问及“习惯
+性怀疑”的表现时，“政府说什么都不信”的人占受调查者的41.2%。香港人民之所以发起占中，是对北京当年许诺的“一国两制”及“50年不变”还抱有最
+后一点信任。这次北京及港府在处理占中事件过程中，大至对《基本法》的态度，小至港府处理占中事件中的变幻无常及营造反占中民意的阴损方式，让世界非常清
+楚地看到，中共对所谓承诺（包括《基本法》）并无遵守诚意，完全根据自己的利益决定取舍。<br><br>第二、北京对港台政策彻底失败。自从香港九七回
+归以来，由于北京的种种渗透（有人将这些渗透总结为《中共殖民香港十六步曲》），港人一直担心“一国两制”会陷入名不符实的境地。这次港府对占中的处理方
+式，实际上是否定了《基本法》对港人政治权利的授权。当年，中国政府曾承诺香港的政治发展要按国际标准，并在《基本法》中规定《公民权利和政治权利国际公
+约》在香港适用。一部据称按照中国宪法精神制订的《基本法》在权力的意志下如此脆弱，香港人从港英时期就拥有的集会自由终将不保。人大通过的普选方案将普
+选变成了“北京指定候选人，香港人举手通过”的骗人把戏，事实上也否定了《基本法》中对普选的承诺。不管网上盛传的张德江关于要取消“一国两制”的威胁是
+否真实，“一国两制”这块用于安抚港人、争取台湾人的牌坊已经崩塌。<br><br>台湾将以香港现状为戒，拒绝接受“一国两制”。即使是促统的国民党及马英九，鉴于选票流失的考虑，也会暂缓推进统一的步伐。但中共在台湾面临的情况与香港一样：80年代后半期及90后出生的台湾青年，对北京心存戒惧，他们行将成为社会主流。<br><br>第
+三，证明期待习近平政改只是一场春梦。不少人认为只要给习近平足够的时间，待条件成熟，习将推行政治体制改革。此次北京对香港占中事件的态度与行动，充分
+证明这种期待只是一个五彩斑斓的肥皂泡而已。香港民主化早已是“万事俱备，只欠东风”，所谓“万事俱备”指的是香港公民社会充分发育，诸如经济发达、法治
+完备、言论自由、行政高效等所有实行民主制度的基础条件都已具备；“只欠东风”，指的是香港人的政治自决权即普选权。一个条件成熟的地区硬是被中共用暴力
+拦阻在民主化的门外；已经民主化的台湾，北京还时刻想将其拉回到“一国两制”的框架里来。这种情况下，坚持认为习近平将会进行以民主化为目标的政治体制改
+革，只能说是自欺欺人。<br><br>香港10月3日以来发生之事，对本人来说，只是再次证实了我在2003年的分析。那一年，我在《威权统治下的中国
+现状及前景》中预测：中国已经出现失败国家的三大症状：公共权力私人化、政府行为黑社会化、政治暴力合法化。一个这样的政权，做事无底线，承诺无信用，只
+相信“强权即真理”的丛林原则。一个国家由这样的政权统治，就进入漫长的“溃而不崩”之状态，在这个漫长的过程中，绝大多数社会成员备受煎熬。<br><br>中
+国已经出现失败国家的三大症状：公共权力私人化、政府行为黑社会化、政治暴力合法化。一个这样的政权，做事无底线，承诺无信用，只相信“强权即真理”的丛
+林原则。一个国家由这样的政权统治，就进入漫长的“溃而不崩”之状态，在这个漫长的过程中，绝大多数社会成员备受煎熬——看到这段时，我心里有种莫名的恐
+惧，生在这个时代真是一种悲哀。大家快快觉醒起来抗争吧<br><br><br></p><span id="bc_0_185MN" class="comment-actions secondary-text" kind="m"><a kind="i" href="javascript:;" target="_self" o="r">回复41楼</a><span class="item-control blog-admin pid-2029986131"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=6643079093158474359">删除41楼</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="hide">隐藏所有匿名评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_185BR" class="comment-replies"></div><div id="bc_0_185B_box" class="comment-replybox-single"></div></li><li id="bc_0_186B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/photo.jpg"></div><div id="c6347461197161835420" class="comment-block"><div id="bc_0_186M" class="comment-header" kind="m"><cite class="user"><a rel="nofollow" href="http://www.blogger.com/profile/14768821484301530184">王仁坤</a></cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412585974136">十月 06, 2014</a></span><a style="font-size: 125%;" class="counter" href="2014/10/weekly-share-74.md?comment=1412585974136">42楼</a></div><p id="bc_0_186MC" class="comment-content">关于所谓的香港人互相辱骂占中人士怎么看？还有各国发出的声明是否如实？</p><span id="bc_0_186MN" class="comment-actions secondary-text" kind="m"><a kind="i" href="javascript:;" target="_self" o="r">回复42楼</a><span class="item-control blog-admin pid-1115265057"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=6347461197161835420">删除42楼</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_186BR" class="comment-replies"></div><div id="bc_0_186B_box" class="comment-replybox-single"></div></li><li id="bc_0_187B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/b36-rounded.png"></div><div id="c1384804884740047881" class="comment-block"><div id="bc_0_187M" class="comment-header" kind="m"><cite class="user"><a rel="nofollow" href="http://www.blogger.com/profile/09464447201466541182">freedom fighter</a></cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412587503959">十月 06, 2014</a></span><a style="font-size: 125%;" class="counter" href="2014/10/weekly-share-74.md?comment=1412587503959">43楼</a></div><p id="bc_0_187MC" class="comment-content">编程兄，我发现只要你发这些打朝廷脸的文章，墙内的网评员就会不辞劳苦地来捧场。你发技术类的文章的时候，那些网评员同志们就都不出来了。而且，最近这些网评员好像接受了专业培训，说话一套一套的。</p><span id="bc_0_187MN" class="comment-actions secondary-text" kind="m"><a kind="i" href="javascript:;" target="_self" o="r">回复43楼</a><span class="item-control blog-admin pid-2121835603"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=1384804884740047881">删除43楼</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_187BR" class="comment-replies"></div><div id="bc_0_187B_box" class="comment-replybox-single"></div></li><li id="bc_0_189B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c6418030476708678782" class="comment-block"><div id="bc_0_189M" class="comment-header" kind="m"><cite class="user">把脉中国</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412594500624">十月 06, 2014</a></span><a style="font-size: 125%;" class="counter" href="2014/10/weekly-share-74.md?comment=1412594500624">44楼</a></div><p id="bc_0_189MC" class="comment-content">编程兄，怎样才能更好的让墙内的网民能看到更多的实情？比如把你的帖子转发到微薄威信呢？由于我用的是智能ABC，最原始的那个输入法，错别字多。还有我也是程序员，突然发现让更多的程序员的政治觉悟高也很好。</p><span id="bc_0_189MN" class="comment-actions secondary-text" kind="m"><a kind="i" href="javascript:;" target="_self" o="r">回复44楼</a><span class="item-control blog-admin pid-2067242772"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=6418030476708678782">删除44楼</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_189BR" class="comment-replies"><span id="bc_0_189b+seedS6AnD" kind="d"><div id="bc_0_188T" class="comment-thread inline-thread" kind="t" t="0" u="0"><span id="bc_0_188TT" class="thread-toggle thread-expanded" kind="g"><span id="bc_0_188TA" class="thread-arrow"></span><span id="bc_0_188TN" class="thread-count"><span id="bc_0_188TNT" style="display: none;">0</span><span id="bc_0_188TNU" style="display: none;"></span><a href="javascript:;" target="_self">回复</a><div id="bc_0_188TD" class="thread-dropContainer thread-expanded"><span class="thread-drop"></span></div></span></span><ol id="bc_0_188TC" class="thread-chrome thread-expanded"><div><li id="bc_0_188B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c3291512968466296709" class="comment-block"><div id="bc_0_188M" class="comment-header" kind="m"><cite class="user">get freedom</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412601013625">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412601013625">44楼 1单元</a></div><p id="bc_0_188MC" class="comment-content">我在21楼回复了你关于无法匿名注册google帐号的问题。<br><a rel="nofollow" target="_blank" title="超链接语法&amp;#65306;
+评论中的网址&amp;#65292;如果两端是空格或换行&amp;#65292;评论发布后会自动变成可点击的超链接&amp;#12290;
+
+&amp;#65288;网址必须以 http:// 或 https:// 开头&amp;#65289;" href="2014/10/weekly-share-74.md?comment=1412599180343" class="bbcode simple">2014/10/weekly-share-74.md?comment=1412599180343</a><br>如何转发博文也有给出我的建议，供参考。</p><span id="bc_0_188MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1965884336"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=3291512968466296709">删除1单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_188BR" class="comment-replies"></div><div id="bc_0_188B_box" class="comment-replybox-single"></div></li><li id="bc_0_210B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c8778144982659197983" class="comment-block"><div id="bc_0_210M" class="comment-header" kind="m"><cite class="user">把脉中国</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412649939925">十月 07, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412649939925">44楼 2单元</a></div><p id="bc_0_210MC" class="comment-content">现在我通过TOR对 新郎 QQ 等注册帐号，对方都检测到我是国外的，要求必须用手机进行接收验证，我现在卡在这里了。我上网找找有没有类似的能接收SMS信息的软件。</p><span id="bc_0_210MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1874105545"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=8778144982659197983">删除2单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_210BR" class="comment-replies"></div><div id="bc_0_210B_box" class="comment-replybox-single"></div></li><li id="bc_0_214B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c1502506108816649808" class="comment-block"><div id="bc_0_214M" class="comment-header" kind="m"><cite class="user">get freedom</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412658283936">十月 07, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412658283936">44楼 3单元</a></div><p id="bc_0_214MC" class="comment-content">国内有类似于textnow.com这样在线接收短信验证码的网站的，一搜一大把。我觉得用textnow也行的吧。QQ有国际版的，也有很多海外华人用围脖，不可能不让海外IP和电话号码注册</p><span id="bc_0_214MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-734500675"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=1502506108816649808">删除3单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_214BR" class="comment-replies"></div><div id="bc_0_214B_box" class="comment-replybox-single"></div></li><li id="bc_0_235B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c1608982131927661929" class="comment-block"><div id="bc_0_235M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412685330665">十月 07, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412685330665">44楼 4单元</a></div><p id="bc_0_235MC" class="comment-content">TO get freedom<br>为什么我搜索时基本都看不到国内类似于textnow在线接收短信的网站（都是介绍国外的）？</p><span id="bc_0_235MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-438163549"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=1608982131927661929">删除4单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_235BR" class="comment-replies"></div><div id="bc_0_235B_box" class="comment-replybox-single"></div></li><li id="bc_0_238B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c4366762922195874306" class="comment-block"><div id="bc_0_238M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412686661374">十月 07, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412686661374">44楼 5单元</a></div><p id="bc_0_238MC" class="comment-content">国内类似于textnow在线接收短信的服务大部分都要充值的，充值的话涉及到银行卡，不安全了</p><span id="bc_0_238MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-438163549"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=4366762922195874306">删除5单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_238BR" class="comment-replies"></div><div id="bc_0_238B_box" class="comment-replybox-single"></div></li><li id="bc_0_239B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c739042460274282025" class="comment-block"><div id="bc_0_239M" class="comment-header" kind="m"><cite class="user">get freedom</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412686831414">十月 07, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412686831414">44楼 6单元</a></div><p id="bc_0_239MC" class="comment-content">国内的可能基本被封了吧。用textnow吧。伪装成海外用户注册。tor里指定某地区的出口节点。时区、浏览器语言不知道有没有关系，反正多试试看吧</p><span id="bc_0_239MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1992151193"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=739042460274282025">删除6单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_239BR" class="comment-replies"></div><div id="bc_0_239B_box" class="comment-replybox-single"></div></li></div><div id="bc_0_188I" class="continue" kind="ci"><a href="javascript:;" target="_self">回复44楼</a></div></ol><div id="bc_0_188T_box" class="comment-replybox-thread"></div></div></span></div><div id="bc_0_189B_box" class="comment-replybox-single"></div></li><li id="bc_0_190B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/photo_004.jpg"></div><div id="c1014060443673709689" class="comment-block"><div id="bc_0_190M" class="comment-header" kind="m"><cite class="user"><a rel="nofollow" href="http://www.blogger.com/profile/06447895379186154207">Jet Tsui</a></cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412597584306">十月 06, 2014</a></span><a style="font-size: 125%;" class="counter" href="2014/10/weekly-share-74.md?comment=1412597584306">45楼</a></div><p id="bc_0_190MC" class="comment-content">大陆翻墙狗默默支持</p><span id="bc_0_190MN" class="comment-actions secondary-text" kind="m"><a kind="i" href="javascript:;" target="_self" o="r">回复45楼</a><span class="item-control blog-admin pid-1624383704"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=1014060443673709689">删除45楼</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_190BR" class="comment-replies"></div><div id="bc_0_190B_box" class="comment-replybox-single"></div></li><li id="bc_0_192B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c5312011375489810683" class="comment-block"><div id="bc_0_192M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412603262490">十月 06, 2014</a></span><a style="font-size: 125%;" class="counter" href="2014/10/weekly-share-74.md?comment=1412603262490">46楼</a></div><p id="bc_0_192MC" class="comment-content">to 博主<br>你们少谈些“虚”的，多务实一点。解决当下的问题才是关键吧。<br>比
+如对“香港政治制度”有什么好一点的意见或建议啦，香港今后的路该如何走，如何才能以非暴力的方式与中央政府达成一致意见，等等。很多当下让人觉得很迷茫
+的细节问题等着你们去回答，去解决。所以，除了让大众了解真相之外，更要紧的是解决方案。我想，这也是编程人员的强项吧。</p><span id="bc_0_192MN" class="comment-actions secondary-text" kind="m"><a kind="i" href="javascript:;" target="_self" o="r">回复46楼</a><span class="item-control blog-admin pid-1390112264"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=5312011375489810683">删除46楼</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="hide">隐藏所有匿名评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_192BR" class="comment-replies"><span id="bc_0_192b+seedS6AwD" kind="d"><div id="bc_0_191T" class="comment-thread inline-thread" kind="t" t="0" u="0"><span id="bc_0_191TT" class="thread-toggle thread-expanded" kind="g"><span id="bc_0_191TA" class="thread-arrow"></span><span id="bc_0_191TN" class="thread-count"><span id="bc_0_191TNT" style="display: none;">0</span><span id="bc_0_191TNU" style="display: none;"></span><a href="javascript:;" target="_self">回复</a><div id="bc_0_191TD" class="thread-dropContainer thread-expanded"><span class="thread-drop"></span></div></span></span><ol id="bc_0_191TC" class="thread-chrome thread-expanded"><div><li id="bc_0_191B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c6594419536466347922" class="comment-block"><div id="bc_0_191M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412606049656">十月 06, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412606049656">46楼 1单元</a></div><p id="bc_0_191MC" class="comment-content">楼主典型的属于：你跟他讲法律，他跟你说政策；你跟他说政策，他跟你谈民意；你跟他谈民意，他跟你讲国情；你跟他讲国情, 他跟你讲接轨；你跟他讲接轨，他跟你讲道理；你跟他讲道理，他跟你耍流氓；你跟他耍流氓，他跟你讲法律。</p><span id="bc_0_191MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-807353630"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=6594419536466347922">删除1单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="hide">隐藏所有匿名评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_191BR" class="comment-replies"></div><div id="bc_0_191B_box" class="comment-replybox-single"></div></li><li id="bc_0_208B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c2120635704991802322" class="comment-block"><div id="bc_0_208M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412649458603">十月 07, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412649458603">46楼 2单元</a></div><p id="bc_0_208MC" class="comment-content">你跟他講政治他跟你講編程   等你跟他講編程的時候他跟你玩政治   你跟他講江湖他跟你講政治   等你跟他講政治的時候他跟你玩江湖</p><span id="bc_0_208MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-589196535"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=2120635704991802322">删除2单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_208BR" class="comment-replies"></div><div id="bc_0_208B_box" class="comment-replybox-single"></div></li><li id="bc_0_215B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c4348832181982156615" class="comment-block"><div id="bc_0_215M" class="comment-header" kind="m"><cite class="user">get freedom</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412658622242">十月 07, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412658622242">46楼 3单元</a></div><p id="bc_0_215MC" class="comment-content">TO 2单元<br>咱今天就来讲讲编程，不讲政治，敢来不？</p><span id="bc_0_215MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-224092495"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=4348832181982156615">删除3单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_215BR" class="comment-replies"></div><div id="bc_0_215B_box" class="comment-replybox-single"></div></li><li id="bc_0_256B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c6621364310692699442" class="comment-block"><div id="bc_0_256M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412748366580">十月 08, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412748366580">46楼 4单元</a></div><p id="bc_0_256MC" class="comment-content">說到編程實在慚愧  個人基本學歷高中 憑借一股執着的熱情從ubuntu一路玩到lfs  可是居然還從來沒寫出過一個屬於自己的腳本  </p><span id="bc_0_256MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1742569169"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=6621364310692699442">删除4单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_256BR" class="comment-replies"></div><div id="bc_0_256B_box" class="comment-replybox-single"></div></li><li id="bc_0_257B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c314991860583766377" class="comment-block"><div id="bc_0_257M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412748476321">十月 08, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412748476321">46楼 5单元</a></div><p id="bc_0_257MC" class="comment-content">說到編程實在慚愧  個人基本學歷高中 憑借一股執着的熱情從ubuntu一路玩到lfs  可是居然還從來沒能寫出過一個屬於自己的腳本  </p><span id="bc_0_257MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1742569169"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=314991860583766377">删除5单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_257BR" class="comment-replies"></div><div id="bc_0_257B_box" class="comment-replybox-single"></div></li><li id="bc_0_258B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c124792390899643948" class="comment-block"><div id="bc_0_258M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412748801214">十月 08, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412748801214">46楼 6单元</a></div><p id="bc_0_258MC" class="comment-content">說到編程實在慚愧  個人基本學歷高中 憑借一股執着的熱情從ubuntu一路玩到lfs  可是居然還從來沒能寫出過一個屬於自己的腳本  </p><span id="bc_0_258MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-687217824"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=124792390899643948">删除6单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_258BR" class="comment-replies"></div><div id="bc_0_258B_box" class="comment-replybox-single"></div></li></div><div id="bc_0_191I" class="continue" kind="ci"><a href="javascript:;" target="_self">回复46楼</a></div></ol><div id="bc_0_191T_box" class="comment-replybox-thread"></div></div></span></div><div id="bc_0_192B_box" class="comment-replybox-single"></div></li><li id="bc_0_193B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c4938706111347120743" class="comment-block"><div id="bc_0_193M" class="comment-header" kind="m"><cite class="user">get freedom</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412603478086">十月 06, 2014</a></span><a style="font-size: 125%;" class="counter" href="2014/10/weekly-share-74.md?comment=1412603478086">47楼</a></div><p id="bc_0_193MC" class="comment-content"><a rel="nofollow" target="_blank" title="超链接语法&amp;#65306;
+[url=网址]标题文字[/url]
+
+&amp;#65288;网址必须以 http:// 或 https:// 开头&amp;#65289;
+
+&amp;#65288;文字部分&amp;#12304;不要&amp;#12305;使用如下的半角符号&amp;#65292;需要的话&amp;#65292;改用全角符号&amp;#65289;
+\ &lt; &gt; ( ) ' &quot; &amp; # $ %" href="https://zh-tw.facebook.com/notes/kai-chi-leung-%E6%A2%81%E5%95%9F%E6%99%BA/%E9%A6%99%E6%B8%AF%E6%80%8E%E9%BA%BC%E4%BA%86-%E4%B9%8B-%E7%AC%AC%E4%BA%8C%E9%9B%8618%E5%95%8F-%E6%AD%A1%E8%BF%8E%E5%BB%A3%E5%82%B3/742428495794489" class="bbcode with-text">香港怎麼了 之 第二集18問 - 歡迎廣傳</a><br>Kai Chi Leung 梁啟智：自從寫了《香港問題答客問》之後，香港局勢急速改變，特此編寫第二集作補充。本集主要討論當前運動的一些問題，如果對選舉委員會和香港歷史等基礎概念不理解的可以先看第一集。<br><br> 題一：香港現在怎麼了？佔領中環了嗎？ <br> 答：過去一星期，香港出現了前所未見的大型公民運動以和平方式爭取民主，每晚也有數以萬計的市民在金鐘、銅鑼灣和旺角聚集，高喊「支持學生、保護學生」等口號。他們相信只有確保在各處街頭聚集的學生不被趕走，才能夠促使政府面對學生的民主訴求。<br><br>總
+的來說，有兩件事情使得民意急速升溫。9月28日早上，學生本來在政府總部和平集會，警察卻把通往政府總部的通道封死，不許支持的市民和學生會合。如黃河
+治水一樣，當警察只堵塞而不疏導，聚集的市民便越來越多，結果警察再擋不往，市民也就統統坐在政府總部外面的公路上了。警察為了驅逐他們以及在附近各處聚
+集的市民，一個晚上發射了87枚催淚彈，但是催淚彈越多市民卻越反感，前來的市民就更多，最後警察無功而回，支持的市民全面進佔政府總部一帶的道路。與此
+同時，警察向高舉雙手的市民發射催淚彈的新聞畫面引發了更多市民的反感，各方一湧而上。到了9月28日的晚上，銅鑼灣和旺角的主要街道也被支持的市民進
+佔。往後的數天時間，三處地點二十四小時也有支持學生的市民聚集，他們自發設立了臨時的物資站向有需要的市民派發食水，醫學生設立了臨時的救援站作醫療支
+援，大學教授設立了流動講堂和學生討論社會問題等等，各處秩序井然。(詳見張潔平：佔領香港筆記──從廣場到馬路的72小時突變)<br><br>可惜到
+了10月3日下午，三處地點忽然出現暴徒毆打支持學生的市民，公然非禮女學生，強拆物資站和救援站。更不幸的，是當時警方對此沒有嚴正執法保護學生，也發
+生了暴徒毆打記者卻沒有被捕的事件。香港是法治社會，無論你是支持或者反對政府，法律面前人人平等，一律受到保護。香港市民一向十分信任香港警察，這次事
+件使得很多中立的市民也轉為同情學生，使整場運動又推向另一個峰口。<br><br>事情發展至此，已遠遠超越原來的「佔領中環」運動。事實上，三個主要的聚集地點也不在中環，而且民意已經因為上述事件而沸騰，即使「佔領中環」的領袖也不能要求支持的市民立即回家。事情要和平解決，現在只可能靠政府的積極回應。<br><br>……<br>……<br>……<br><br>問題十五：外國的國家元首和地方政府元首不是同一個黨，但都一定是愛國的，香港沒有這個條件啊。<br> <br><br>答：
+外國選舉並沒有機制檢查候選人是否愛國的，也不見得現在提出的1200人提名委員會能夠檢查香港行政長官的參選人是否愛國。這1200人之所以能夠成為委
+員，主要是因為他們都是香港的資本家代表，當中有不少人持有多於一本護照。由他們去審查別人是否愛國，本身就是一件很滑稽的事情。<br><br> <br>此外，《基本法》規定香港行政長官要對中央人民政府負責，如果有行政長官當選後做出任何明確不利於中央政府的事情，可以啟動彈劾程序，一切本來已有制度可隨，不用那1200人多設一舉。<br><br><br>問題十六：中央政府對香港照顧有加的，為什麼香港人就是這麼不聽話？<br><br> <br>答：
+香港人沒有不聽話，香港人只是要求《基本法》本來就答應過香港人有的東西。例如《基本法》附件二列明了立法會的選舉改革是香港的本地事務，但人大常委卻不
+止一次對此提出限制，這些法理上的矛盾才是引起香港人反感的源頭，我們不能因為所謂的「照顧有加」就不顧法理。就好像你住的房子給強拆了，然後居委會和你
+說別忘記他們每年送你多少東西叫你要懂得感恩，你大概也會問：這跟我本來住在這房子的權利有什麼關係啊？<br><br> <br>再者，不少研究顯示中央政府對香港的所謂政策好處其實都是給資本家的，一般市民是未見其利先見其害，例如自遊行的最大得益者其實是房地產開發商，一般市民反受加租之苦，「照顧有加」這說法對於許多香港人來說只會引來反感。<br><br> <br>最後，如果因為提供了支援就可以說三道四，那麼建國以來香港社會各界對中國各方面的支援可真的不少，無論是建設的投資的救災的，但中央政府大概不會容許香港人對中央政府的事情說三道四吧。<br><br>問題十七：就讓香港這樣亂下去吧，上海很快就超過香港的了！<br><br><br>答：
+對於很多香港的年青人來說，他們對於城市之間的競爭不感興趣，因為他們太明白這些競爭力排名的背後其實是赤裸裸的剝削，就算所處的城市「獲勝」了對他們自
+身也沒有好處。學術上對這種城市之間的競爭思維稱之為「城市企業主義」，把城市之間的競爭錯誤理解為企業之間的競爭，往往是一個把公民變成僱員的騙局，讓
+人們把本來該有的權利都自我放棄了。<br><br>宏觀一點來說，信息世代社會發展的最大動力就是多元，而民主社會鼓勵多元，非民主社會卻猜忌多元。要
+創造出新的東西，而不是一天到晚抄襲別人的東西，要有社會制度的保障。因此，現在香港的政制爭議，背後也是一個經濟發展願境的爭議。換個通俗一點的說法，
+電影《讓子彈飛》有一句對白是這樣問的：我是想站著，還想把錢賺了。這應是中國每一個人的願望。<br><br><br>問題十八：你是誰，你為什麼要寫這些東西？<br><br><br>答：
+我是一個香港人，我拿的是中華人民共和國香港特別行政區的護照，我沒有外國居留權，我所做的一切都是誠心誠意為了香港的未來。我也是一位大學老師，因為工
+作的關係每年都會有一到兩個月時間到中國內地各處走，例如帶學生到北京交流，或者到西部支援農村建設等等。大概是因為這些經歷，我一點兒也不恨中國，更很
+想支持國家各方面的發展。我覺得香港和中國之間有太多的誤解和偏見，這樣對兩邊的都不好，而身為讀書人我想我可以做的就是寫一點東西。<br><br>最後，我是一個人。最近我看到中國內地一些「把學生殺光再算」的說法，太沒人性。我想如果每個人也能夠多一點的人文關懷，對國家立足於世上至為重要。<br>----------<br><br>媒體和各界朋友，請不用問我拿版權了。隨便用，隨便印，隨便改，版權歸公，不用註明出處。想派實體版的朋友，請確保參與運動時的自身安全，謝謝。<br><br> <a rel="nofollow" target="_blank" title="超链接语法&amp;#65306;
+[url=网址]标题文字[/url]
+
+&amp;#65288;网址必须以 http:// 或 https:// 开头&amp;#65289;
+
+&amp;#65288;文字部分&amp;#12304;不要&amp;#12305;使用如下的半角符号&amp;#65292;需要的话&amp;#65292;改用全角符号&amp;#65289;
+\ &lt; &gt; ( ) ' &quot; &amp; # $ %" href="https://zh-tw.facebook.com/notes/kai-chi-leung-%E6%A2%81%E5%95%9F%E6%99%BA/%E9%A6%99%E6%B8%AF%E6%80%8E%E9%BA%BC%E4%BA%86-%E4%B9%8B-%E7%AC%AC%E4%BA%8C%E9%9B%8618%E5%95%8F-%E6%AD%A1%E8%BF%8E%E5%BB%A3%E5%82%B3/742428495794489" class="bbcode with-text">香港怎麼了 之 第二集18問 - 歡迎廣傳</a></p><span id="bc_0_193MN" class="comment-actions secondary-text" kind="m"><a kind="i" href="javascript:;" target="_self" o="r">回复47楼</a><span class="item-control blog-admin pid-1311858796"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=4938706111347120743">删除47楼</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_193BR" class="comment-replies"></div><div id="bc_0_193B_box" class="comment-replybox-single"></div></li><li id="bc_0_194B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c6518354699908478009" class="comment-block"><div id="bc_0_194M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412604976955">十月 06, 2014</a></span><a style="font-size: 125%;" class="counter" href="2014/10/weekly-share-74.md?comment=1412604976955">48楼</a></div><p id="bc_0_194MC" class="comment-content">"少谈些主义 多研究些问题",很好！</p><span id="bc_0_194MN" class="comment-actions secondary-text" kind="m"><a kind="i" href="javascript:;" target="_self" o="r">回复48楼</a><span class="item-control blog-admin pid-1325856622"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=6518354699908478009">删除48楼</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="hide">隐藏所有匿名评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_194BR" class="comment-replies"></div><div id="bc_0_194B_box" class="comment-replybox-single"></div></li><li id="bc_0_195B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c3783633818687120581" class="comment-block"><div id="bc_0_195M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412610042313">十月 06, 2014</a></span><a style="font-size: 125%;" class="counter" href="2014/10/weekly-share-74.md?comment=1412610042313">49楼</a></div><p id="bc_0_195MC" class="comment-content">to博主，看到这条新闻，香港示威人士开始感到疲惫http://cn.wsj.com/gb/20141006/bch162125.asp, 这也是俺看新闻一直担心的，不知道游行是否有类似吉恩·夏普所描述的那种非暴力不合作组织者出现。</p><span id="bc_0_195MN" class="comment-actions secondary-text" kind="m"><a kind="i" href="javascript:;" target="_self" o="r">回复49楼</a><span class="item-control blog-admin pid-1950296863"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=3783633818687120581">删除49楼</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="hide">隐藏所有匿名评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_195BR" class="comment-replies"></div><div id="bc_0_195B_box" class="comment-replybox-single"></div></li><li id="bc_0_196B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c4279135566512640716" class="comment-block"><div id="bc_0_196M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412613071045">十月 07, 2014</a></span><a style="font-size: 125%;" class="counter" href="2014/10/weekly-share-74.md?comment=1412613071045">50楼</a></div><p id="bc_0_196MC" class="comment-content">香
+港亲共媒体真他妈多，几乎全是的，除了苹果和一些网络独立媒体，卧槽！！！怎么和兲朝一个德性啊，果然在关键时刻王八就全暴露了，还有诸如曾经的宗主国英
+国的一些政客简直无耻到了极点啊，有木有，居然说香港还没到不能忍受的那一步，还有为共匪洗地的，卧槽，这他妈还是人讲的话么，老子从今以后绝对不会买任
+何英国货了，操！</p><span id="bc_0_196MN" class="comment-actions secondary-text" kind="m"><a kind="i" href="javascript:;" target="_self" o="r">回复50楼</a><span class="item-control blog-admin pid-37883822"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=4279135566512640716">删除50楼</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="hide">隐藏所有匿名评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_196BR" class="comment-replies"></div><div id="bc_0_196B_box" class="comment-replybox-single"></div></li><li id="bc_0_197B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c8179544751796843862" class="comment-block"><div id="bc_0_197M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412613681886">十月 07, 2014</a></span><a style="font-size: 125%;" class="counter" href="2014/10/weekly-share-74.md?comment=1412613681886">51楼</a></div><p id="bc_0_197MC" class="comment-content">我
+一直都喜欢编程的文章，觉得编程很多地方写的很对，我也表示支持，虽然我没没有留言。可对于占中这件事情上，博主会去支持，让我很不可思议。我不知道这个
+占中能带来多大的意义呢？这是作为我一个旁观者来说，最起码会搅乱经济，这是事实。再有，博主貌似并不是一个公正的人，因为在图片上用了大量引导中共不好
+的词语，也是让我不解的。如果博主看到，请回复，谢谢！</p><span id="bc_0_197MN" class="comment-actions secondary-text" kind="m"><a kind="i" href="javascript:;" target="_self" o="r">回复51楼</a><span class="item-control blog-admin pid-1253658667"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=8179544751796843862">删除51楼</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="hide">隐藏所有匿名评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_197BR" class="comment-replies"><span id="bc_0_197b+seedDJD" kind="d"><div id="bc_0_202T" class="comment-thread inline-thread" kind="t" t="0" u="0"><span id="bc_0_202TT" class="thread-toggle thread-expanded" kind="g"><span id="bc_0_202TA" class="thread-arrow"></span><span id="bc_0_202TN" class="thread-count"><span id="bc_0_202TNT" style="display: none;">0</span><span id="bc_0_202TNU" style="display: none;"></span><a href="javascript:;" target="_self">Replies</a><div id="bc_0_202TD" class="thread-dropContainer thread-expanded"><span class="thread-drop"></span></div></span></span><ol id="bc_0_202TC" class="thread-chrome thread-expanded" unselectable="on"><div style="zoom:1" unselectable="on"><li id="bc_0_202B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c4946816419328444216" class="comment-block"><div id="bc_0_202M" class="comment-header" kind="m"><cite class="user">get freedom</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412641021521">十月 07, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412641021521">51楼 1单元</a></div><p id="bc_0_202MC" class="comment-content">这招也是老招啦。前半段假装忠实读者，然后提出批评，虽然博主是欢迎批评的，但是这种批评显然不是一个老读者提出来的。<br>另外还重复留言，证据：<br><a rel="nofollow" target="_blank" title="超链接语法&amp;#65306;
+评论中的网址&amp;#65292;如果两端是空格或换行&amp;#65292;评论发布后会自动变成可点击的超链接&amp;#12290;
+
+&amp;#65288;网址必须以 http:// 或 https:// 开头&amp;#65289;" href="2014/10/weekly-share-74.md?comment=1412613632722" class="bbcode simple">2014/10/weekly-share-74.md?comment=1412613632722</a><br>所以，你懂的</p><span id="bc_0_202MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-411702495"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=4946816419328444216">删除1单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_202BR" class="comment-replies"></div><div id="bc_0_202B_box" class="comment-replybox-single"></div></li><li id="bc_0_204B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c1131346130368764392" class="comment-block"><div id="bc_0_204M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412645697645">十月 07, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412645697645">51楼 2单元</a></div><p id="bc_0_204MC" class="comment-content">所以说鸡国屁民智商的提高首先就是识别能力。不过五毛到这里来纯粹是找死。</p><span id="bc_0_204MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-37883822"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=1131346130368764392">删除2单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_204BR" class="comment-replies"></div><div id="bc_0_204B_box" class="comment-replybox-single"></div></li><li id="bc_0_205B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c1936300564509689064" class="comment-block"><div id="bc_0_205M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412646037954">十月 07, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412646037954">51楼 3单元</a></div><p id="bc_0_205MC" class="comment-content">回复你根毛啊，你好不容易码了超过40个字，可实质性内容啥也木有，你要别人回复你啥？是要别人赏你两耳刮子还是来一句QNMLGB？</p><span id="bc_0_205MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-37883822"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=1936300564509689064">删除3单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_205BR" class="comment-replies"></div><div id="bc_0_205B_box" class="comment-replybox-single"></div></li><li id="bc_0_206B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c659339460385460904" class="comment-block"><div id="bc_0_206M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412647629276">十月 07, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412647629276">51楼 4单元</a></div><p id="bc_0_206MC" class="comment-content">其实我是不建议网评员来这里的，能找到这个博客的网民，从知识底蕴和政治修养上都远远比网评员要高很多，来这里发帖就好比鲁班门前弄大斧，那些小技巧都是大家玩剩下的，不要再在这里献了。</p><span id="bc_0_206MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-2118947701"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=659339460385460904">删除4单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_206BR" class="comment-replies"></div><div id="bc_0_206B_box" class="comment-replybox-single"></div></li><li id="bc_0_207B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c8207623259054810339" class="comment-block"><div id="bc_0_207M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412648970155">十月 07, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412648970155">51楼 5单元</a></div><p id="bc_0_207MC" class="comment-content">那些網評員不管怎麼賣弄姿勢    都有一個令人惡心共同特徵    得了便宜還外加賣乖</p><span id="bc_0_207MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-589196535"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=8207623259054810339">删除5单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_207BR" class="comment-replies"></div><div id="bc_0_207B_box" class="comment-replybox-single"></div></li><li id="bc_0_209B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c1061593643693467140" class="comment-block"><div id="bc_0_209M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412649545517">十月 07, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412649545517">51楼 6单元</a></div><p id="bc_0_209MC" class="comment-content">楼主是出国久了忘记中文怎么写了还是根本不是人这些话都是机器生成的？请大家对照小学语文课本找出句子的错误。</p><span id="bc_0_209MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1406162312"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=1061593643693467140">删除6单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_209BR" class="comment-replies"></div><div id="bc_0_209B_box" class="comment-replybox-single"></div></li><li id="bc_0_241B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c2698920429036390520" class="comment-block"><div id="bc_0_241M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412695455688">十月 07, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412695455688">51楼 7单元</a></div><p id="bc_0_241MC" class="comment-content">这招也是老招啦。前半段假装忠实读者，然后提出批评，虽然博主是欢迎批评的，但是这种批评显然不是一个老读者提出来的。<br>另外还重复留言，证据：<br><a rel="nofollow" target="_blank" title="超链接语法&amp;#65306;
+评论中的网址&amp;#65292;如果两端是空格或换行&amp;#65292;评论发布后会自动变成可点击的超链接&amp;#12290;
+
+&amp;#65288;网址必须以 http:// 或 https:// 开头&amp;#65289;" href="2014/10/weekly-share-74.md?comment=1412613632722" class="bbcode simple">2014/10/weekly-share-74.md?comment=1412613632722</a><br>所以，你懂的<br><br>回
+复上面，我是昨晚问这个问题的人。首先说明我不是五毛党，看到编程的文章，起因是64的时候翻墙谷歌点击进来看的，看了几个文章觉得编程的文章的很有道
+理。我一直没有留言过，所以不知道怎么去留言。你是不是脑子有问题？这里动不动就把人当做五毛吗？如果真的是这样，我永远不再出现这里。我只是提了问题，
+编程为什么会对这个事件用了大量引导激化这个事件的词语。再有，如果我不是反对共的话，我的电脑就不会留有官二代1.0和2.0。我很感谢编程让我开了眼
+界，甚至现在我跟我的朋友都会说起政治的东西，时不时会用到编程写的那些文章。<br>以上我说的话如果哪里有不实的，我出门给车撞死，喝水呛死！<br>再次说明，如果再说我是五毛的，尼玛来我跟赌一把，如果我是五毛，我出门给车撞死，喝水呛死，顺丰一辈子单身狗。如果我不是五毛，那么你是出门给车撞死，喝水呛死，顺丰一辈子单身狗！<br><br>现
+在再问一次编程，请出来回复一下：我不知道这个占中能带来多大的意义呢？这是作为我一个旁观者来说，最起码会搅乱经济，这是事实。再有，博主貌似并不是一
+个公正的人，因为在图片上用了大量引导中共不好的词语，也是让我不解的。我再等您一天。如果没有回复，那么我有我的权利怀疑你不只是抹黑共党的人而已，并
+不是真的为了中国的未来，而了借助民愤来让中国变乱的外国间谍！</p><span id="bc_0_241MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1253658667"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=2698920429036390520">删除7单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_241BR" class="comment-replies"></div><div id="bc_0_241B_box" class="comment-replybox-single"></div></li><li id="bc_0_269B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c7612008060481561084" class="comment-block"><div id="bc_0_269M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412815582719">十月 09, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412815582719">51楼 8单元</a></div><p id="bc_0_269MC" class="comment-content">你有這種執着糾緾的精神   爲什麼不能多前進一步   多看一看編程的文章呢   都是能在網上混的    你貌似史前人類不懂禮貌提問   各位誰幫他一把</p><span id="bc_0_269MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-301357490"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=7612008060481561084">删除8单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_269BR" class="comment-replies"></div><div id="bc_0_269B_box" class="comment-replybox-single"></div></li><li id="bc_0_271B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c5122182479163783897" class="comment-block"><div id="bc_0_271M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412822627092">十月 09, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412822627092">51楼 9单元</a></div><p id="bc_0_271MC" class="comment-content">中
+国现行的发展模式是以牺牲中国人的基本人权和生态环境为代价。中国经济高速增长以来，单位GDP能耗始终是国际水准的3、4倍甚至更多。也就是说，投入相
+同数量的石油，中国只能生产出人家1/3、1/4甚至1/5、1/6的产值。在所谓改革开放的30年间，中国模式创造出的GDP总量大约仅占世界的8%、
+9%，而所投入的钢铁、水泥、煤炭、有色金属却约占世界的50%。这还没把环境崩溃计入成本。因为环境恶化所带来的医疗保健事业发展，治理污染的费用和环
+保企业的发展，不仅没有合理地从国民生产总值中扣除，反而累计其中，——减号变成加号——使这个总产值更加膨胀，造成一种更加虚假的繁荣。</p><span id="bc_0_271MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-376755846"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=5122182479163783897">删除9单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_271BR" class="comment-replies"></div><div id="bc_0_271B_box" class="comment-replybox-single"></div></li><li id="bc_0_273B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c543309396673460250" class="comment-block"><div id="bc_0_273M" class="comment-header" kind="m"><cite class="user"><a rel="nofollow" href="">Therapy</a></cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412823879547">十月 09, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412823879547">51楼 10单元</a></div><p id="bc_0_273MC" class="comment-content">经济不是一切，再说没有自由就绝不会有经济。经济学的大前提就是自由竞争，共党所谓的计划经济在西方只不过是一个笑话，计划经济根本就不是经济。共党的中国灭了也就灭了，反而是件好事。<br><br>占
+中确实不会有根本性的改变，但是别忘了他们是香港，共党的控制还没有像大陆一样无孔不入地深入人们生活的方方面面。对于港人来说，他们知道自己没法打倒整
+个共党，目标只能是且战且退拖延完全赤化的那一天。这样微不足道的愿望都有人干涉，我看这些人的出发点只不过是嫉妒而已，不多说了，人性就是这么丑恶。这
+个帖也一定会被捍卫自己虚伪面孔的自干五猛烈攻击，请便。</p><span id="bc_0_273MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1406162312"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=543309396673460250">删除10单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_273BR" class="comment-replies"></div><div id="bc_0_273B_box" class="comment-replybox-single"></div></li><li id="bc_0_279B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c1367843960783863124" class="comment-block"><div id="bc_0_279M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412860589292">十月 09, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412860589292">51楼 11单元</a></div><p id="bc_0_279MC" class="comment-content">也
+许会是大多数像我一样的想法：假如现在共党塌台了，谁来接呢？我觉得到时全国可能会是非常非常乱，有可能会多个省宣布独立的情况。例如广东，浙江两个省份
+有可能会第一时间出来占山为王，成立独立国家之类的。到那个时候，全国人民是不是又要等待一个“明主”出来？还是直接分化中国的土地，跟朝鲜和韩国一样？
+我的这个想法，可以说，上面的疑问会大一部分人的想法，讨厌伟光正，也一样是大部分人的想法。现在中国的制度非常差，谁都知道贪官横行，不过我想人民也喜
+欢平平淡淡过日子，该努力赚钱的，还是依然努力赚钱。至于如何扳倒共党，我想这应该是需要非常复杂的方式来来处理。我期待有一个大神能提出一套可以较为完
+整的，非武力的方式来更换现在的政权平衡，我也希望在我有生之年能够看到共党覆灭或者取消了独党专政的多党制选举。</p><span id="bc_0_279MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1253658667"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=1367843960783863124">删除11单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_279BR" class="comment-replies"></div><div id="bc_0_279B_box" class="comment-replybox-single"></div></li><li id="bc_0_281B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c5956431928733274403" class="comment-block"><div id="bc_0_281M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412861845483">十月 09, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412861845483">51楼 12单元</a></div><p id="bc_0_281MC" class="comment-content">to 11单元<br>罗马不是一天建成的，打倒共党也不是最终目的。之后还有很长的路要走。西方的政治文明达到今天的水平花了好几百年，离咱近点的台湾，日本和韩国也还有很大的提升空间，民主不是那么简单的事。没有人能一开始就设计好一套完美的制度，只能随着时间不断完善。与君共勉。</p><span id="bc_0_281MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1227819580"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=5956431928733274403">删除12单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_281BR" class="comment-replies"></div><div id="bc_0_281B_box" class="comment-replybox-single"></div></li><li id="bc_0_297B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c4012249149636518601" class="comment-block"><div id="bc_0_297M" class="comment-header" kind="m"><cite class="user"><a rel="nofollow" href="">Therapy</a></cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412935819334">十月 10, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412935819334">51楼 13单元</a></div><p id="bc_0_297MC" class="comment-content">11单元的这个想法恰恰就是博主提过的，虽然意识到共党不好，但是不觉得能更好，的被洗脑的类型。要小心啊。<br>各省独立并不是什么坏事，欧洲各国说白了其实就跟我们的省没什么两样，怎么还一直是独立的主权国家呢？小国寡民是民主的摇篮，大一统是极权的基础，这个不会不明白吧。</p><span id="bc_0_297MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1406162312"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=4012249149636518601">删除13单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_297BR" class="comment-replies"></div><div id="bc_0_297B_box" class="comment-replybox-single"></div></li><li id="bc_0_299B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c3390273786656541241" class="comment-block"><div id="bc_0_299M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412937953767">十月 10, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412937953767">51楼 14单元</a></div><p id="bc_0_299MC" class="comment-content">说不好听的，分裂了还能在联合国多几票，确实没有必要保持统一。如果现在整个大陆都是中华民国，也不见得能比共党好多少。这就是统一固有的缺点。</p><span id="bc_0_299MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1406162312"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=3390273786656541241">删除14单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_299BR" class="comment-replies"></div><div id="bc_0_299B_box" class="comment-replybox-single"></div></li><li id="bc_0_302B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/photo.png"></div><div id="c6314050132075879496" class="comment-block"><div id="bc_0_302M" class="comment-header" kind="m"><cite class="user"><a rel="nofollow" href="http://www.blogger.com/profile/11275317159378783280">守夜人</a></cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412941957921">十月 10, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412941957921">51楼 15单元</a></div><p id="bc_0_302MC" class="comment-content">分
+裂与统一，是两头，中间还有若干方案，其核心点在于是否能够实行地区自制。现在支那的主流就是大统一思想，如果让支那自己分裂是不可能的，除非美国欧洲吃
+拧了，脑洞大开，疯狂的往中东和西藏砸钱，支持他们独立，同时安排台湾独立，这样的话，汉族地区也会摇摇欲坠，这样一来，中国就失去了成为地区大国/强国
+的机会，那如何来制衡恶罗斯，朝鲜，还有日本？此外还有庞大的经济利益，还有很多的社会危机。。。。<br><br>其实说道社会危机，膨胀的人口和越来少的资源，都会让汉区的民众感到生存困难，这么多人口往哪迁移？新疆独立后，国防线就顶到兰州了，这会令人非常的不安全。经济低迷，国家分裂，都是培养犯罪和极端思想的土壤。<br><br>所以，就现实而言，独立不是最好的结果；再一个，支那猪大统一思想严重，再谈独立会引发族群仇恨。将来给少数民族自治权，赔礼道歉，族群能够和解就算是好局面了。</p><span id="bc_0_302MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1433208295"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=6314050132075879496">删除15单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_302BR" class="comment-replies"></div><div id="bc_0_302B_box" class="comment-replybox-single"></div></li><li id="bc_0_331B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c8742082543717656190" class="comment-block"><div id="bc_0_331M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413117544548">十月 12, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1413117544548">51楼 16单元</a></div><p id="bc_0_331MC" class="comment-content">制衡日本干什么？东亚其他国家一起制衡中国都够呛，你不会不知道共党耀武扬威有多嚣张吧？现在挑事的都是兲朝，如果日本有了真正的军队说不定就没那么多麻烦了。<br><br>分裂确实是极端的情况，但如果各民族地区形成国家联合，可能会是个比较好的方案。各地区也应该知道完全独立后只能当个五流国家。从中央下放自治权只能成为祸根，这次的苏格兰就是例子。应该像美国一样各州向联邦托管权力，这其中的区别各位应该懂吧。</p><span id="bc_0_331MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1406162312"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=8742082543717656190">删除16单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_331BR" class="comment-replies"></div><div id="bc_0_331B_box" class="comment-replybox-single"></div></li></div><div id="bc_0_202I" class="continue" kind="ci"><a href="javascript:;" target="_self">回复51楼</a></div></ol><div id="bc_0_202T_box" class="comment-replybox-thread"></div></div></span></div><div id="bc_0_197B_box" class="comment-replybox-single"></div></li><li id="bc_0_199B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/b36-rounded.png"></div><div id="c1944274639561868026" class="comment-block"><div id="bc_0_199M" class="comment-header" kind="m"><cite class="user"><a rel="nofollow" href="http://www.blogger.com/profile/11135393746462565830">Liu Yiteng</a></cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412616520329">十月 07, 2014</a></span><a style="font-size: 125%;" class="counter" href="2014/10/weekly-share-74.md?comment=1412616520329">52楼</a></div><p id="bc_0_199MC" class="comment-content">1分54秒高级黑，重现某画面<br>稍有常识的人都会看出 <br>UP主: 陈大陈 <a rel="nofollow" target="_blank" title="超链接语法&amp;#65306;
+评论中的网址&amp;#65292;如果两端是空格或换行&amp;#65292;评论发布后会自动变成可点击的超链接&amp;#12290;
+
+&amp;#65288;网址必须以 http:// 或 https:// 开头&amp;#65289;" href="http://www.bilibili.com/video/av450166" class="bbcode simple">http://www.bilibili.com/video/av450166</a><br><br><br></p><span id="bc_0_199MN" class="comment-actions secondary-text" kind="m"><a kind="i" href="javascript:;" target="_self" o="r">回复52楼</a><span class="item-control blog-admin pid-1476338144"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=1944274639561868026">删除52楼</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_199BR" class="comment-replies"><span id="bc_0_199b+seedS6A4D" kind="d"><div id="bc_0_198T" class="comment-thread inline-thread" kind="t" t="0" u="0"><span id="bc_0_198TT" class="thread-toggle thread-expanded" kind="g"><span id="bc_0_198TA" class="thread-arrow"></span><span id="bc_0_198TN" class="thread-count"><span id="bc_0_198TNT" style="display: none;"></span><span id="bc_0_198TNU" style="display: none;"></span><a href="javascript:;" target="_self">回复</a><div id="bc_0_198TD" class="thread-dropContainer thread-expanded"><span class="thread-drop"></span></div></span></span><ol id="bc_0_198TC" class="thread-chrome thread-expanded"><div><li id="bc_0_198B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/b36-rounded.png"></div><div id="c6479506850857304684" class="comment-block"><div id="bc_0_198M" class="comment-header" kind="m"><cite class="user"><a rel="nofollow" href="http://www.blogger.com/profile/11135393746462565830">Liu Yiteng</a></cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412617476400">十月 07, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412617476400">52楼 1单元</a></div><p id="bc_0_198MC" class="comment-content">博主，看来国内政治审查还是有疏漏啊，喜羊羊和灰太狼居然演出来坦克人</p><span id="bc_0_198MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1476338144"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=6479506850857304684">删除1单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_198BR" class="comment-replies"></div><div id="bc_0_198B_box" class="comment-replybox-single"></div></li></div><div id="bc_0_198I" class="continue" kind="ci"><a href="javascript:;" target="_self">回复52楼</a></div></ol><div id="bc_0_198T_box" class="comment-replybox-thread"></div></div></span></div><div id="bc_0_199B_box" class="comment-replybox-single"></div></li><li id="bc_0_203B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c6711965635572992959" class="comment-block"><div id="bc_0_203M" class="comment-header" kind="m"><cite class="user">get freedom</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412642710651">十月 07, 2014</a></span><a style="font-size: 125%;" class="counter" href="2014/10/weekly-share-74.md?comment=1412642710651">53楼</a></div><p id="bc_0_203MC" class="comment-content"><br><div class="bbcode-img"><img onerror="this.alt='&amp;#12288;图片加载失败 :(&amp;#12288;'" title="图片语法&amp;#65306;
+[img]图片网址[/img]
+
+&amp;#65288;网址必须以 http:// 或 https:// 开头&amp;#65289;" class="loaded" src="http://chinadigitaltimes.net/chinese/files/2011/07/%E9%93%81%E8%B7%AF%E9%83%A8%E4%BA%94%E6%AF%9B11.png"><br>（要修改“BBCode图片的显示方式”，请猛击“<a href="p/options.md#bbcode" target="_blank">界面配置</a>”）</div><br><br><div class="bbcode-img"><img onerror="this.alt='&amp;#12288;图片加载失败 :(&amp;#12288;'" title="图片语法&amp;#65306;
+[img]图片网址[/img]
+
+&amp;#65288;网址必须以 http:// 或 https:// 开头&amp;#65289;" class="loaded" src="http://www.boxun.com/news/images/2011/11/201111281246china1.jpg"><br>（要修改“BBCode图片的显示方式”，请猛击“<a href="p/options.md#bbcode" target="_blank">界面配置</a>”）</div><br><br><div class="bbcode-img"><img onerror="this.alt='&amp;#12288;图片加载失败 :(&amp;#12288;'" title="图片语法&amp;#65306;
+[img]图片网址[/img]
+
+&amp;#65288;网址必须以 http:// 或 https:// 开头&amp;#65289;" class="loaded" src="http://oi49.tinypic.com/4q5vl3.jpg"><br>（要修改“BBCode图片的显示方式”，请猛击“<a href="p/options.md#bbcode" target="_blank">界面配置</a>”）</div><br><br><div class="bbcode-img"><img onerror="this.alt='&amp;#12288;图片加载失败 :(&amp;#12288;'" title="图片语法&amp;#65306;
+[img]图片网址[/img]
+
+&amp;#65288;网址必须以 http:// 或 https:// 开头&amp;#65289;" class="loaded" src="https://4.bp.blogspot.com/-XpJ9-2qqsOs/TauoUDmnB2I/AAAAAAAAAEE/nOeL-LLo57Q/s1600/041805.png"><br>（要修改“BBCode图片的显示方式”，请猛击“<a href="p/options.md#bbcode" target="_blank">界面配置</a>”）</div><br><div class="bbcode-img"><img onerror="this.alt='&amp;#12288;图片加载失败 :(&amp;#12288;'" title="图片语法&amp;#65306;
+[img]图片网址[/img]
+
+&amp;#65288;网址必须以 http:// 或 https:// 开头&amp;#65289;" class="loaded" src="http://www.epochtimes.com/i6/1205011113422519.jpg"><br>（要修改“BBCode图片的显示方式”，请猛击“<a href="p/options.md#bbcode" target="_blank">界面配置</a>”）</div><br><div class="bbcode-img"><img onerror="this.alt='&amp;#12288;图片加载失败 :(&amp;#12288;'" title="图片语法&amp;#65306;
+[img]图片网址[/img]
+
+&amp;#65288;网址必须以 http:// 或 https:// 开头&amp;#65289;" class="loaded" src="https://c2.staticflickr.com/2/1129/4723287891_7f1c44e888_z.jpg"><br>（要修改“BBCode图片的显示方式”，请猛击“<a href="p/options.md#bbcode" target="_blank">界面配置</a>”）</div><br><div class="bbcode-img"><img onerror="this.alt='&amp;#12288;图片加载失败 :(&amp;#12288;'" title="图片语法&amp;#65306;
+[img]图片网址[/img]
+
+&amp;#65288;网址必须以 http:// 或 https:// 开头&amp;#65289;" class="loaded" src="http://www.epochtimes.com/i6/1205011114282519--ss1.jpg"><br>（要修改“BBCode图片的显示方式”，请猛击“<a href="p/options.md#bbcode" target="_blank">界面配置</a>”）</div><br>图太大，想看全的话在图上点击右键，复制图片地址到浏览器打开。<br>转自twitter、G+、flickr等上的图，看不到请翻墙，并检查DNS有没有被污染<br></p><span id="bc_0_203MN" class="comment-actions secondary-text" kind="m"><a kind="i" href="javascript:;" target="_self" o="r">回复53楼</a><span class="item-control blog-admin pid-1789402290"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=6711965635572992959">删除53楼</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_203BR" class="comment-replies"><span id="bc_0_203b+seedDTD" kind="d"><div id="bc_0_212T" class="comment-thread inline-thread" kind="t" t="0" u="0"><span id="bc_0_212TT" class="thread-toggle thread-expanded" kind="g"><span id="bc_0_212TA" class="thread-arrow"></span><span id="bc_0_212TN" class="thread-count"><span id="bc_0_212TNT" style="display: none;">0</span><span id="bc_0_212TNU" style="display: none;"></span><a href="javascript:;" target="_self">Replies</a><div id="bc_0_212TD" class="thread-dropContainer thread-expanded"><span class="thread-drop"></span></div></span></span><ol id="bc_0_212TC" class="thread-chrome thread-expanded" unselectable="on"><div style="zoom:1" unselectable="on"><li id="bc_0_212B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/b36-rounded.png"></div><div id="c1063538837969912647" class="comment-block"><div id="bc_0_212M" class="comment-header" kind="m"><cite class="user"><a rel="nofollow" href="http://www.blogger.com/profile/11135393746462565830">Liu Yiteng</a></cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412652705355">十月 07, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412652705355">53楼 1单元</a></div><p id="bc_0_212MC" class="comment-content">一毛党啊这是……</p><span id="bc_0_212MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1476338144"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=1063538837969912647">删除1单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_212BR" class="comment-replies"></div><div id="bc_0_212B_box" class="comment-replybox-single"></div></li><li id="bc_0_225B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c8572048762973296081" class="comment-block"><div id="bc_0_225M" class="comment-header" kind="m"><cite class="user">get freedom</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412673759490">十月 07, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412673759490">53楼 2单元</a></div><p id="bc_0_225MC" class="comment-content">TO Liu Yiteng<br>衡阳那张图片的确写的是一毛。真的是太低贱了。<br>但是我也看到过写5毛的文件截图。<br>不过写一毛可能是故意的，目的是让5毛笑1毛，畜生自我感觉马上高大上了。蛤蛤！</p><span id="bc_0_225MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-502683335"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=8572048762973296081">删除2单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_225BR" class="comment-replies"></div><div id="bc_0_225B_box" class="comment-replybox-single"></div></li><li id="bc_0_226B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/b36-rounded.png"></div><div id="c3371329735522384183" class="comment-block"><div id="bc_0_226M" class="comment-header" kind="m"><cite class="user"><a rel="nofollow" href="http://www.blogger.com/profile/11135393746462565830">Liu Yiteng</a></cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412681421835">十月 07, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412681421835">53楼 3单元</a></div><p id="bc_0_226MC" class="comment-content">我很幸运我兼职的时候没当五毛</p><span id="bc_0_226MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1476338144"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=3371329735522384183">删除3单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_226BR" class="comment-replies"></div><div id="bc_0_226B_box" class="comment-replybox-single"></div></li><li id="bc_0_228B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c3015846041011071003" class="comment-block"><div id="bc_0_228M" class="comment-header" kind="m"><cite class="user">本评论注定被吃</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412682277545">十月 07, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412682277545">53楼 4单元</a></div><p id="bc_0_228MC" class="comment-content">五毛这东西一抓一大把，就是五毛口中的“美分”没有踪影。<br><br><div class="bbcode-img"><img onerror="this.alt='&amp;#12288;图片加载失败 :(&amp;#12288;'" title="图片语法&amp;#65306;
+[img]图片网址[/img]
+
+&amp;#65288;网址必须以 http:// 或 https:// 开头&amp;#65289;" class="loaded" src="http://38.media.tumblr.com/eb56316851adddefb0b6f29dd0fd6d0e/tumblr_nbo4tls9Go1tidp9po10_1280.jpg"><br>（要修改“BBCode图片的显示方式”，请猛击“<a href="p/options.md#bbcode" target="_blank">界面配置</a>”）</div><br>五毛招聘<br><br><div class="bbcode-img"><img onerror="this.alt='&amp;#12288;图片加载失败 :(&amp;#12288;'" title="图片语法&amp;#65306;
+[img]图片网址[/img]
+
+&amp;#65288;网址必须以 http:// 或 https:// 开头&amp;#65289;" class="loaded" src="http://ww2.sinaimg.cn/mw690/e371c306jw1ek7a007dqqj20b409ojsc.jpg"><br>（要修改“BBCode图片的显示方式”，请猛击“<a href="p/options.md#bbcode" target="_blank">界面配置</a>”）</div><br>五毛工作指南 <br><br><div class="bbcode-img"><img onerror="this.alt='&amp;#12288;图片加载失败 :(&amp;#12288;'" title="图片语法&amp;#65306;
+[img]图片网址[/img]
+
+&amp;#65288;网址必须以 http:// 或 https:// 开头&amp;#65289;" class="loaded" src="http://ww1.sinaimg.cn/mw690/e371c306jw1ek7a02x4zjj20dw09975v.jpg"><br>（要修改“BBCode图片的显示方式”，请猛击“<a href="p/options.md#bbcode" target="_blank">界面配置</a>”）</div><br><div class="bbcode-img"><img onerror="this.alt='&amp;#12288;图片加载失败 :(&amp;#12288;'" title="图片语法&amp;#65306;
+[img]图片网址[/img]
+
+&amp;#65288;网址必须以 http:// 或 https:// 开头&amp;#65289;" class="loaded" src="http://ww4.sinaimg.cn/mw690/e371c306jw1ek7a03ick5j20go0cidgj.jpg"><br>（要修改“BBCode图片的显示方式”，请猛击“<a href="p/options.md#bbcode" target="_blank">界面配置</a>”）</div><br>新疆农业大学网络评论员、网络监督员开班典礼与结业典礼<br><br><div class="bbcode-img"><img onerror="this.alt='&amp;#12288;图片加载失败 :(&amp;#12288;'" title="图片语法&amp;#65306;
+[img]图片网址[/img]
+
+&amp;#65288;网址必须以 http:// 或 https:// 开头&amp;#65289;" class="loaded" src="http://ww2.sinaimg.cn/mw690/e371c306jw1ek79zyz48zj20i20dkgn9.jpg"><br>（要修改“BBCode图片的显示方式”，请猛击“<a href="p/options.md#bbcode" target="_blank">界面配置</a>”）</div><br> 让你们瞧瞧，优秀五毛长啥样？他们身上的毛少么？<br><br><div class="bbcode-img"><img onerror="this.alt='&amp;#12288;图片加载失败 :(&amp;#12288;'" title="图片语法&amp;#65306;
+[img]图片网址[/img]
+
+&amp;#65288;网址必须以 http:// 或 https:// 开头&amp;#65289;" class="loaded" src="http://ww2.sinaimg.cn/mw690/e371c306jw1ek79zpwic7j20fa0bg0u4.jpg"><br>（要修改“BBCode图片的显示方式”，请猛击“<a href="p/options.md#bbcode" target="_blank">界面配置</a>”）</div><br><div class="bbcode-img"><img onerror="this.alt='&amp;#12288;图片加载失败 :(&amp;#12288;'" title="图片语法&amp;#65306;
+[img]图片网址[/img]
+
+&amp;#65288;网址必须以 http:// 或 https:// 开头&amp;#65289;" class="loaded" src="http://ww3.sinaimg.cn/mw690/e371c306jw1ek79zmnzxnj20c80c8dhz.jpg"><br>（要修改“BBCode图片的显示方式”，请猛击“<a href="p/options.md#bbcode" target="_blank">界面配置</a>”）</div><br>县一级的五毛大会<br><br><div class="bbcode-img"><img onerror="this.alt='&amp;#12288;图片加载失败 :(&amp;#12288;'" title="图片语法&amp;#65306;
+[img]图片网址[/img]
+
+&amp;#65288;网址必须以 http:// 或 https:// 开头&amp;#65289;" class="loaded" src="http://ww2.sinaimg.cn/mw690/e371c306jw1ek79zqj3amj20bt08vwf7.jpg"><br>（要修改“BBCode图片的显示方式”，请猛击“<a href="p/options.md#bbcode" target="_blank">界面配置</a>”）</div><br><div class="bbcode-img"><img onerror="this.alt='&amp;#12288;图片加载失败 :(&amp;#12288;'" title="图片语法&amp;#65306;
+[img]图片网址[/img]
+
+&amp;#65288;网址必须以 http:// 或 https:// 开头&amp;#65289;" class="loaded" src="http://ww4.sinaimg.cn/mw690/e371c306jw1ek79zp2a8qj20i20bz3zg.jpg"><br>（要修改“BBCode图片的显示方式”，请猛击“<a href="p/options.md#bbcode" target="_blank">界面配置</a>”）</div><br>市一级的高级五毛大会，中间那个秃顶的家伙是不是五毛总司令？<br><br><div class="bbcode-img"><img onerror="this.alt='&amp;#12288;图片加载失败 :(&amp;#12288;'" title="图片语法&amp;#65306;
+[img]图片网址[/img]
+
+&amp;#65288;网址必须以 http:// 或 https:// 开头&amp;#65289;" class="loaded" src="http://ww2.sinaimg.cn/mw690/e371c306jw1ek79zrrcskj207e05at92.jpg"><br>（要修改“BBCode图片的显示方式”，请猛击“<a href="p/options.md#bbcode" target="_blank">界面配置</a>”）</div><br><div class="bbcode-img"><img onerror="this.alt='&amp;#12288;图片加载失败 :(&amp;#12288;'" title="图片语法&amp;#65306;
+[img]图片网址[/img]
+
+&amp;#65288;网址必须以 http:// 或 https:// 开头&amp;#65289;" class="loaded" src="http://ww4.sinaimg.cn/mw690/e371c306jw1ek79zvictaj207705e3yp.jpg"><br>（要修改“BBCode图片的显示方式”，请猛击“<a href="p/options.md#bbcode" target="_blank">界面配置</a>”）</div><br><div class="bbcode-img"><img onerror="this.alt='&amp;#12288;图片加载失败 :(&amp;#12288;'" title="图片语法&amp;#65306;
+[img]图片网址[/img]
+
+&amp;#65288;网址必须以 http:// 或 https:// 开头&amp;#65289;" class="loaded" src="http://ww2.sinaimg.cn/mw690/e371c306jw1ek79zzktk6j20dn06v0tg.jpg"><br>（要修改“BBCode图片的显示方式”，请猛击“<a href="p/options.md#bbcode" target="_blank">界面配置</a>”）</div><br>省级五毛大会是有了，不知中央一级的大会咋样，是否会后有美女陪侍？<br><br><div class="bbcode-img"><img onerror="this.alt='&amp;#12288;图片加载失败 :(&amp;#12288;'" title="图片语法&amp;#65306;
+[img]图片网址[/img]
+
+&amp;#65288;网址必须以 http:// 或 https:// 开头&amp;#65289;" class="loaded" src="http://ww3.sinaimg.cn/mw690/e371c306jw1ek79zlkbk6j20dh08zdgo.jpg"><br>（要修改“BBCode图片的显示方式”，请猛击“<a href="p/options.md#bbcode" target="_blank">界面配置</a>”）</div><br>企业也有五毛大会！<br><br><div class="bbcode-img"><img onerror="this.alt='&amp;#12288;图片加载失败 :(&amp;#12288;'" title="图片语法&amp;#65306;
+[img]图片网址[/img]
+
+&amp;#65288;网址必须以 http:// 或 https:// 开头&amp;#65289;" class="loaded" src="http://ww2.sinaimg.cn/mw690/e371c306jw1ek79zr5s3vj20c80ga0ts.jpg"><br>（要修改“BBCode图片的显示方式”，请猛击“<a href="p/options.md#bbcode" target="_blank">界面配置</a>”）</div><br>五毛的收据<br><br><div class="bbcode-img"><img onerror="this.alt='&amp;#12288;图片加载失败 :(&amp;#12288;'" title="图片语法&amp;#65306;
+[img]图片网址[/img]
+
+&amp;#65288;网址必须以 http:// 或 https:// 开头&amp;#65289;" class="loaded" src="http://ww3.sinaimg.cn/mw690/e371c306jw1ek79zyb2tpj20ha0zkdsq.jpg"><br>（要修改“BBCode图片的显示方式”，请猛击“<a href="p/options.md#bbcode" target="_blank">界面配置</a>”）</div><br>五毛单日工资结帐</p><span id="bc_0_228MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1191349293"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=3015846041011071003">删除4单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_228BR" class="comment-replies"></div><div id="bc_0_228B_box" class="comment-replybox-single"></div></li><li id="bc_0_230B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c698989977070959705" class="comment-block"><div id="bc_0_230M" class="comment-header" kind="m"><cite class="user">本评论注定被吃</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412684055477">十月 07, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412684055477">53楼 5单元</a></div><p id="bc_0_230MC" class="comment-content">五毛最早的出处其实是1917年北洋政府时的总理段祺瑞为了让舆论推动议会通过《对德宣战案》，让人以每人五毛大洋的代价请人到议会前情愿，结果闹大了没办成事，事后又不兑现那五毛大洋，被人捅到报上。<br><br>相比今天的五毛贱多了</p><span id="bc_0_230MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1874236729"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=698989977070959705">删除5单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_230BR" class="comment-replies"></div><div id="bc_0_230B_box" class="comment-replybox-single"></div></li></div><div id="bc_0_212I" class="continue" kind="ci"><a href="javascript:;" target="_self">回复53楼</a></div></ol><div id="bc_0_212T_box" class="comment-replybox-thread"></div></div></span></div><div id="bc_0_203B_box" class="comment-replybox-single"></div></li><li id="bc_0_213B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c8635885962445225368" class="comment-block"><div id="bc_0_213M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412653490857">十月 07, 2014</a></span><a style="font-size: 125%;" class="counter" href="2014/10/weekly-share-74.md?comment=1412653490857">54楼</a></div><p id="bc_0_213MC" class="comment-content">网传北京警方有令，发现市民打伞上街要带回派出所调查，凡是在街上打伞的民众，都需进行盘查，如果多人打伞，再穿黑衣的一定要带回派出所询问。</p><span id="bc_0_213MN" class="comment-actions secondary-text" kind="m"><a kind="i" href="javascript:;" target="_self" o="r">回复54楼</a><span class="item-control blog-admin pid-428695775"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=8635885962445225368">删除54楼</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_213BR" class="comment-replies"><span id="bc_0_213b+seedDYD" kind="d"><div id="bc_0_217T" class="comment-thread inline-thread" kind="t" t="0" u="0"><span id="bc_0_217TT" class="thread-toggle thread-expanded" kind="g"><span id="bc_0_217TA" class="thread-arrow"></span><span id="bc_0_217TN" class="thread-count"><span id="bc_0_217TNT" style="display: none;">0</span><span id="bc_0_217TNU" style="display: none;"></span><a href="javascript:;" target="_self">Replies</a><div id="bc_0_217TD" class="thread-dropContainer thread-expanded"><span class="thread-drop"></span></div></span></span><ol id="bc_0_217TC" class="thread-chrome thread-expanded" unselectable="on"><div style="zoom:1" unselectable="on"><li id="bc_0_217B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c2980102417801090079" class="comment-block"><div id="bc_0_217M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412663000485">十月 07, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412663000485">54楼 1单元</a></div><p id="bc_0_217MC" class="comment-content">我只想弱弱地问一句：帝都的捕快们有那么多人手吗......即使1000个人里面才有一个人打伞，根据帝都的人口估计，打伞的也有一万多吧，把协警和打杂的算进去也不够吧?</p><span id="bc_0_217MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1390994863"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=2980102417801090079">删除1单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_217BR" class="comment-replies"></div><div id="bc_0_217B_box" class="comment-replybox-single"></div></li></div><div id="bc_0_217I" class="continue" kind="ci"><a href="javascript:;" target="_self">回复54楼</a></div></ol><div id="bc_0_217T_box" class="comment-replybox-thread"></div></div></span></div><div id="bc_0_213B_box" class="comment-replybox-single"></div></li><li id="bc_0_220B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c2869578414302533507" class="comment-block"><div id="bc_0_220M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412668422351">十月 07, 2014</a></span><a style="font-size: 125%;" class="counter" href="2014/10/weekly-share-74.md?comment=1412668422351">55楼</a></div><p id="bc_0_220MC" class="comment-content">能回复一下"博客评论功能升级——增加“留言过滤”、“200条之后自动加载”、等''41楼3单元吗?谢谢 </p><span id="bc_0_220MN" class="comment-actions secondary-text" kind="m"><a kind="i" href="javascript:;" target="_self" o="r">回复55楼</a><span class="item-control blog-admin pid-358694286"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=2869578414302533507">删除55楼</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_220BR" class="comment-replies"></div><div id="bc_0_220B_box" class="comment-replybox-single"></div></li><li id="bc_0_222B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c6925101339588741532" class="comment-block"><div id="bc_0_222M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412671734323">十月 07, 2014</a></span><a style="font-size: 125%;" class="counter" href="2014/10/weekly-share-74.md?comment=1412671734323">56楼</a></div><p id="bc_0_222MC" class="comment-content">想要制作一个图片连接别人点击图片就能连接到网址的那种，在不支持发布代码和html文件的论坛中发布请问制作方法是什么？</p><span id="bc_0_222MN" class="comment-actions secondary-text" kind="m"><a kind="i" href="javascript:;" target="_self" o="r">回复56楼</a><span class="item-control blog-admin pid-1444415838"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=6925101339588741532">删除56楼</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_222BR" class="comment-replies"><span id="bc_0_222b+seedD8D" kind="d"><div id="bc_0_253T" class="comment-thread inline-thread" kind="t" t="0" u="0"><span id="bc_0_253TT" class="thread-toggle thread-expanded" kind="g"><span id="bc_0_253TA" class="thread-arrow"></span><span id="bc_0_253TN" class="thread-count"><span id="bc_0_253TNT" style="display: none;">0</span><span id="bc_0_253TNU" style="display: none;"></span><a href="javascript:;" target="_self">Replies</a><div id="bc_0_253TD" class="thread-dropContainer thread-expanded"><span class="thread-drop"></span></div></span></span><ol id="bc_0_253TC" class="thread-chrome thread-expanded" unselectable="on"><div style="zoom:1" unselectable="on"><li id="bc_0_253B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c5132011206894252535" class="comment-block"><div id="bc_0_253M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412736547436">十月 08, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412736547436">56楼 1单元</a></div><p id="bc_0_253MC" class="comment-content">没人知道吗</p><span id="bc_0_253MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-239673899"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=5132011206894252535">删除1单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_253BR" class="comment-replies"></div><div id="bc_0_253B_box" class="comment-replybox-single"></div></li></div><div id="bc_0_253I" class="continue" kind="ci"><a href="javascript:;" target="_self">回复56楼</a></div></ol><div id="bc_0_253T_box" class="comment-replybox-thread"></div></div></span></div><div id="bc_0_222B_box" class="comment-replybox-single"></div></li><li id="bc_0_227B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/b36-rounded.png"></div><div id="c7385708592069428629" class="comment-block"><div id="bc_0_227M" class="comment-header" kind="m"><cite class="user"><a rel="nofollow" href="http://www.blogger.com/profile/11135393746462565830">Liu Yiteng</a></cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412682267064">十月 07, 2014</a></span><a style="font-size: 125%;" class="counter" href="2014/10/weekly-share-74.md?comment=1412682267064">57楼</a></div><p id="bc_0_227MC" class="comment-content">话说国内流行软件有可能逆向工程么，在软件内部加入加密模块这种东西来保证信息安全这样的事有可能吗？</p><span id="bc_0_227MN" class="comment-actions secondary-text" kind="m"><a kind="i" href="javascript:;" target="_self" o="r">回复57楼</a><span class="item-control blog-admin pid-1476338144"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=7385708592069428629">删除57楼</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_227BR" class="comment-replies"><span id="bc_0_227b+seedDnD" kind="d"><div id="bc_0_232T" class="comment-thread inline-thread" kind="t" t="0" u="0"><span id="bc_0_232TT" class="thread-toggle thread-expanded" kind="g"><span id="bc_0_232TA" class="thread-arrow"></span><span id="bc_0_232TN" class="thread-count"><span id="bc_0_232TNT" style="display: none;">0</span><span id="bc_0_232TNU" style="display: none;"></span><a href="javascript:;" target="_self">Replies</a><div id="bc_0_232TD" class="thread-dropContainer thread-expanded"><span class="thread-drop"></span></div></span></span><ol id="bc_0_232TC" class="thread-chrome thread-expanded" unselectable="on"><div style="zoom:1" unselectable="on"><li id="bc_0_232B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c6711693736674600549" class="comment-block"><div id="bc_0_232M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412684727368">十月 07, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412684727368">57楼 1单元</a></div><p id="bc_0_232MC" class="comment-content">好像是不可能的。QQ会检查自己的模块是否完整的。这种玩意有点自保护的意思。</p><span id="bc_0_232MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1485957737"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=6711693736674600549">删除1单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_232BR" class="comment-replies"></div><div id="bc_0_232B_box" class="comment-replybox-single"></div></li><li id="bc_0_234B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/b36-rounded.png"></div><div id="c2902726368199676743" class="comment-block"><div id="bc_0_234M" class="comment-header" kind="m"><cite class="user"><a rel="nofollow" href="http://www.blogger.com/profile/11135393746462565830">Liu Yiteng</a></cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412684866065">十月 07, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412684866065">57楼 2单元</a></div><p id="bc_0_234MC" class="comment-content">如果能够反向工程攻破qq，还怕模块检查么……</p><span id="bc_0_234MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1476338144"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=2902726368199676743">删除2单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_234BR" class="comment-replies"></div><div id="bc_0_234B_box" class="comment-replybox-single"></div></li><li id="bc_0_242B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c6904363590548907881" class="comment-block"><div id="bc_0_242M" class="comment-header" kind="m"><cite class="user">忠党爱国</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412712545770">十月 08, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412712545770">57楼 3单元</a></div><p id="bc_0_242MC" class="comment-content">安全系统需要设计。加密也不是一个加密模块的事情。<br>但是没必要用qq，也没必要考虑给qq开发插件。因为能代替qq的好软件有的是。<br>如果偏要用qq发送加密消息，可以额外找一个软件事先加密消息（然后粘贴到qq里），比如PGP。</p><span id="bc_0_242MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-261298401"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=6904363590548907881">删除3单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_242BR" class="comment-replies"></div><div id="bc_0_242B_box" class="comment-replybox-single"></div></li></div><div id="bc_0_232I" class="continue" kind="ci"><a href="javascript:;" target="_self">回复57楼</a></div></ol><div id="bc_0_232T_box" class="comment-replybox-thread"></div></div></span></div><div id="bc_0_227B_box" class="comment-replybox-single"></div></li><li id="bc_0_229B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/b36-rounded.png"></div><div id="c8607803400390538989" class="comment-block"><div id="bc_0_229M" class="comment-header" kind="m"><cite class="user"><a rel="nofollow" href="http://www.blogger.com/profile/11135393746462565830">Liu Yiteng</a></cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412682842288">十月 07, 2014</a></span><a style="font-size: 125%;" class="counter" href="2014/10/weekly-share-74.md?comment=1412682842288">58楼</a></div><p id="bc_0_229MC" class="comment-content">比如反向工程qq之后，在qq发送之前就用对方的公钥证书加密，公钥可以使用当前的系统时间等来生成，并在信息自身注明已加密，这样也就不怕qq监控聊天记录了，因为聊天记录全是密文。</p><span id="bc_0_229MN" class="comment-actions secondary-text" kind="m"><a kind="i" href="javascript:;" target="_self" o="r">回复58楼</a><span class="item-control blog-admin pid-1476338144"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=8607803400390538989">删除58楼</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_229BR" class="comment-replies"><span id="bc_0_229b+seedDmD" kind="d"><div id="bc_0_231T" class="comment-thread inline-thread" kind="t" t="0" u="0"><span id="bc_0_231TT" class="thread-toggle thread-expanded" kind="g"><span id="bc_0_231TA" class="thread-arrow"></span><span id="bc_0_231TN" class="thread-count"><span id="bc_0_231TNT" style="display: none;">0</span><span id="bc_0_231TNU" style="display: none;"></span><a href="javascript:;" target="_self">Replies</a><div id="bc_0_231TD" class="thread-dropContainer thread-expanded"><span class="thread-drop"></span></div></span></span><ol id="bc_0_231TC" class="thread-chrome thread-expanded" unselectable="on"><div style="zoom:1" unselectable="on"><li id="bc_0_231B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c8315696951364192431" class="comment-block"><div id="bc_0_231M" class="comment-header" kind="m"><cite class="user">本评论注定被吃</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412684175760">十月 07, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412684175760">58楼 1单元</a></div><p id="bc_0_231MC" class="comment-content">反向QQ不如有QQ的开源软件。反正加密解密是双方的事，不如直接换可靠的开源TM。</p><span id="bc_0_231MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-840154496"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=8315696951364192431">删除1单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_231BR" class="comment-replies"></div><div id="bc_0_231B_box" class="comment-replybox-single"></div></li><li id="bc_0_233B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/photo.png"></div><div id="c6455511449194413895" class="comment-block"><div id="bc_0_233M" class="comment-header" kind="m"><cite class="user"><a rel="nofollow" href="http://www.blogger.com/profile/11275317159378783280">守夜人</a></cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412684783605">十月 07, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412684783605">58楼 2单元</a></div><p id="bc_0_233MC" class="comment-content">逆
+向工程软件要有的话肯定是用来搞地下黑产，绝对不可能流传到市面上，除非那搞逆向的人不想活了。我知道有一种软件可以把文字转换成对应的乱码，通过QQ向
+对方传递，对方用同一种软件解码，这就防止了QQ的明文监控，也不会触动敏感词报警系统，不过这样也有不少缺点，一个是麻烦，每一句都要转换，再一个是无
+法避免人工盯梢，如果有人监控聊天记录，也有可能找这种软件来匹配，最终破解聊天记录。总之用QQ不安全就是。至少在加密方面，有些软件已经实现你所说的
+了，只是这跟QQ没关系。</p><span id="bc_0_233MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1433208295"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=6455511449194413895">删除2单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_233BR" class="comment-replies"></div><div id="bc_0_233B_box" class="comment-replybox-single"></div></li><li id="bc_0_237B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/b36-rounded.png"></div><div id="c3686074427347034324" class="comment-block"><div id="bc_0_237M" class="comment-header" kind="m"><cite class="user"><a rel="nofollow" href="http://www.blogger.com/profile/11135393746462565830">Liu Yiteng</a></cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412686330020">十月 07, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412686330020">58楼 3单元</a></div><p id="bc_0_237MC" class="comment-content">不可能只因为用同一种软件被找出吧，理论上私钥没被拿到他们都没办法的。<br>即使qq不能直接逆向破解，也可以曲线救国，比如设计一个专门的输入框软件，将所有要输入的东西放到框里面，再由框发给qq软件，并且指挥qq发送加密信息（可以使用技巧，比如设置好需要聊天的窗口，发送时模拟快捷键按下，触发发送动作）。<br><br>不知其他软件是否可以获得qq聊天窗口所显示的内容哦，如果可以的话，那么解密就是反过来了。<br><br>另外这种办法理论上已经可以用于短信系统了，利用电子邮件，IM等其他渠道（谁又会知道你传了个文本是为了这个呢）手动交换密钥，使用非对称加密，除非对面是把人抓住了，否则没法监控。</p><span id="bc_0_237MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1476338144"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=3686074427347034324">删除3单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_237BR" class="comment-replies"></div><div id="bc_0_237B_box" class="comment-replybox-single"></div></li><li id="bc_0_240B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c6378328263656831384" class="comment-block"><div id="bc_0_240M" class="comment-header" kind="m"><cite class="user">get freedom</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412687308703">十月 07, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412687308703">58楼 4单元</a></div><p id="bc_0_240MC" class="comment-content">既然要加密，干嘛用QQ？有n种替代<br>不记得在哪看到了：用QQ传了一段时间的密文，结果QQ号被封了</p><span id="bc_0_240MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-2067242772"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=6378328263656831384">删除4单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_240BR" class="comment-replies"></div><div id="bc_0_240B_box" class="comment-replybox-single"></div></li><li id="bc_0_243B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c1579283656302409398" class="comment-block"><div id="bc_0_243M" class="comment-header" kind="m"><cite class="user">忠党爱国</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412712768970">十月 08, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412712768970">58楼 5单元</a></div><p id="bc_0_243MC" class="comment-content">用公钥是对的，临时生成公钥就未必对了。因为临时生成的公钥如果不能确信是对方生成的，就可能被中间人截获然后调换。如果你和对方事先交换了可信的公钥，有可能可以直接用这个公钥加密，也可能通过你说的方法Diffie-Hellman密钥交换方法约定出一个对称密钥。<br><br>但是我不建议在qq上搞。如果偏要，可以考虑将qq和现成的PGP软件结合起来。但是其他的聊天软件，比如Gajim，比如Psi，都已经支持PGP加密消息的协议标准了。就算qq看不到你的内容，看到你鬼鬼祟祟还是可能的。到时候还是会被条子盯上。</p><span id="bc_0_243MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-261298401"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=1579283656302409398">删除5单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_243BR" class="comment-replies"></div><div id="bc_0_243B_box" class="comment-replybox-single"></div></li><li id="bc_0_244B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c3278030266334774819" class="comment-block"><div id="bc_0_244M" class="comment-header" kind="m"><cite class="user">忠党爱国</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412712854558">十月 08, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412712854558">58楼 6单元</a></div><p id="bc_0_244MC" class="comment-content">另外密码学有个禁忌，就是不要闭门造车。比如自己设计一种算法，自己设计一种模式。</p><span id="bc_0_244MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-261298401"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=3278030266334774819">删除6单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_244BR" class="comment-replies"></div><div id="bc_0_244B_box" class="comment-replybox-single"></div></li><li id="bc_0_245B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c5953211867972864169" class="comment-block"><div id="bc_0_245M" class="comment-header" kind="m"><cite class="user">忠党爱国</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412713022596">十月 08, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412713022596">58楼 7单元</a></div><p id="bc_0_245MC" class="comment-content">另外楼主还可以看下OTR加密。这种方法也和楼主说的很像了，现在有Pidgin的插件，也有一些javascript的实现，比如支持OTR加密的converse.js这个javascript写的xmpp客户端。</p><span id="bc_0_245MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-261298401"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=5953211867972864169">删除7单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_245BR" class="comment-replies"></div><div id="bc_0_245B_box" class="comment-replybox-single"></div></li><li id="bc_0_337B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c5204166214835879452" class="comment-block"><div id="bc_0_337M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413126302802">十月 12, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1413126302802">58楼 8单元</a></div><p id="bc_0_337MC" class="comment-content">我的QQ号不明原因的被封了几个月了（显示登录环境异常），好像我没用QQ传过什么不和谐的东西呀？是因为经常翻墙频繁变换ip导致异地登录次数太多了？还是因为QQ网名、签名、头像不和谐被封了？</p><span id="bc_0_337MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-438163549"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=5204166214835879452">删除8单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_337BR" class="comment-replies"></div><div id="bc_0_337B_box" class="comment-replybox-single"></div></li><li id="bc_0_338B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c5488833191444165610" class="comment-block"><div id="bc_0_338M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413126812520">十月 12, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1413126812520">58楼 9单元</a></div><p id="bc_0_338MC" class="comment-content">8单元开着翻墙软件竟然还开QQ，勇士？小白？</p><span id="bc_0_338MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-507023443"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=5488833191444165610">删除9单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_338BR" class="comment-replies"></div><div id="bc_0_338B_box" class="comment-replybox-single"></div></li><li id="bc_0_341B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c6174640009966125529" class="comment-block"><div id="bc_0_341M" class="comment-header" kind="m"><cite class="user">忠党爱国</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413131213028">十月 13, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1413131213028">58楼 10单元</a></div><p id="bc_0_341MC" class="comment-content">8单元：你这样就糟糕了。虽然你ip是变的，可是qq成了你的间谍。党国从你的qq号和社交圈子本来可以不需要ip地址就能找到你。这个结论加上ip，就成了：我们知道的这个人在翻墙！<br><br>这样假如你作下死，比如变换了ip，以为自己在墙外，然后去百度贴吧之类的地方发个帖子骂下党国，那么党国就可以做出结论：某人翻墙，通过墙外某个ip地址在国内发帖，骂党国。<br><br>实际上你应该做的是分开翻墙的应用和不翻墙的应用。不翻墙的比如qq，直接走真实ip出去，反正党国早就知道你了。那些见不得党国的东西，才那样拿翻墙技术一路保护下去，变成匿名。</p><span id="bc_0_341MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-261298401"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=6174640009966125529">删除10单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_341BR" class="comment-replies"></div><div id="bc_0_341B_box" class="comment-replybox-single"></div></li><li id="bc_0_343B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c2348086501912625197" class="comment-block"><div id="bc_0_343M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413159936772">十月 13, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1413159936772">58楼 11单元</a></div><p id="bc_0_343MC" class="comment-content">我用QQ一直都是在虚拟机上的，基本没装在物理机上。几个月前发现登录不上了（提示登录环境异常），不明白是什么原因被封了。基本没用QQ发过什么不和谐的东西呀，难道是我的QQ签名上写的“共惨主义”么，也不至于吧？<br><br>想申诉回来却很困难，要3个QQ好友协助（没有小号马甲，好友QQ号都没有记下来联系不上），貌似还要提供真实身份证。国内网站真是变态啥都要身份证，好吧！我不要了，与同学失联了。<br><br>然后我申请了个新的QQ号（没加任何人），还是翻墙登录，不过一个月又被封了（又是登录环境异常）。继而申请第2个...第3个，还是被封了（老提示登录环境异常）。<br>腾讯是不是不让翻墙登录呢？要不干嘛老提示登录环境异常</p><span id="bc_0_343MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1516405504"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=2348086501912625197">删除11单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_343BR" class="comment-replies"></div><div id="bc_0_343B_box" class="comment-replybox-single"></div></li></div><div id="bc_0_231I" class="continue" kind="ci"><a href="javascript:;" target="_self">回复58楼</a></div></ol><div id="bc_0_231T_box" class="comment-replybox-thread"></div></div></span></div><div id="bc_0_229B_box" class="comment-replybox-single"></div></li><li id="bc_0_246B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c4960168423275793233" class="comment-block"><div id="bc_0_246M" class="comment-header" kind="m"><cite class="user">忠党爱国</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412713354776">十月 08, 2014</a></span><a style="font-size: 125%;" class="counter" href="2014/10/weekly-share-74.md?comment=1412713354776">59楼</a></div><p id="bc_0_246MC" class="comment-content">各位，基于Firefox浏览器的图片加密插件写好咯～<br>刚刚提交到AMO（Mozilla的插件仓库），目前还没有通过review。<br>我使用的是Firefox 32进行测试的，不知道低版本是否能用。<br><br><a rel="nofollow" target="_blank" title="超链接语法&amp;#65306;
+评论中的网址&amp;#65292;如果两端是空格或换行&amp;#65292;评论发布后会自动变成可点击的超链接&amp;#12290;
+
+&amp;#65288;网址必须以 http:// 或 https:// 开头&amp;#65289;" href="https://addons.mozilla.org/en-US/firefox/addon/encrypt-image/" class="bbcode simple">https://addons.mozilla.org/en-US/firefox/addon/encrypt-image/</a><br><br>用法：安装插件之后，直接找一个图片，右键，一般来说能看到“加密此图片”的选项。然后点击会弹出窗口要求输入密码。加密结果可以复制到剪贴板上。<br><br>我还没有做保存的功能。之前有人提到过，但是我实在搞不定自定义建议的文件名的方式。甚至我怀疑能否实现这个功能。<br>另外这个插件的加密解密结果和网页版的暂时不兼容（我可能需要把插件的改过的代码重新应用到网页版上去）。</p><span id="bc_0_246MN" class="comment-actions secondary-text" kind="m"><a kind="i" href="javascript:;" target="_self" o="r">回复59楼</a><span class="item-control blog-admin pid-261298401"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=4960168423275793233">删除59楼</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_246BR" class="comment-replies"><span id="bc_0_246b+seedD2D" kind="d"><div id="bc_0_247T" class="comment-thread inline-thread" kind="t" t="0" u="0"><span id="bc_0_247TT" class="thread-toggle thread-expanded" kind="g"><span id="bc_0_247TA" class="thread-arrow"></span><span id="bc_0_247TN" class="thread-count"><span id="bc_0_247TNT" style="display: none;">0</span><span id="bc_0_247TNU" style="display: none;"></span><a href="javascript:;" target="_self">Replies</a><div id="bc_0_247TD" class="thread-dropContainer thread-expanded"><span class="thread-drop"></span></div></span></span><ol id="bc_0_247TC" class="thread-chrome thread-expanded" unselectable="on"><div style="zoom:1" unselectable="on"><li id="bc_0_247B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c735952912552535774" class="comment-block"><div id="bc_0_247M" class="comment-header" kind="m"><cite class="user">忠党爱国</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412714315093">十月 08, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412714315093">59楼 1单元</a></div><p id="bc_0_247MC" class="comment-content">顺便征集下想法，尤其是编程君的：<br><br>我在插件里面已经包含了DCT变换（离散余弦变换）的代码，有一篇论文的加密思路是：<br><br>原图-&gt;打散成拼图-&gt;FFT变换-&gt;对FFT变换的结果进行处理-&gt;FFT逆变换<br><br>进行加密。<br>我尝试将FFT变换换成DCT变换，然后处理DCT结果的方法是改变图层RGB分量的颜色（如当前所用方法）。<br><br>结果发现，DCT变换的优点是会改变色块的内容（这样就无从恢复拼图了）。但是这种方法产生的结果如果是无损压缩还好，否则会在解密后的图片内引入大量噪点。<br><br>我需要一种算法，可以：<br>1. 修改DCT变换后产生的结果数组<br>2. 将DCT变换后的结果逆变换得到的图片压缩，再进行DCT变换，能对1结果影响不大<br><br>说白了就是需要一个f(g(x))=g(f(x))这样的函数应用到DCT变换的结果上。</p><span id="bc_0_247MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-261298401"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=735952912552535774">删除1单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_247BR" class="comment-replies"></div><div id="bc_0_247B_box" class="comment-replybox-single"></div></li><li id="bc_0_248B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c6851708565340057701" class="comment-block"><div id="bc_0_248M" class="comment-header" kind="m"><cite class="user">忠党爱国</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412714438020">十月 08, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412714438020">59楼 2单元</a></div><p id="bc_0_248MC" class="comment-content">如果能通过DCT变换修改图片色块的内容，那么将使得这个加密方法非常安全（可以与对二进制数据进行加密的算法的安全性相比）。</p><span id="bc_0_248MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-261298401"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=6851708565340057701">删除2单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_248BR" class="comment-replies"></div><div id="bc_0_248B_box" class="comment-replybox-single"></div></li><li id="bc_0_252B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c7529417594691979687" class="comment-block"><div id="bc_0_252M" class="comment-header" kind="m"><cite class="user">金三胖与习包子</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412734683449">十月 08, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412734683449">59楼 3单元</a></div><p id="bc_0_252MC" class="comment-content">其实我以前一直在找对长微博等图片进行模糊化处理的安卓软件，防止机器自动识别但不能过于干扰人眼识别。<br>很多软件自动把图片缩小了，看不见字。找了好久才找到一个勉强过得去的，</p><span id="bc_0_252MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-2014163850"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=7529417594691979687">删除3单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_252BR" class="comment-replies"></div><div id="bc_0_252B_box" class="comment-replybox-single"></div></li><li id="bc_0_266B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c7964334254598799513" class="comment-block"><div id="bc_0_266M" class="comment-header" kind="m"><cite class="user">忠党爱国</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412767827469">十月 08, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412767827469">59楼 4单元</a></div><p id="bc_0_266MC" class="comment-content">3单元：目测我这个是没问题的，处理长图片。图片宽度不超过640像素（好象是这个数我忘了）。否则横向会被缩小。<br><br>忠党爱国死全家，有此声明的冒用者不算。</p><span id="bc_0_266MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-770463867"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=7964334254598799513">删除4单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_266BR" class="comment-replies"></div><div id="bc_0_266B_box" class="comment-replybox-single"></div></li></div><div id="bc_0_247I" class="continue" kind="ci"><a href="javascript:;" target="_self">回复59楼</a></div></ol><div id="bc_0_247T_box" class="comment-replybox-thread"></div></div></span></div><div id="bc_0_246B_box" class="comment-replybox-single"></div></li><li id="bc_0_249B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c7116879834145385657" class="comment-block"><div id="bc_0_249M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412722653085">十月 08, 2014</a></span><a style="font-size: 125%;" class="counter" href="2014/10/weekly-share-74.md?comment=1412722653085">60楼</a></div><p id="bc_0_249MC" class="comment-content">“江泽民被中南海抛弃” 十一前最大罪行被曝光<br><br>【大
+纪元2014年10月07日讯】（大纪元记者骆亚报导）“十一”前，对中共军方活摘法轮功学员器官的调查取得突破性进展，原军队总后卫生部长白书忠直接承
+认：原中共总书记江泽民直接下令用法轮功学员器官做移植，并且还不止军队一方从事这种杀人的罪行。原中共外交部官员陈用林认为这是因江泽民彻底玩完了，否
+则中共官员绝对不敢说也不能说出这个秘密，十一江泽民的公开露面只是假象。也有学者认为中共建政65周年的政权正陷巨大危机。<br><br>去年有知情者鲍光（化名）向大纪元等海外媒体披露，当年商务部长薄熙来访德国期间亲口承认活摘器官是江泽民下的令。目前，越来越多真相大白于天下。<br><br>中共活摘器官罪行现重磅证据<br><br>“十
+一”中共建政65周年纪念日前，原中共军队总后勤部卫生部长白书忠向追查国际调查员罕见承认活摘器官罪行不仅存在军队一方，而且是时任党魁江泽民亲自直接
+下达命令。他说：“下令当时是江主席啊……有一个批示，说开展这些事情，就是器官移植……批示以后，反法轮功大家都做了很多工作……应该说，就是开展肾移
+植的不单是军队一方……”。<br><br>去年8月知情人鲍光（化名）向海外媒体曝光，2006年时任商务部长的薄熙来访德期间亲口承认江氏下令活摘法轮功学员的器官。<br><br>这些都进一步证实了中共活摘法轮功学员器官牟利的暴行是由原中共党魁江泽民直接下令，操纵国家机器在全国范围内对法轮功学员进行的群体灭绝性的大屠杀。<br><br>对
+于中共活摘法轮功学员器官的罪行，当年法轮功学员揭露时几乎没有人相信，今天人类还有这样的事情发生。面对中共动用国家机器向海外输出对法轮功的仇恨和污
+名化导致人们的不理解，在全球法轮功学员持之以恒的讲真相下，越来越多的人开始了解真相，意识到这个人类星球从未有过的邪恶已经发生并且残害了大量无辜的
+法轮功修炼者。<br><br>越来越多的政府、社会团体打破沉默就中共活摘器官罪行表示强烈谴责，并要求彻查。国际追查在中共65周年纪念日前推出这个爆炸性证据，再一次佐证了中共活摘器官罪行不仅存在而且大量存在。<br><br>真相掩盖不了 呼吁人们摒弃对中共的任何幻想<br><br>原大陆历史系学者李远华接受大纪元记者采访时表示，过去有人对中共的邪恶认识不足，还不敢相信，这个确凿的证据让大家相信中共活摘法轮功学员器官是得到最高指示，让大家不要对中共抱有任何幻想，今天的中共是什么坏事都干的出来，只不过是你不知道罢了。<br><br>他还说，江泽民的罪行被自己党内的人给披露出来，这个事实可以告诉人们，这个邪党的党魁做了一个人们都难以相信的世界上最惨暴的事情。随着事态发展，更多的人能通过此事认清中共的本质，进而彻底抛弃它。<br><br>原
+中共驻悉尼的外交官陈用林告诉大纪元记者，这个重磅证据被抛出是挺震撼力的，如果按当年他还在中共驻悉尼领事馆时，他们都知道对法轮功的迫害是来自江泽民
+的指示，但对活摘器官这样的指令可能没有多少人能想到江是这样的灭绝人性与毫无良知。他认为这也说明真相是掩盖不了的，总有一天会真相大白于天下，就像当
+年中共六四大屠杀一样，最终能找到踪迹。<br><br>迫害法轮功经费预算上没有限制<br><br>陈用林介绍当年自己在中领馆的主要工作就是针对法轮功，中共将法轮功当成政权稳定的最大敌人，极尽全力来对付法轮功、对人们进行迫害、洗脑。海外使领馆针对法轮功的主要命令来自外交部同时受610的直接指挥，是双重的。<br><br>他
+还表示，“610机构是超过一切组织、权力是相当大的，所有的工作都要让位于对法轮功的处理。610下达指示可以直接管公安部、外交部系统。中共总体是以
+镇压法轮功工作为机制，所有的部门都是不遗余力地去做，超出预算都能找到预算去做，在法轮功问题上预算是没有限制的，肯定能得到财政部的拨款。只要是针对
+法轮功去做的任何事情，上面没有不同意的。”<br><br>据大纪元《九评》中阐述，中共总书记江泽民是这场邪恶迫害的始作俑者和策划指挥者，他利用了
+中国共产党的运动机制发动了对法轮功的迫害，对这场历史罪恶负有不可逃脱的责任。而如果没有中国共产党及其长久历练出来的残暴机制，江泽民也根本就不可能
+发起和进行这场邪恶迫害。江泽民和中共互相利用，冒天下之大不韪，为一己和一党之私而反对真善忍，是这场罪恶与荒谬能够发生的真正原因。<br><br>陈用林：江被中南海抛弃 否则官员打死都不敢说<br><br>陈用林认为中共目前正处在激烈的内斗之中，原总后勤部卫生部长白书忠敢开口说出这个中共最大的秘密的话，说明江泽民已经彻底玩完了，否则中共官员绝对不敢说出来，就是他有几个脑袋都不敢说也不能说的秘密。迫害法轮功的责任中南海会让江泽民来承担。<br><br>陈用林还强调：“中共迫害法轮功犯下的滔天罪行，这些都是逃不了历史正义的审判。特别是高层下命令的这些人，总有一天会被绳之以法的。”<br><br>65周年纪念日中共元老倾巢出动 个个难掩黑脸证实党内分裂<br><br>中共高层分崩离析已经是全世界都知道的秘密，中共建政65周年的招待会上原政治局常委的这些老人几乎倾巢出动，想籍此平息一下外界传播甚广的中南海高层处于决战局面，无奈个个难掩黑脸，更证实党内严重分裂。<br><br>陈用林认为别看中共65周年招待会等，江泽民、曾庆红这些人都出来了，但这只是假象给外面的人看得，当年薄熙来被抓之前也不是一样出来。实际上现在习近平已经大权在握。<br><br>李
+元华表示，共产党要维持一个表面的和平，维持将要灭亡的政权，所以就弄成这么一个怪象。任何一个中共的党魁露面并不代表什么，就像当时周永康、薄熙来被拿
+下的时候，他们都曾“被露面”，中共想在这个敏感时刻传递一个空前的假和谐的面貌，并以此来迷惑外界，当然明眼人一看就知道，这是一个面都不合的中共党魁
+的聚会。<br><br>近期，香港学生罢课抗议中共人大的决议，并在十一前后形成港人抗争的高潮，中共香港警方使用催泪弹的暴力镇压引发港人更大规模抗
+议，也在全球范围内引起并形成新的谴责中共暴政的集会抗议潮。大陆很多维权人士、艺术界人士、公民也站出来力挺，认为港人争普选也是为大陆十多亿同胞的民
+主自由努力。<br><br>纵观中共历史就是一部杀人的历史，中共发展到今天已经是天地、人神共愤的地步了。目前在大纪元网站上登记退出中共党、团、队组织的人数已经接近1亿8千万，中共政权在其执政65周年之机，遭遇到空前危机，民间出现多方位围剿共产党的倒共潮。</p><span id="bc_0_249MN" class="comment-actions secondary-text" kind="m"><a kind="i" href="javascript:;" target="_self" o="r">回复60楼</a><span class="item-control blog-admin pid-1505150980"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=7116879834145385657">删除60楼</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_249BR" class="comment-replies"></div><div id="bc_0_249B_box" class="comment-replybox-single"></div></li><li id="bc_0_251B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c7502378491602687797" class="comment-block"><div id="bc_0_251M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412726443570">十月 08, 2014</a></span><a style="font-size: 125%;" class="counter" href="2014/10/weekly-share-74.md?comment=1412726443570">61楼</a></div><p id="bc_0_251MC" class="comment-content">看起来三胖要挂了啊，以下转自网易评论，不得不说网友太有才了：2014年岁末。冷冽北风卷裹着雪花肆虐着青瓦台广场。伟大的共餐国际抗美斗士，北韩帝皇金三世，器宇轩昂阔步走上断头台，慷慨地引颈待戮。<br>他
+视死如归大义凛然的丰姿赢得了围观的南北韩民众的阵阵喝彩。当美帝的傀儡南韩刽子手举起屠刀的时候，金三世倔强地昂起高贵的头颅，一根根不屈的拗蛋筋在臃
+肿的脖子勃然隆起。他深邃而睿智的目光，越过了雅鹿江，落在燕山脚下的紫金宫，朗声道：“大哥，小弟不才，先走一步了，望大哥保重，多多地苟延残喘几
+年，，，，，，” 
+是夜，噩耗传到了阴霾笼罩64个春秋的神州大地。19:00点整，如同鬼火闪烁的电视里响起雄壮的祸际歌，在CCAV播音员字正腔圆的哀嚎声中，8000
+万为共餐共七奋斗的贪腐勇士如丧考妣，陷入了深深地悲痛，他们知道，随着金三太阳的湮灭，虽然地球还在转，但肯定转的不是那么顺溜了</p><span id="bc_0_251MN" class="comment-actions secondary-text" kind="m"><a kind="i" href="javascript:;" target="_self" o="r">回复61楼</a><span class="item-control blog-admin pid-614065741"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=7502378491602687797">删除61楼</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_251BR" class="comment-replies"></div><div id="bc_0_251B_box" class="comment-replybox-single"></div></li><li id="bc_0_254B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c1334069358564260933" class="comment-block"><div id="bc_0_254M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412741216514">十月 08, 2014</a></span><a style="font-size: 125%;" class="counter" href="2014/10/weekly-share-74.md?comment=1412741216514">62楼</a></div><p id="bc_0_254MC" class="comment-content">高尚是高尚者的墓志铭 卑鄙是卑鄙者的通行证！香港加油！不要让世界失望！</p><span id="bc_0_254MN" class="comment-actions secondary-text" kind="m"><a kind="i" href="javascript:;" target="_self" o="r">回复62楼</a><span class="item-control blog-admin pid-1922125559"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=1334069358564260933">删除62楼</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_254BR" class="comment-replies"></div><div id="bc_0_254B_box" class="comment-replybox-single"></div></li><li id="bc_0_259B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c2318318555592762335" class="comment-block"><div id="bc_0_259M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412749777880">十月 08, 2014</a></span><a style="font-size: 125%;" class="counter" href="2014/10/weekly-share-74.md?comment=1412749777880">63楼</a></div><p id="bc_0_259MC" class="comment-content">评论看不到了！<br><br>评论区有时只显示“正在加载评论”却一直无动静，既使显示加载进度100％，也是一片空白未见一条评论。<br>换几个浏览器都是这样，换了台电脑也还是如此。用老的ie浏览器尚能打开部分评论，但是不全显示。<br>有的文章可以见评论，如这篇文章，但是像《各种一元化思维的谬误》等很多的文章就不行。连发评论都不显示了。<br><br>期待博主能解决！我可以不发评论，但是看不到网友们的评论会很遗憾</p><span id="bc_0_259MN" class="comment-actions secondary-text" kind="m"><a kind="i" href="javascript:;" target="_self" o="r">回复63楼</a><span class="item-control blog-admin pid-669086638"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=2318318555592762335">删除63楼</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_259BR" class="comment-replies"><span id="bc_0_259b+seedEGD" kind="d"><div id="bc_0_263T" class="comment-thread inline-thread" kind="t" t="0" u="0"><span id="bc_0_263TT" class="thread-toggle thread-expanded" kind="g"><span id="bc_0_263TA" class="thread-arrow"></span><span id="bc_0_263TN" class="thread-count"><span id="bc_0_263TNT" style="display: none;">0</span><span id="bc_0_263TNU" style="display: none;"></span><a href="javascript:;" target="_self">Replies</a><div id="bc_0_263TD" class="thread-dropContainer thread-expanded"><span class="thread-drop"></span></div></span></span><ol id="bc_0_263TC" class="thread-chrome thread-expanded" unselectable="on"><div style="zoom:1" unselectable="on"><li id="bc_0_263B" class="comment" kind="b"><div class="avatar-image-container"><img src="http://lh6.googleusercontent.com/-fpaYncBYqKs/Th477aX8reI/AAAAAAAAAco/nkud5M9T64w/s48/Thinker.jpg"></div><div id="c2975677143407520098" class="comment-block"><div id="bc_0_263M" class="comment-header" kind="m"><cite class="user blog-author"><a rel="nofollow" href="http://www.blogger.com/profile/11741356469378252621">编程随想</a></cite><span class="icon user blog-author"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412757018270">十月 08, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412757018270">63楼 1单元</a></div><p id="bc_0_263MC" class="comment-content">TO 63楼的网友<br>非常感谢反馈 Bug :)<br>刚才已经修复了。<br><br>昨天半夜在优化评论功能的代码，有一个地方改坏了，而且俺自测没发现。非常抱歉 :(<br>刚才查到原因：<br>只有当评论超过200条，并且 200条 之后的评论存在“登录用户删除自己的评论”。<br>在这种情况下才会导致评论无法加载。所以这个 Bug 比较隐蔽。</p><span id="bc_0_263MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1582521586"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=2975677143407520098">删除1单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_263BR" class="comment-replies"></div><div id="bc_0_263B_box" class="comment-replybox-single"></div></li></div><div id="bc_0_263I" class="continue" kind="ci"><a href="javascript:;" target="_self">回复63楼</a></div></ol><div id="bc_0_263T_box" class="comment-replybox-thread"></div></div></span></div><div id="bc_0_259B_box" class="comment-replybox-single"></div></li><li id="bc_0_260B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c4255065411591761130" class="comment-block"><div id="bc_0_260M" class="comment-header" kind="m"><cite class="user"><a rel="nofollow" href="https://chaonima.com/">共产梦</a></cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412756050011">十月 08, 2014</a></span><a style="font-size: 125%;" class="counter" href="2014/10/weekly-share-74.md?comment=1412756050011">64楼</a></div><p id="bc_0_260MC" class="comment-content">大家好，这里面有人来自黑市吗？我想购买一些武器和弹药，话说这几天土工要来征地了。走比特币交易。谢谢。  我还需要黑电脑的方法。就是在局域网里面黑的。</p><span id="bc_0_260MN" class="comment-actions secondary-text" kind="m"><a kind="i" href="javascript:;" target="_self" o="r">回复64楼</a><span class="item-control blog-admin pid-1234323452"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=4255065411591761130">删除64楼</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_260BR" class="comment-replies"><span id="bc_0_260b+seedEFD" kind="d"><div id="bc_0_262T" class="comment-thread inline-thread" kind="t" t="0" u="0"><span id="bc_0_262TT" class="thread-toggle thread-expanded" kind="g"><span id="bc_0_262TA" class="thread-arrow"></span><span id="bc_0_262TN" class="thread-count"><span id="bc_0_262TNT" style="display: none;">0</span><span id="bc_0_262TNU" style="display: none;"></span><a href="javascript:;" target="_self">Replies</a><div id="bc_0_262TD" class="thread-dropContainer thread-expanded"><span class="thread-drop"></span></div></span></span><ol id="bc_0_262TC" class="thread-chrome thread-expanded" unselectable="on"><div style="zoom:1" unselectable="on"><li id="bc_0_262B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c2682753103837128739" class="comment-block"><div id="bc_0_262M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412756560248">十月 08, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412756560248">64楼 1单元</a></div><p id="bc_0_262MC" class="comment-content">现在比特币还能用吗？</p><span id="bc_0_262MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1406162312"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=2682753103837128739">删除1单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_262BR" class="comment-replies"></div><div id="bc_0_262B_box" class="comment-replybox-single"></div></li><li id="bc_0_264B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c1627852007979865440" class="comment-block"><div id="bc_0_264M" class="comment-header" kind="m"><cite class="user"><a rel="nofollow" href="https://chaonima.com/">共产梦</a></cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412757985110">十月 08, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412757985110">64楼 2单元</a></div><p id="bc_0_264MC" class="comment-content">tox 我不能够安装在ubuntu 14.04上了。听说这是好比微信但是去中心花的。看起来很好。ERROR: toxini file 'tox.ini' not found<br>总是出现这个啊。不知道如何解决。我觉得博主需要吸引一批高手来这里专门推广去中心化的软件。<br>我们有的是钱，不差比特币。</p><span id="bc_0_264MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1234323452"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=1627852007979865440">删除2单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_264BR" class="comment-replies"></div><div id="bc_0_264B_box" class="comment-replybox-single"></div></li><li id="bc_0_265B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c4269652800995570954" class="comment-block"><div id="bc_0_265M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412760293702">十月 08, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412760293702">64楼 3单元</a></div><p id="bc_0_265MC" class="comment-content">如果这个局域网所在的组织是你能接触的，那配合社工实在太简单了。想当年我上学的时候学校简直就跟我家开的一样，只不过本人没什么特别的需求，搞了搞就传给学弟了。</p><span id="bc_0_265MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1406162312"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=4269652800995570954">删除3单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_265BR" class="comment-replies"></div><div id="bc_0_265B_box" class="comment-replybox-single"></div></li><li id="bc_0_267B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c7094316199025987087" class="comment-block"><div id="bc_0_267M" class="comment-header" kind="m"><cite class="user"><a rel="nofollow" href="https://chaonima.com/">共产梦</a></cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412771247396">十月 08, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412771247396">64楼 4单元</a></div><p id="bc_0_267MC" class="comment-content">我只是想多多盗取几个QQ号码而已。我想这玩意因该便宜把。话说QQkey 这个毛病老早之前就有人发现了。现在还没有修复好。只要在内网某个电脑里面运行这个病毒就可以呵呵。</p><span id="bc_0_267MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1234323452"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=7094316199025987087">删除4单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_267BR" class="comment-replies"></div><div id="bc_0_267B_box" class="comment-replybox-single"></div></li><li id="bc_0_275B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c8195512667990639667" class="comment-block"><div id="bc_0_275M" class="comment-header" kind="m"><cite class="user"><a rel="nofollow" href="https://chaonima.com/">共产梦</a></cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412828810238">十月 09, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412828810238">64楼 5单元</a></div><p id="bc_0_275MC" class="comment-content">哪里有伪基站出售？发物流把。可以吗？呵呵。</p><span id="bc_0_275MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1234323452"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=8195512667990639667">删除5单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_275BR" class="comment-replies"></div><div id="bc_0_275B_box" class="comment-replybox-single"></div></li><li id="bc_0_283B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c8557357630927353071" class="comment-block"><div id="bc_0_283M" class="comment-header" kind="m"><cite class="user">忠党爱国</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412869063830">十月 09, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412869063830">64楼 6单元</a></div><p id="bc_0_283MC" class="comment-content">楼主很奇怪。呵呵，呵呵，呵呵呵呵，呵呵呵呵呵呵呵。<br>是来钓鱼的吧？</p><span id="bc_0_283MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-261298401"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=8557357630927353071">删除6单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_283BR" class="comment-replies"></div><div id="bc_0_283B_box" class="comment-replybox-single"></div></li><li id="bc_0_395B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c3501389346908609007" class="comment-block"><div id="bc_0_395M" class="comment-header" kind="m"><cite class="user"><a rel="nofollow" href="https://chaonima.com/">共产梦</a></cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413427048593">十月 16, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1413427048593">64楼 7单元</a></div><p id="bc_0_395MC" class="comment-content">看来这里找不到实质性的东西了。可否告诉我丝绸之路2.0是那个网站呢？我想知道。毕竟我觉得我们国家即将出事了。最多一两年或者4年以内。</p><span id="bc_0_395MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-666595959"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=3501389346908609007">删除7单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_395BR" class="comment-replies"></div><div id="bc_0_395B_box" class="comment-replybox-single"></div></li><li id="bc_0_396B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c7242577851196199208" class="comment-block"><div id="bc_0_396M" class="comment-header" kind="m"><cite class="user"><a rel="nofollow" href="https://chaonima.com/">共产梦</a></cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413427131924">十月 16, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1413427131924">64楼 8单元</a></div><p id="bc_0_396MC" class="comment-content">我想要购买一些武器和弹药。要不弓弩也可以呀。这个隐蔽，杀伤力最大。还可以回收弹药。</p><span id="bc_0_396MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-666595959"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=7242577851196199208">删除8单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_396BR" class="comment-replies"></div><div id="bc_0_396B_box" class="comment-replybox-single"></div></li><li id="bc_0_400B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c8424240122297838887" class="comment-block"><div id="bc_0_400M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413442599698">十月 16, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1413442599698">64楼 9单元</a></div><p id="bc_0_400MC" class="comment-content">丝绸之路早就被美国联邦调查局给关闭了，整天都想着购买武器弹药，请问你是来自“伊斯兰国（ISIL)”的吗？（开句玩笑）<br>是那个八卦的法轮功媒体告诉你的吧！是不是还跟你说了2014会大崩溃呀？<br><br>唉！这家伙走火入魔了，“非暴力抵抗”的含义究竟有多少人懂啊</p><span id="bc_0_400MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-438163549"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=8424240122297838887">删除9单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_400BR" class="comment-replies"></div><div id="bc_0_400B_box" class="comment-replybox-single"></div></li><li id="bc_0_413B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c5189076482507145018" class="comment-block"><div id="bc_0_413M" class="comment-header" kind="m"><cite class="user"><a rel="nofollow" href="">Therapy</a></cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413470300162">十月 16, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1413470300162">64楼 10单元</a></div><p id="bc_0_413MC" class="comment-content">来到这里的人并不都是支持非暴力革命的。就像我，只把这看成一个质量比较高的反共博客，但是我坚信非暴力并不足以打倒共党。无论你信什么，请保留别人说话的权利。如果你有兴趣劝说我支持非暴力革命，欢迎讨论，但我也会尽全力说服你支持暴力革命。</p><span id="bc_0_413MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1406162312"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=5189076482507145018">删除10单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_413BR" class="comment-replies"></div><div id="bc_0_413B_box" class="comment-replybox-single"></div></li><li id="bc_0_414B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c7075813060424503495" class="comment-block"><div id="bc_0_414M" class="comment-header" kind="m"><cite class="user"><a rel="nofollow" href="">Therapy</a></cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413471170337">十月 16, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1413471170337">64楼 11单元</a></div><p id="bc_0_414MC" class="comment-content">不能不做好准备。如果我们自己都不相信会有变革，就真的不可能会有变革了。</p><span id="bc_0_414MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1406162312"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=7075813060424503495">删除11单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_414BR" class="comment-replies"></div><div id="bc_0_414B_box" class="comment-replybox-single"></div></li><li id="bc_0_416B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c1420039813701210832" class="comment-block"><div id="bc_0_416M" class="comment-header" kind="m"><cite class="user"><a rel="nofollow" href="">Therapy</a></cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413471544452">十月 16, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1413471544452">64楼 12单元</a></div><p id="bc_0_416MC" class="comment-content">美国为什么在宪法中允许公民持枪？就是因为武器代表了反抗政府的权力。拥有武器并不一定要用它去杀人，但是拥有武器才拥有话语权，尤其是对于中共这样的流氓政权。</p><span id="bc_0_416MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1406162312"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=1420039813701210832">删除12单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_416BR" class="comment-replies"></div><div id="bc_0_416B_box" class="comment-replybox-single"></div></li><li id="bc_0_418B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c12921626076197458" class="comment-block"><div id="bc_0_418M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413472534006">十月 16, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1413472534006">64楼 13单元</a></div><p id="bc_0_418MC" class="comment-content">弓弩是个好想法，在低强度对抗的时候能派上用场</p><span id="bc_0_418MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1406162312"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=12921626076197458">删除13单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_418BR" class="comment-replies"></div><div id="bc_0_418B_box" class="comment-replybox-single"></div></li></div><div id="bc_0_262I" class="continue" kind="ci"><a href="javascript:;" target="_self">回复64楼</a></div></ol><div id="bc_0_262T_box" class="comment-replybox-thread"></div></div></span></div><div id="bc_0_260B_box" class="comment-replybox-single"></div></li><li id="bc_0_261B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c5709481774077868646" class="comment-block"><div id="bc_0_261M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412756515438">十月 08, 2014</a></span><a style="font-size: 125%;" class="counter" href="2014/10/weekly-share-74.md?comment=1412756515438">65楼</a></div><p id="bc_0_261MC" class="comment-content">日本人又拿了3个诺贝尔奖……<br>话说生于共党时代的中国人就没什么拿得出手的东西。这种经济成长，能持续到什么时候呢？<br>虽然又是很老的话题，什么时候我们这些搞技术的才能做出点东西来。</p><span id="bc_0_261MN" class="comment-actions secondary-text" kind="m"><a kind="i" href="javascript:;" target="_self" o="r">回复65楼</a><span class="item-control blog-admin pid-1406162312"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=5709481774077868646">删除65楼</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_261BR" class="comment-replies"><span id="bc_0_261b+seedETD" kind="d"><div id="bc_0_276T" class="comment-thread inline-thread" kind="t" t="0" u="0"><span id="bc_0_276TT" class="thread-toggle thread-expanded" kind="g"><span id="bc_0_276TA" class="thread-arrow"></span><span id="bc_0_276TN" class="thread-count"><span id="bc_0_276TNT" style="display: none;">0</span><span id="bc_0_276TNU" style="display: none;"></span><a href="javascript:;" target="_self">Replies</a><div id="bc_0_276TD" class="thread-dropContainer thread-expanded"><span class="thread-drop"></span></div></span></span><ol id="bc_0_276TC" class="thread-chrome thread-expanded" unselectable="on"><div style="zoom:1" unselectable="on"><li id="bc_0_276B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c8994038385897823820" class="comment-block"><div id="bc_0_276M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412828966813">十月 09, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412828966813">65楼 1单元</a></div><p id="bc_0_276MC" class="comment-content">掌權的大老  都是紅衛兵的壞蛋 你說呢</p><span id="bc_0_276MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-815128242"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=8994038385897823820">删除1单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_276BR" class="comment-replies"></div><div id="bc_0_276B_box" class="comment-replybox-single"></div></li><li id="bc_0_282B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c7926604802176954357" class="comment-block"><div id="bc_0_282M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412868253205">十月 09, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412868253205">65楼 2单元</a></div><p id="bc_0_282MC" class="comment-content">到处都是骗经费的，你觉得能做出多少东西？现在都竟然能把华裔拉过来贴金，糊弄傻子玩。</p><span id="bc_0_282MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-439274558"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=7926604802176954357">删除2单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_282BR" class="comment-replies"></div><div id="bc_0_282B_box" class="comment-replybox-single"></div></li></div><div id="bc_0_276I" class="continue" kind="ci"><a href="javascript:;" target="_self">回复65楼</a></div></ol><div id="bc_0_276T_box" class="comment-replybox-thread"></div></div></span></div><div id="bc_0_261B_box" class="comment-replybox-single"></div></li><li id="bc_0_270B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c6244040263041306815" class="comment-block"><div id="bc_0_270M" class="comment-header" kind="m"><cite class="user">金三胖完了</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412817458902">十月 09, 2014</a></span><a style="font-size: 125%;" class="counter" href="2014/10/weekly-share-74.md?comment=1412817458902">66楼</a></div><p id="bc_0_270MC" class="comment-content"><div class="bbcode-img"><img onerror="this.alt='&amp;#12288;图片加载失败 :(&amp;#12288;'" title="图片语法&amp;#65306;
+[img]图片网址[/img]
+
+&amp;#65288;网址必须以 http:// 或 https:// 开头&amp;#65289;" class="loaded" src="http://cn.epochtimes.com/i6/1410081729552436.jpg"><br>（要修改“BBCode图片的显示方式”，请猛击“<a href="p/options.md#bbcode" target="_blank">界面配置</a>”）</div></p><span id="bc_0_270MN" class="comment-actions secondary-text" kind="m"><a kind="i" href="javascript:;" target="_self" o="r">回复66楼</a><span class="item-control blog-admin pid-1395519820"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=6244040263041306815">删除66楼</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_270BR" class="comment-replies"><span id="bc_0_270b+seedERD" kind="d"><div id="bc_0_274T" class="comment-thread inline-thread" kind="t" t="0" u="0"><span id="bc_0_274TT" class="thread-toggle thread-expanded" kind="g"><span id="bc_0_274TA" class="thread-arrow"></span><span id="bc_0_274TN" class="thread-count"><span id="bc_0_274TNT" style="display: none;">0</span><span id="bc_0_274TNU" style="display: none;"></span><a href="javascript:;" target="_self">Replies</a><div id="bc_0_274TD" class="thread-dropContainer thread-expanded"><span class="thread-drop"></span></div></span></span><ol id="bc_0_274TC" class="thread-chrome thread-expanded" unselectable="on"><div style="zoom:1" unselectable="on"><li id="bc_0_274B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c6007170920449222866" class="comment-block"><div id="bc_0_274M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412826801755">十月 09, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412826801755">66楼 1单元</a></div><p id="bc_0_274MC" class="comment-content">假照片</p><span id="bc_0_274MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-815128242"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=6007170920449222866">删除1单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_274BR" class="comment-replies"></div><div id="bc_0_274B_box" class="comment-replybox-single"></div></li><li id="bc_0_284B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c6170721324082683150" class="comment-block"><div id="bc_0_284M" class="comment-header" kind="m"><cite class="user">忠党爱国</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412869115638">十月 09, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412869115638">66楼 2单元</a></div><p id="bc_0_284MC" class="comment-content">金胖子啥时候这么苗条了？</p><span id="bc_0_284MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-261298401"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=6170721324082683150">删除2单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_284BR" class="comment-replies"></div><div id="bc_0_284B_box" class="comment-replybox-single"></div></li><li id="bc_0_285B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c6084388848617745999" class="comment-block"><div id="bc_0_285M" class="comment-header" kind="m"><cite class="user">忠党爱国</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412869253057">十月 09, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412869253057">66楼 3单元</a></div><p id="bc_0_285MC" class="comment-content">再者这图上没看到中间这胖子有明显的枪伤，虽然有血，怎么看都像是别人的。</p><span id="bc_0_285MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-261298401"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=6084388848617745999">删除3单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_285BR" class="comment-replies"></div><div id="bc_0_285B_box" class="comment-replybox-single"></div></li><li id="bc_0_286B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c8825596658769435464" class="comment-block"><div id="bc_0_286M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412869918486">十月 09, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412869918486">66楼 4单元</a></div><p id="bc_0_286MC" class="comment-content">联合国8日非公开传阅了欧盟（EU）编制的朝鲜人权决议案草案，内容包括将朝鲜最高领导人金正恩等触犯反人类罪的朝鲜相关人员推上国际刑事法院（ICC）接受审判。</p><span id="bc_0_286MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1648748206"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=8825596658769435464">删除4单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_286BR" class="comment-replies"></div><div id="bc_0_286B_box" class="comment-replybox-single"></div></li><li id="bc_0_287B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c2016724387696557155" class="comment-block"><div id="bc_0_287M" class="comment-header" kind="m"><cite class="user">金三胖完了</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412870175031">十月 09, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412870175031">66楼 5单元</a></div><p id="bc_0_287MC" class="comment-content">照片也许只是象征，但是金家王朝真完了。</p><span id="bc_0_287MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1648748206"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=2016724387696557155">删除5单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_287BR" class="comment-replies"></div><div id="bc_0_287B_box" class="comment-replybox-single"></div></li><li id="bc_0_288B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c3510130358396739013" class="comment-block"><div id="bc_0_288M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412871189289">十月 10, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412871189289">66楼 6单元</a></div><p id="bc_0_288MC" class="comment-content">金家的人居然没有一个出来辟谣！</p><span id="bc_0_288MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1945427802"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=3510130358396739013">删除6单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_288BR" class="comment-replies"></div><div id="bc_0_288B_box" class="comment-replybox-single"></div></li><li id="bc_0_293B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c7418550909718673852" class="comment-block"><div id="bc_0_293M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412909928139">十月 10, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412909928139">66楼 7单元</a></div><p id="bc_0_293MC" class="comment-content">一网打尽？要学兲朝集体专政？</p><span id="bc_0_293MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1349439821"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=7418550909718673852">删除7单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_293BR" class="comment-replies"></div><div id="bc_0_293B_box" class="comment-replybox-single"></div></li></div><div id="bc_0_274I" class="continue" kind="ci"><a href="javascript:;" target="_self">回复66楼</a></div></ol><div id="bc_0_274T_box" class="comment-replybox-thread"></div></div></span></div><div id="bc_0_270B_box" class="comment-replybox-single"></div></li><li id="bc_0_277B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c9201759247503160090" class="comment-block"><div id="bc_0_277M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412833276426">十月 09, 2014</a></span><a style="font-size: 125%;" class="counter" href="2014/10/weekly-share-74.md?comment=1412833276426">67楼</a></div><p id="bc_0_277MC" class="comment-content">古
+希腊著名的演说家德谟斯提尼说：“民主政治是一种发表演说的体制。”雅典民主政治却是迄今为止人们所知道的最重要、最著名和也是发展最充分的民主政治。演
+说在雅典民主政治生活中的重要作用。占中第12日，旺角仍聚满集会人士，人数与日前相若，大概有千多人坐满旺角弥敦道与亚皆老街交界十字路口，公民讲场亦
+围满论政市民，每人两分钟轮流表达意见，气氛良好。现在难得古典风范啊，有点神往。。。。。</p><span id="bc_0_277MN" class="comment-actions secondary-text" kind="m"><a kind="i" href="javascript:;" target="_self" o="r">回复67楼</a><span class="item-control blog-admin pid-1532346821"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=9201759247503160090">删除67楼</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_277BR" class="comment-replies"></div><div id="bc_0_277B_box" class="comment-replybox-single"></div></li><li id="bc_0_278B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c2721461241964103859" class="comment-block"><div id="bc_0_278M" class="comment-header" kind="m"><cite class="user">黑岩射手</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412856513769">十月 09, 2014</a></span><a style="font-size: 125%;" class="counter" href="2014/10/weekly-share-74.md?comment=1412856513769">68楼</a></div><p id="bc_0_278MC" class="comment-content">其實樓主多發這些文挺好的 創造工作機會 增進貴國GDP <br><br>網軍們應該多感謝樓主 沒有樓主你們就得憋肚子了 異議人士賜爾等衣食 當寬厚感激 筆下留人 切莫殺雞取卵 竭澤而漁<br><br>如果哪天樓主心灰意冷不發文 爾等就真得吃土了</p><span id="bc_0_278MN" class="comment-actions secondary-text" kind="m"><a kind="i" href="javascript:;" target="_self" o="r">回复68楼</a><span class="item-control blog-admin pid-276921710"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=2721461241964103859">删除68楼</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_278BR" class="comment-replies"></div><div id="bc_0_278B_box" class="comment-replybox-single"></div></li><li id="bc_0_280B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c1508681669967701057" class="comment-block"><div id="bc_0_280M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412861667715">十月 09, 2014</a></span><a style="font-size: 125%;" class="counter" href="2014/10/weekly-share-74.md?comment=1412861667715">69楼</a></div><p id="bc_0_280MC" class="comment-content"><br>江泽民要除掉习近平原因 中共最隐秘内幕<br><br>【大
+纪元2014年10月09日讯】（大纪元记者程静综合报导）最近半个月，香港成千上万的民众群起抗议中共人大否决“真普选”的决议，事件过程中，有香港黑
+帮混入占中和反占中两方，试图挑起流血事件。分析称，此事件的背后是中南海高层博弈，由于江泽民要夺习近平的权，而习近平对江派大清洗，令江泽民等人恐
+惧，至今高层仍陷入“你死我活”的搏击。<br><br>梁振英再曝丑闻<br><br>10月8日，澳洲《悉尼晨锋报》报导，特首梁振英从一间澳洲上市
+公司收取秘密报酬，作为支持该公司在亚洲扩张生意的回报。这笔400万英镑（近5000万港元）的秘密费用的安排写在一份秘密合同当中，落款日期为
+2011年12月2日，是在梁振英当选特首之前。梁振英则迅速声明，该笔钱是就任特首前收取，无义务申报。<br><br>在香港民众高呼“梁振英下台”及泛民议员要弹劾梁时，此信息透露十分敏感。评论员夏小强表示，梁振英涉及收受企业巨款的丑闻，没有出现在他激烈竞选香港特首的时候，而在此时出现，说明这个消息的曝出极大可能有高层权力的运作方可实现。<br><br>北京发出信息混乱<br><br>连日来，中共党媒人民日报连篇累牍的高调批香港“占中”。而中共政协副主席、香港前特首董建华却突然发表声明，肯定学生的行动，呼吁学生尽快撤离示威区。此前，董建华曾率富豪团到北京会见习近平。<br><br>董建华突然表态被认为是暗中释放习近平的态度。董建华与习近平关系一直密切。在习、江激烈博弈战中，董建华曾多次替习近平对外“发声”。法广曾引消息称，习近平断然否决江派常委张德江和特首梁振英提出的派出军队镇压学生的提议。<br><br>梁振英卷入中南海内斗<br><br>梁振英是中共江泽民集团的第二号人物曾庆红一手培植起来的中共地下党员。在这次香港雨伞运动中，梁振英执行曾庆红“香港越乱越好办”的指令行事，拒不回应学生诉求，并发表讲话不断刺激学生，致局势不断升温。<br><br>10月3日，在得到中共媒体的力挺后，梁振英开始策动大批中共特务、黑帮殴打、辱骂、攻击抗议人士，恐吓学生和市民，试图挑起流血事件。<br><br>近半个月来的港人抗争源于中共江派常委、人大委员长张德江策划的6.10香港白皮书，以及8.31中共人大否决港人真普选诉求的决议案。<br><br>分析称，香港乱局的背后涉中南海高层的生死博弈，其焦点是围绕因中共镇压法轮功问题带来的严重后果，以及如何延续迫害政策所要付出的代价等问题。<br><br>江泽民在2003年试图推行“23条立法”，这条为了取缔法轮功和其他反共团体的恶法，导致港人强烈反弹，第一次在香港发生针对北京的50万人大游行。<br><br>此后，曾庆红接盘香港事务。但是港人对北京已经没了信心，北京与香港的裂痕加大，再加上江泽民集团这10多年来，在香港问题上一直握有实权，不断挑起事端，终使香港走到了今天这一步。<br><br>江泽民要除掉习近平最隐秘内幕<br><br>近日，中南海高层博弈的焦点在香港。梁振英成了江派翻盘的棋子。实际上，目前离2017年港首普选还有3年时间，江派迫不及待抛出香港白皮书，刺激港人制造香港乱局。<br><br>此时正值习近平打虎不断深入，江派核心人物周永康、徐才厚、薄熙来等落马的时候。眼看反腐已经逼近曾庆红和江泽民本人，江派台面人物张德江利用人大及曾庆红在香港残余势力拚死一搏。<br><br>中共十七大前，江泽民接受习近平接班本来就是权宜之计，此后发展成习江斗，其最根本原因在于习近平不是江泽民和曾庆红的铁杆，对迫害法轮功的政策并不积极参与，因此得不到江、曾的充分信任。<br><br>在江泽民的主导下，江派制定了一个针对习近平的政变计划，图谋在十八大后伺机夺取习近平的权力，把欠有迫害法轮功血债的江派大员薄熙来推到中共最高权力位置上，以延续其迫害政策。<br><br>江
+派政变计划分三步，先是在2007年中共十七大阻止胡锦涛中意的接班人李克强上台，让薄熙来锻练成熟、取得威望和权势，在2012年十八大至少得到政治局
+常委和中央政法委书记的位置。然后， 
+两年时间，让薄熙来把“重庆模式”推向整个大陆，再发动政变，罢免甚至逮捕习近平等人。但却被2012年2月王立军事件爆发而导致这个计划全盘崩溃。<br><br>此后，周永康至少两次试图暗杀习近平。消息人士透露，这些暗杀由他的助理和警卫谭红实施，谭红在2013年12月1日已经被捕。<br><br>据悉，海内外的法轮功学员长期不断的揭露中共邪恶，法轮功真相广传，国际上谴责中共声音不断。当局留后路，使得江泽民、曾庆红等江派人物恐惧不安。因此，江泽民等人才不惜策划周薄政变，甚至不惜采用暗杀手段，一定要除掉习近平。</p><span id="bc_0_280MN" class="comment-actions secondary-text" kind="m"><a kind="i" href="javascript:;" target="_self" o="r">回复69楼</a><span class="item-control blog-admin pid-673030450"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=1508681669967701057">删除69楼</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_280BR" class="comment-replies"></div><div id="bc_0_280B_box" class="comment-replybox-single"></div></li><li id="bc_0_289B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/b36-rounded.png"></div><div id="c8258606168952863742" class="comment-block"><div id="bc_0_289M" class="comment-header" kind="m"><cite class="user"><a rel="nofollow" href="http://www.blogger.com/profile/03115260414378289671">智多星张召忠</a></cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412873537578">十月 10, 2014</a></span><a style="font-size: 125%;" class="counter" href="2014/10/weekly-share-74.md?comment=1412873537578">70楼</a></div><p id="bc_0_289MC" class="comment-content">电脑的风扇太多尘，发出呜呜声，请问大伙平时除了给30块别人清理风扇之外，还有什么解决方法啊。。。？</p><span id="bc_0_289MN" class="comment-actions secondary-text" kind="m"><a kind="i" href="javascript:;" target="_self" o="r">回复70楼</a><span class="item-control blog-admin pid-1326311143"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=8258606168952863742">删除70楼</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_289BR" class="comment-replies"><span id="bc_0_289b+seedEjD" kind="d"><div id="bc_0_292T" class="comment-thread inline-thread" kind="t" t="0" u="0"><span id="bc_0_292TT" class="thread-toggle thread-expanded" kind="g"><span id="bc_0_292TA" class="thread-arrow"></span><span id="bc_0_292TN" class="thread-count"><span id="bc_0_292TNT" style="display: none;">0</span><span id="bc_0_292TNU" style="display: none;"></span><a href="javascript:;" target="_self">Replies</a><div id="bc_0_292TD" class="thread-dropContainer thread-expanded"><span class="thread-drop"></span></div></span></span><ol id="bc_0_292TC" class="thread-chrome thread-expanded" unselectable="on"><div style="zoom:1" unselectable="on"><li id="bc_0_292B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c7271997051551654633" class="comment-block"><div id="bc_0_292M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412909236773">十月 10, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412909236773">70楼 1单元</a></div><p id="bc_0_292MC" class="comment-content">电吹风大法，实在不行就换。</p><span id="bc_0_292MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1868523759"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=7271997051551654633">删除1单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_292BR" class="comment-replies"></div><div id="bc_0_292B_box" class="comment-replybox-single"></div></li><li id="bc_0_303B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/b36-rounded.png"></div><div id="c7836328502711414619" class="comment-block"><div id="bc_0_303M" class="comment-header" kind="m"><cite class="user"><a rel="nofollow" href="http://www.blogger.com/profile/03115260414378289671">智多星张召忠</a></cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412944991574">十月 10, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412944991574">70楼 2单元</a></div><p id="bc_0_303MC" class="comment-content">多谢，试过了，再用上吸尘器，但没效，看来是要换了。</p><span id="bc_0_303MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1326311143"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=7836328502711414619">删除2单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_303BR" class="comment-replies"></div><div id="bc_0_303B_box" class="comment-replybox-single"></div></li><li id="bc_0_310B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c7027425049434500244" class="comment-block"><div id="bc_0_310M" class="comment-header" kind="m"><cite class="user">忠党爱国</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412985214523">十月 11, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412985214523">70楼 3单元</a></div><p id="bc_0_310MC" class="comment-content">google搜索你电脑的拆机教程，然后记下来，拆机。<br>主要未必是风扇，而是风扇负责的那个散热片。<br>我前两天刚干过这事。<br><br>（顺便鄙视下我当初专业的工科生，机械专业的，没几个敢拆电脑的就不说，自行车链条掉了还不能自己上）</p><span id="bc_0_310MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-261298401"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=7027425049434500244">删除3单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_310BR" class="comment-replies"></div><div id="bc_0_310B_box" class="comment-replybox-single"></div></li><li id="bc_0_311B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c8701435963189927645" class="comment-block"><div id="bc_0_311M" class="comment-header" kind="m"><cite class="user">忠党爱国</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412985440655">十月 11, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412985440655">70楼 4单元</a></div><p id="bc_0_311MC" class="comment-content">那个散热片其实不需要堵成什么样子就能对散热性能造成很大影响的。<br>拆机的时候小心点，多观察，慢慢来，不要用蛮力。<br><br><br>忠党爱国五毛死全家，有此标志的冒用者不算。</p><span id="bc_0_311MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-261298401"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=8701435963189927645">删除4单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_311BR" class="comment-replies"></div><div id="bc_0_311B_box" class="comment-replybox-single"></div></li><li id="bc_0_321B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/b36-rounded.png"></div><div id="c1636176404784014080" class="comment-block"><div id="bc_0_321M" class="comment-header" kind="m"><cite class="user"><a rel="nofollow" href="http://www.blogger.com/profile/03115260414378289671">智多星张召忠</a></cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413033012840">十月 11, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1413033012840">70楼 5单元</a></div><p id="bc_0_321MC" class="comment-content">哈哈，我是文科的，不在鄙视之列？？？多谢啦，我再搜下看看。</p><span id="bc_0_321MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1326311143"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=1636176404784014080">删除5单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_321BR" class="comment-replies"></div><div id="bc_0_321B_box" class="comment-replybox-single"></div></li><li id="bc_0_334B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c6442344056783736163" class="comment-block"><div id="bc_0_334M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413118156725">十月 12, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1413118156725">70楼 6单元</a></div><p id="bc_0_334MC" class="comment-content">同鄙视，现在计算机专业的学生也大多只是游戏专业户</p><span id="bc_0_334MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1406162312"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=6442344056783736163">删除6单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_334BR" class="comment-replies"></div><div id="bc_0_334B_box" class="comment-replybox-single"></div></li><li id="bc_0_346B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/b36-rounded.png"></div><div id="c6605463904067341523" class="comment-block"><div id="bc_0_346M" class="comment-header" kind="m"><cite class="user"><a rel="nofollow" href="http://www.blogger.com/profile/11135393746462565830">Liu Yiteng</a></cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413212257809">十月 13, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1413212257809">70楼 7单元</a></div><p id="bc_0_346MC" class="comment-content">尼玛，我为了除尘拆自己的本子，结果电源键装不回去了（按钮卡不到槽里面），只好去实验室拿烙铁接线把触电引出来……差点弄坏主板，散热系统也失灵了只好依赖外部风扇= =</p><span id="bc_0_346MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1476338144"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=6605463904067341523">删除7单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_346BR" class="comment-replies"></div><div id="bc_0_346B_box" class="comment-replybox-single"></div></li><li id="bc_0_348B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c5128777189611288394" class="comment-block"><div id="bc_0_348M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413223306515">十月 14, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1413223306515">70楼 8单元</a></div><p id="bc_0_348MC" class="comment-content">是厉害，本子都敢拆</p><span id="bc_0_348MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1406162312"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=5128777189611288394">删除8单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_348BR" class="comment-replies"></div><div id="bc_0_348B_box" class="comment-replybox-single"></div></li><li id="bc_0_351B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c512948195745016376" class="comment-block"><div id="bc_0_351M" class="comment-header" kind="m"><cite class="user">忠党爱国</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413234374904">十月 14, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1413234374904">70楼 9单元</a></div><p id="bc_0_351MC" class="comment-content">我们专业金工实习时好歹也拆过台式。老师说，其实你们有时间可以拆笔记本，也不比台式难。<br>实习怎么也是要求（起码）装回来能开机的。<br><br>拆
+本子不只是简单的锻炼。有些本子里面还可以装比如mSATA的扩展卡片来扩展功能，这是事先就设计好的（不是瞎diy），比如装个128G的固态硬盘什么
+的（其实我没钱），或者那种3g上网卡（我不推荐，这需要SIM卡在的，不经常更换SIM卡还行，那种便宜价买来一次性预付费卡就……）或者gps模块。<br>此外安全性上有洁癖的可以看看有没有天朝或者NSA安装的特别电路板（确实有这么干的）。<br><br></p><span id="bc_0_351MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-261298401"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=512948195745016376">删除9单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_351BR" class="comment-replies"></div><div id="bc_0_351B_box" class="comment-replybox-single"></div></li><li id="bc_0_358B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c4133445657368771680" class="comment-block"><div id="bc_0_358M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413272246011">十月 14, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1413272246011">70楼 10单元</a></div><p id="bc_0_358MC" class="comment-content">有些本有预留SIM卡插槽但是没装3G模块，这时候就要拆了……<br><br>还有这种监控……怎么实现的</p><span id="bc_0_358MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1406162312"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=4133445657368771680">删除10单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_358BR" class="comment-replies"></div><div id="bc_0_358B_box" class="comment-replybox-single"></div></li><li id="bc_0_367B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/b36-rounded.png"></div><div id="c4370864767918696188" class="comment-block"><div id="bc_0_367M" class="comment-header" kind="m"><cite class="user"><a rel="nofollow" href="http://www.blogger.com/profile/03115260414378289671">智多星张召忠</a></cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413291648482">十月 14, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1413291648482">70楼 11单元</a></div><p id="bc_0_367MC" class="comment-content">不是本子更好拆吗？体积更小，螺丝更少。别用蛮力拆基本不出大事。<br><br>顺利拆机，终于没啥声响了，以后也不用给别人30元了。</p><span id="bc_0_367MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1326311143"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=4370864767918696188">删除11单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_367BR" class="comment-replies"></div><div id="bc_0_367B_box" class="comment-replybox-single"></div></li><li id="bc_0_373B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c2458254162313036342" class="comment-block"><div id="bc_0_373M" class="comment-header" kind="m"><cite class="user">忠党爱国</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413316222754">十月 15, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1413316222754">70楼 12单元</a></div><p id="bc_0_373MC" class="comment-content">10单元：额外添加电路板，其实很2的。然后通过电路板将信号发射到附近地点藏起来的中继。<br>11单元：本的问题是各种奇怪的紧凑设计，比如无线网卡的线在壳子里面到处绕。台式倒是没什么这方面的问题。</p><span id="bc_0_373MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-261298401"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=2458254162313036342">删除12单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_373BR" class="comment-replies"></div><div id="bc_0_373B_box" class="comment-replybox-single"></div></li></div><div id="bc_0_292I" class="continue" kind="ci"><a href="javascript:;" target="_self">回复70楼</a></div></ol><div id="bc_0_292T_box" class="comment-replybox-thread"></div></div></span></div><div id="bc_0_289B_box" class="comment-replybox-single"></div></li><li id="bc_0_296B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c3235699965594853995" class="comment-block"><div id="bc_0_296M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412931712603">十月 10, 2014</a></span><a style="font-size: 125%;" class="counter" href="2014/10/weekly-share-74.md?comment=1412931712603">71楼</a></div><p id="bc_0_296MC" class="comment-content">刚才刷新了一下网页，发现右边最新评论忽然间不见了</p><span id="bc_0_296MN" class="comment-actions secondary-text" kind="m"><a kind="i" href="javascript:;" target="_self" o="r">回复71楼</a><span class="item-control blog-admin pid-438163549"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=3235699965594853995">删除71楼</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_296BR" class="comment-replies"><span id="bc_0_296b+seedEvD" kind="d"><div id="bc_0_304T" class="comment-thread inline-thread" kind="t" t="0" u="0"><span id="bc_0_304TT" class="thread-toggle thread-expanded" kind="g"><span id="bc_0_304TA" class="thread-arrow"></span><span id="bc_0_304TN" class="thread-count"><span id="bc_0_304TNT" style="display: none;">0</span><span id="bc_0_304TNU" style="display: none;"></span><a href="javascript:;" target="_self">Replies</a><div id="bc_0_304TD" class="thread-dropContainer thread-expanded"><span class="thread-drop"></span></div></span></span><ol id="bc_0_304TC" class="thread-chrome thread-expanded" unselectable="on"><div style="zoom:1" unselectable="on"><li id="bc_0_304B" class="comment" kind="b"><div class="avatar-image-container"><img src="http://lh6.googleusercontent.com/-fpaYncBYqKs/Th477aX8reI/AAAAAAAAAco/nkud5M9T64w/s48/Thinker.jpg"></div><div id="c8645638402413625794" class="comment-block"><div id="bc_0_304M" class="comment-header" kind="m"><cite class="user blog-author"><a rel="nofollow" href="http://www.blogger.com/profile/11741356469378252621">编程随想</a></cite><span class="icon user blog-author"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412956310776">十月 10, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412956310776">71楼 1单元</a></div><p id="bc_0_304MC" class="comment-content">TO 71楼的网友<br>下午俺在更新并调试“最新评论”的功能。<br>估计你刷新页面的时候，正好碰到俺在改代码，所以“最新评论”没有显示出来。<br>再刷新一下估计就好了。</p><span id="bc_0_304MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1582521586"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=8645638402413625794">删除1单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_304BR" class="comment-replies"></div><div id="bc_0_304B_box" class="comment-replybox-single"></div></li></div><div id="bc_0_304I" class="continue" kind="ci"><a href="javascript:;" target="_self">回复71楼</a></div></ol><div id="bc_0_304T_box" class="comment-replybox-thread"></div></div></span></div><div id="bc_0_296B_box" class="comment-replybox-single"></div></li><li id="bc_0_300B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/b36-rounded.png"></div><div id="c6137908689224213808" class="comment-block"><div id="bc_0_300M" class="comment-header" kind="m"><cite class="user"><a rel="nofollow" href="http://www.blogger.com/profile/08853123019167798224">v998</a></cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412939197647">十月 10, 2014</a></span><a style="font-size: 125%;" class="counter" href="2014/10/weekly-share-74.md?comment=1412939197647">72楼</a></div><p id="bc_0_300MC" class="comment-content">编随, 想到个私隐问题<br>是关于评论img代码的<br>可以track到用户的 IP, User Agent.<br>更有一些只有 1*1 的图片用来做这些的.. <br>例如 <a rel="nofollow" target="_blank" title="超链接语法&amp;#65306;
+评论中的网址&amp;#65292;如果两端是空格或换行&amp;#65292;评论发布后会自动变成可点击的超链接&amp;#12290;
+
+&amp;#65288;网址必须以 http:// 或 https:// 开头&amp;#65289;" href="http://iplogger.org/getnewid.php" class="bbcode simple">http://iplogger.org/getnewid.php</a> <br>还有opensource 的piwik (类google analytics的产品)都有image tracking的功能<br>假如有人恶意加入了这些tracking image,<br>会为那些没FQ, 例如在香港的网友 带来私隐安全问题</p><span id="bc_0_300MN" class="comment-actions secondary-text" kind="m"><a kind="i" href="javascript:;" target="_self" o="r">回复72楼</a><span class="item-control blog-admin pid-1429061783"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=6137908689224213808">删除72楼</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_300BR" class="comment-replies"><span id="bc_0_300b+seedEwD" kind="d"><div id="bc_0_305T" class="comment-thread inline-thread" kind="t" t="0" u="0"><span id="bc_0_305TT" class="thread-toggle thread-expanded" kind="g"><span id="bc_0_305TA" class="thread-arrow"></span><span id="bc_0_305TN" class="thread-count"><span id="bc_0_305TNT" style="display: none;">0</span><span id="bc_0_305TNU" style="display: none;"></span><a href="javascript:;" target="_self">Replies</a><div id="bc_0_305TD" class="thread-dropContainer thread-expanded"><span class="thread-drop"></span></div></span></span><ol id="bc_0_305TC" class="thread-chrome thread-expanded" unselectable="on"><div style="zoom:1" unselectable="on"><li id="bc_0_305B" class="comment" kind="b"><div class="avatar-image-container"><img src="http://lh6.googleusercontent.com/-fpaYncBYqKs/Th477aX8reI/AAAAAAAAAco/nkud5M9T64w/s48/Thinker.jpg"></div><div id="c7021943124528023536" class="comment-block"><div id="bc_0_305M" class="comment-header" kind="m"><cite class="user blog-author"><a rel="nofollow" href="http://www.blogger.com/profile/11741356469378252621">编程随想</a></cite><span class="icon user blog-author"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412956937070">十月 11, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412956937070">72楼 1单元</a></div><p id="bc_0_305MC" class="comment-content">TO v998<br>你的担心是有道理的。<br>像你这样的香港网民（也包括那些在国外的网友），访问俺博客通常都没有走代理，确实存在上述问题。<br><br>要避免“评论嵌入图片导致的隐私问题”，俺想到如下几招：<br>方案1：<br>在评论界面上提供一个开关选项，让用户设置是否默认显示评论中嵌入的图片<br>缺点是：一旦关闭了，所有嵌入评论的图片都看不到。而恶意图片毕竟是少数。<br>方案2：<br>采用某种技术来判断嵌入图片是否具有隐私问题<br>缺点：这个有技术难度<br>方案3：<br>对图片的 URL 进行某种白名单过滤，只允许嵌入某些知名大网站上的图片<br>缺点：维护白名单，有工作量，可能会有遗漏<br><br>不知道你是否有其它的思路？</p><span id="bc_0_305MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1582521586"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=7021943124528023536">删除1单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_305BR" class="comment-replies"></div><div id="bc_0_305B_box" class="comment-replybox-single"></div></li><li id="bc_0_306B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/b36-rounded.png"></div><div id="c645722269490846522" class="comment-block"><div id="bc_0_306M" class="comment-header" kind="m"><cite class="user"><a rel="nofollow" href="http://www.blogger.com/profile/08853123019167798224">v998</a></cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412958196998">十月 11, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412958196998">72楼 2单元</a></div><p id="bc_0_306MC" class="comment-content">方案1： 不默认显示评论中嵌入的图片 = 看不到?  不能自行按出来显示的吗?（interactive)<br>方案2: 假如不是直接有隐私问题, 但透过server的log仍可以看到 IP/ User Agent<br>方案3： 没大问题, 只要评论的人用白名单里的就可以了( 但变成了某程度上麻烦了评论的人 )<br><br>个人比较偏向1, 只要显示出URL让读者自行 Interactive 就好了</p><span id="bc_0_306MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1429061783"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=645722269490846522">删除2单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_306BR" class="comment-replies"></div><div id="bc_0_306B_box" class="comment-replybox-single"></div></li><li id="bc_0_307B" class="comment" kind="b"><div class="avatar-image-container"><img src="http://lh6.googleusercontent.com/-fpaYncBYqKs/Th477aX8reI/AAAAAAAAAco/nkud5M9T64w/s48/Thinker.jpg"></div><div id="c757312540755834516" class="comment-block"><div id="bc_0_307M" class="comment-header" kind="m"><cite class="user blog-author"><a rel="nofollow" href="http://www.blogger.com/profile/11741356469378252621">编程随想</a></cite><span class="icon user blog-author"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412958946844">十月 11, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412958946844">72楼 3单元</a></div><p id="bc_0_307MC" class="comment-content">TO v998<br>俺也倾向于 方案1<br>根据你的反馈，除了“开启”和“关闭”，再增加一个“手动开启”。<br><br>如果用户设置为“手动开启”，默认先看到一个图片的网址，然后点击某个按钮，再把图片加载/显示出来。<br></p><span id="bc_0_307MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1582521586"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=757312540755834516">删除3单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_307BR" class="comment-replies"></div><div id="bc_0_307B_box" class="comment-replybox-single"></div></li><li id="bc_0_312B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c2991939906410567432" class="comment-block"><div id="bc_0_312M" class="comment-header" kind="m"><cite class="user">忠党爱国</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412985683425">十月 11, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412985683425">72楼 4单元</a></div><p id="bc_0_312MC" class="comment-content">就做个“点击查看图片”的功能好了……<br>如果有钱搞个代理…或者找个在线代理的API，把所有的图片网址都通过这个代理走也可以考虑，当然性能上就比较坑了。可以试试先给评论栏目里面的用。博主自己是不会发这类图片的。</p><span id="bc_0_312MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-261298401"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=2991939906410567432">删除4单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_312BR" class="comment-replies"></div><div id="bc_0_312B_box" class="comment-replybox-single"></div></li><li id="bc_0_360B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c3277470168645434856" class="comment-block"><div id="bc_0_360M" class="comment-header" kind="m"><cite class="user">A</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413273885306">十月 14, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1413273885306">72楼 5单元</a></div><p id="bc_0_360MC" class="comment-content">想法一：方案1+方案3，白名单用来处理流行站点的图片，开关对付小站点图片<br>想法二：白名单之外站点的图片，主动转换成安全的图片</p><span id="bc_0_360MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1544164867"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=3277470168645434856">删除5单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_360BR" class="comment-replies"></div><div id="bc_0_360B_box" class="comment-replybox-single"></div></li><li id="bc_0_361B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c3413280656504172513" class="comment-block"><div id="bc_0_361M" class="comment-header" kind="m"><cite class="user">A</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413274367216">十月 14, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1413274367216">72楼 6单元</a></div><p id="bc_0_361MC" class="comment-content">希望增加一个“跳转到最新评论”的按钮<br>PS. 吞了好几个月评论，看在上一条发出来了，再刷一下</p><span id="bc_0_361MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1544164867"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=3413280656504172513">删除6单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_361BR" class="comment-replies"></div><div id="bc_0_361B_box" class="comment-replybox-single"></div></li><li id="bc_0_363B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c6845848174576212654" class="comment-block"><div id="bc_0_363M" class="comment-header" kind="m"><cite class="user">A</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413275047628">十月 14, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1413275047628">72楼 7单元</a></div><p id="bc_0_363MC" class="comment-content">浮动按钮挡住了最新评论，能移到右下角？或者经过那个区域自动靠右隐藏?</p><span id="bc_0_363MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1544164867"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=6845848174576212654">删除7单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_363BR" class="comment-replies"></div><div id="bc_0_363B_box" class="comment-replybox-single"></div></li><li id="bc_0_371B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/b36-rounded.png"></div><div id="c5652764855042105870" class="comment-block"><div id="bc_0_371M" class="comment-header" kind="m"><cite class="user"><a rel="nofollow" href="http://www.blogger.com/profile/08853123019167798224">v998</a></cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413301601118">十月 14, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1413301601118">72楼 8单元</a></div><p id="bc_0_371MC" class="comment-content">TO A <br>1: Good IDEA :)<br>2:主动转换成安全的图片: 太困难了...<br><br>另外, 跳转的位置仍不准确...</p><span id="bc_0_371MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1429061783"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=5652764855042105870">删除8单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_371BR" class="comment-replies"></div><div id="bc_0_371B_box" class="comment-replybox-single"></div></li></div><div id="bc_0_305I" class="continue" kind="ci"><a href="javascript:;" target="_self">回复72楼</a></div></ol><div id="bc_0_305T_box" class="comment-replybox-thread"></div></div></span></div><div id="bc_0_300B_box" class="comment-replybox-single"></div></li><li id="bc_0_308B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c5672727430815770237" class="comment-block"><div id="bc_0_308M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412961114330">十月 11, 2014</a></span><a style="font-size: 125%;" class="counter" href="2014/10/weekly-share-74.md?comment=1412961114330">73楼</a></div><p id="bc_0_308MC" class="comment-content">您好，博主，我关注您的博客有一段时间了，以前翻墙主要是想看看国内的政治，以及想看一些我们国内看不到的真相，偶然间看到博客的博客才知道有你这样的大神在解答我们的疑惑，所以在这里我先感谢您一直以来辛勤的解答我们的疑惑。<br>我想冒昧问您几个问题：<br>1、我之前翻墙看国内的政治内容，一般都是由一些火轮功背景的新闻网站看到的，例如：新唐人、大纪元这些网站。现在问题是想知道这些新闻网站报道东西是否足够真实？或者说有些内容是否真实？再有，翻墙后看那个网站会比较客观报道？<br>2、
+我Google了一下火轮功，很多的信息都说是中共镇压的，说其实火轮功是比较好的教派，相当于少林寺一样的。由于当时镇压的时候我还小，对这方面并不了
+解，而且对网上的内容抱着怀疑的态度，不知道博主是否了解真实情况，能否给我们做一个专门的介绍，所以说给我们扫盲一下？<br>3、目前的近代，严格来
+说是共掌管中国以来的大致政治变动我是知道的，我想请问一下博主能否为这些我们80尾声或90后的人在不了解的年代里（因为那时候我们还小），例如80年
+代-21世纪初的一些政治变动，或者国内的大型事件，{例如：6.4、火轮功）做一些系统性的扫盲呢？在我前面的两个事件以外，是否还有其他的我们不了解
+的事件呢？<br>以上三个问题我想应该是我们大部分的80、90后所不了解的空白，希望博主能够腾出一些时间来为我们扫一下盲。非常感谢！<br>再次祝博主好人好报，阖家平安，万事如意！<br><br>                                                                             一个想了解事情真相的80小伙</p><span id="bc_0_308MN" class="comment-actions secondary-text" kind="m"><a kind="i" href="javascript:;" target="_self" o="r">回复73楼</a><span class="item-control blog-admin pid-1253658667"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=5672727430815770237">删除73楼</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_308BR" class="comment-replies"><span id="bc_0_308b+seedE5D" kind="d"><div id="bc_0_314T" class="comment-thread inline-thread" kind="t" t="0" u="0"><span id="bc_0_314TT" class="thread-toggle thread-expanded" kind="g"><span id="bc_0_314TA" class="thread-arrow"></span><span id="bc_0_314TN" class="thread-count"><span id="bc_0_314TNT" style="display: none;">0</span><span id="bc_0_314TNU" style="display: none;"></span><a href="javascript:;" target="_self">Replies</a><div id="bc_0_314TD" class="thread-dropContainer thread-expanded"><span class="thread-drop"></span></div></span></span><ol id="bc_0_314TC" class="thread-chrome thread-expanded" unselectable="on"><div style="zoom:1" unselectable="on"><li id="bc_0_314B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c6226240377554682731" class="comment-block"><div id="bc_0_314M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412987167129">十月 11, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412987167129">73楼 1单元</a></div><p id="bc_0_314MC" class="comment-content">TO 73楼网友<br>你这些要求谷歌搜索、维基百科很容易查到的嘛！何况你都会翻墙来这询问了，难道就不能多费点功夫自己去搜索找答案吗？</p><span id="bc_0_314MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-438163549"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=6226240377554682731">删除1单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_314BR" class="comment-replies"></div><div id="bc_0_314B_box" class="comment-replybox-single"></div></li><li id="bc_0_316B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c227245090195176427" class="comment-block"><div id="bc_0_316M" class="comment-header" kind="m"><cite class="user">忠党爱国</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412988124038">十月 11, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412988124038">73楼 2单元</a></div><p id="bc_0_316MC" class="comment-content">1. 凭直觉和良知自己感觉。<br>2. 不是镇压的难道是自己跑的？不过轮子自己的书写得怎么样你可以自己看下，不科学是肯定的，骗骗那些本来没有信仰而且还需要一个信仰的老人家很合适。<br>3. <a rel="nofollow" target="_blank" title="超链接语法&amp;#65306;
+[url=网址]标题文字[/url]
+
+&amp;#65288;网址必须以 http:// 或 https:// 开头&amp;#65289;
+
+&amp;#65288;文字部分&amp;#12304;不要&amp;#12305;使用如下的半角符号&amp;#65292;需要的话&amp;#65292;改用全角符号&amp;#65289;
+\ &lt; &gt; ( ) ' &quot; &amp; # $ %" href="http://www.64memo.com/" class="bbcode with-text">64memo</a><br><br>另外同意1单元的，翻墙是技术，自己搜索信息是能力。反对“好人一生平安”的伸手党。</p><span id="bc_0_316MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-261298401"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=227245090195176427">删除2单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_316BR" class="comment-replies"></div><div id="bc_0_316B_box" class="comment-replybox-single"></div></li><li id="bc_0_324B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c3459004460781530529" class="comment-block"><div id="bc_0_324M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413074417656">十月 12, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1413074417656">73楼 3单元</a></div><p id="bc_0_324MC" class="comment-content">那你就看大纪元，里面有各类真相。大纪元最能反映客观事实，具有前瞻性，特别推荐。看后你自己判断取舍，不要受别人影响，先入误导你的思想。</p><span id="bc_0_324MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-95328470"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=3459004460781530529">删除3单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_324BR" class="comment-replies"></div><div id="bc_0_324B_box" class="comment-replybox-single"></div></li><li id="bc_0_327B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c5689911689024278073" class="comment-block"><div id="bc_0_327M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413081272910">十月 12, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1413081272910">73楼 4单元</a></div><p id="bc_0_327MC" class="comment-content">真是越说越离谱了，大纪元能反映客观事实？<br>恰恰相反，像大纪元（法轮功类的媒体）连作为新闻工作者最基本的职业操守都没有，整天捕风捉影、夸大事实，八卦阴谋论类的报道严重缺乏客观、严肃性。<br>就因为中共镇压、歪曲事实报道的作法能让你找到借口“以其人之道还治其人之身”的方式来宣泄、报仇吗（简单地说就是别人耍流氓、文盲，你也跟着学吗）？这伙人压根就不懂得“非暴力抵抗”的真正含义！<br>像纽约时报、华尔街日报、卫报、泰晤士报、苹果日报、自由时报这些媒体还不多<br></p><span id="bc_0_327MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-438163549"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=5689911689024278073">删除4单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_327BR" class="comment-replies"></div><div id="bc_0_327B_box" class="comment-replybox-single"></div></li><li id="bc_0_328B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c8261762730048728410" class="comment-block"><div id="bc_0_328M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413105812552">十月 12, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1413105812552">73楼 5单元</a></div><p id="bc_0_328MC" class="comment-content"><br>《大纪元》与港人并肩抗命 披露雨伞运动真相全貌<br><br>    从9月22日学生罢课开始，到了现在港人的抗议活动已经持续了大半个月。在此过程中，《大纪元》维护着港人的自由民主价值观，抗击中共的党文化，在这次“雨伞运动”中，极大地帮助了香港社会认识和看清中共的本质，并与港人一起同路开创抗命中共的时代。<br>新闻自由和言论自由是香港赖以生存的核心价值。自九七以来，香港新闻自由不断下滑，香港大学昨日公布最新调查发现，虽然市民对新闻自由度满意净值大幅回升，但对新闻传媒的整体公信力创八年新低，跌至仅5.84分（10分为满分）。<br>近半数市民认为香港的新闻传媒有自我审查，特别在批评中央政府时有所顾忌；而认为传媒在批评特区政府时有顾忌的比率，升至17年新高。在当今媒体乱象中，《大纪元》一直坚守诚信、自由民主的香港核心价值观，维护中华传统文化中最精华的部份，为港人发声。<br>由9.22学生罢课启动的不合作运动，在9.28警方发放87枚催泪弹对付手无寸铁学生后，演变为遍地开花的“雨伞运动”。十余天的抗争，有几个关键时间点，分别为9月28日和平占中启动、警方施放催泪弹镇压；10月3日黑社会冲击旺角，以及10月4日十万人抗暴集会。<br>中共在港媒体《文汇报》、《大公报》和亲共报章如《星岛日报》、《东方日报》、《商报》、《成报》等，连日一面倒负面报导“雨伞运动”，甚至对和平抗命的港人进行谩骂。<br>9月28日港警施放催泪弹镇压后，次日《大纪元时报》以“唯梁振英下台”表达学生的愤怒；《苹果日报》以“无惧镇压”为题；但文汇、大公则批评“占中大乱”；竞选时高调支持梁振英的《东方日报》以“乱示威潮涌泪弹横飞”为题，宣称学生集会“完全失控”，制造恐怖气氛。<br><br>10月3日黑社会冲击旺角“雨伞运动”民众后，《大纪元》网站迅速刊发大量即时新闻，曝光这些黑手的真相。《东方日报》4日在头版发出“市民愤怒了堵路打击生计自发清场浴血”的文章，为黑社会开脱。《大公报》以“市民受够了！旺角万人冲突”为头版标题，继续歪曲报导。<br><br>连
+日来，国际传媒云集香港，美国《CNN》、《NBC》、英国《BBC》、还有《纽约时报》、《金融时报》、《美国之音》、《法广》等众多世界知名媒体不但
+发布抗议行动的最新进展，还深入采访、分析解读港人的真实声音，对香港市民和学生所展现的良好公民素养和理性精神大加赞赏，同时报导了中共“反占中”暴徒
+的背景及相关黑幕。<br><br>有些香港传媒虽然也在曝光真相，但因不了解事件本身涉及中南海政局和江泽民集团为此事设计的骗局，以及不了解中国最敏
+感的法轮功真相、中国政局的焦点，报导都有一定的局限。惟有《大纪元》是在最全面和真实报导事件的全貌，也只有《大纪元》的报导说清楚了香港这起事件和中
+南海之间的真正关系。<br><br>现在，香港亲共传媒的失实偏颇报导，令不少“雨伞运动”学生和市民产生警惕，往往先询问媒体背景才接受采访，甚至拒绝亲共传媒采访，或者只接受国际传媒采访。而被这些亲共传媒扭曲加工后的香港新闻，又迅速在大陆传播，成为愚弄大陆百姓的政治工具。</p><span id="bc_0_328MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1362766374"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=8261762730048728410">删除5单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_328BR" class="comment-replies"></div><div id="bc_0_328B_box" class="comment-replybox-single"></div></li><li id="bc_0_329B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c1555362361678854925" class="comment-block"><div id="bc_0_329M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413111016532">十月 12, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1413111016532">73楼 6单元</a></div><p id="bc_0_329MC" class="comment-content">我给大纪元媒体评分：-5.0（满分10分） <br>理由：回答网友提问驴唇不对马嘴、重复机械灌水、擅长八卦阴谋论的花边新闻报道，缺乏客观、严肃性且不真实。</p><span id="bc_0_329MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-438163549"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=1555362361678854925">删除6单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_329BR" class="comment-replies"></div><div id="bc_0_329B_box" class="comment-replybox-single"></div></li><li id="bc_0_333B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c4089592085435517548" class="comment-block"><div id="bc_0_333M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413118144730">十月 12, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1413118144730">73楼 7单元</a></div><p id="bc_0_333MC" class="comment-content">反共势力本来力量就单薄，你们还这样制造偏见导致派阀分裂，中国民主运动就是这样被你们自己搞残的。如果新政府上台还是这副对媒体指手画脚的小样，你们想要的言论自由到底在哪里？</p><span id="bc_0_333MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1406162312"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=4089592085435517548">删除7单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_333BR" class="comment-replies"></div><div id="bc_0_333B_box" class="comment-replybox-single"></div></li><li id="bc_0_335B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c9123030106194108900" class="comment-block"><div id="bc_0_335M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413121428638">十月 12, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1413121428638">73楼 8单元</a></div><p id="bc_0_335MC" class="comment-content">你见过纽约时报、华尔街日报、苹果日报、自由时报、泰晤士报、卫报这些报纸有哪个像大纪元这样变态的，为了还击中共可以这样不择手段（不尊重客观事实，采用夸张扭曲、捕风捉影的方式）来报道，这样做跟中共的ccav有什么区别吗？<br>而
+且博主也承认法轮功媒体的内容本来就欠缺客观、严肃性，不能因为只要持反共立场就对他们的弊端视而不见啊！这是陷入了光环效应的认知误区
+2009/05/halo-effect.md，去温习一下吧<br><br><br></p><span id="bc_0_335MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-438163549"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=9123030106194108900">删除8单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_335BR" class="comment-replies"></div><div id="bc_0_335B_box" class="comment-replybox-single"></div></li><li id="bc_0_336B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c299095874305732384" class="comment-block"><div id="bc_0_336M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413124437036">十月 12, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1413124437036">73楼 9单元</a></div><p id="bc_0_336MC" class="comment-content">只是批评法轮功媒体的新闻报道失真（这是事实啊），怎么就成了制造偏见、派阀分裂了？<br>新政府上台就不能批评（包括媒体）了吗？批评又说成指手画脚~~~   <br>兄弟，你把民主理解得太简单、太肤浅了吧</p><span id="bc_0_336MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-438163549"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=299095874305732384">删除9单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_336BR" class="comment-replies"></div><div id="bc_0_336B_box" class="comment-replybox-single"></div></li><li id="bc_0_339B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c1567556923137584894" class="comment-block"><div id="bc_0_339M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413129270308">十月 12, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1413129270308">73楼 10单元</a></div><p id="bc_0_339MC" class="comment-content">怎么感觉我们现在除了要防五毛，也要防法轮功的水军啊！！</p><span id="bc_0_339MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1253658667"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=1567556923137584894">删除10单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_339BR" class="comment-replies"></div><div id="bc_0_339B_box" class="comment-replybox-single"></div></li><li id="bc_0_340B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c3266164340946205320" class="comment-block"><div id="bc_0_340M" class="comment-header" kind="m"><cite class="user">忠党爱国</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413130881544">十月 13, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1413130881544">73楼 11单元</a></div><p id="bc_0_340MC" class="comment-content">10单元：法轮功和天朝没差哪里去。当年翻墙时用那个软件还封杀黄色网站。然后有人说你和GFW有区别么。</p><span id="bc_0_340MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-261298401"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=3266164340946205320">删除11单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_340BR" class="comment-replies"></div><div id="bc_0_340B_box" class="comment-replybox-single"></div></li><li id="bc_0_415B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c186292920423126065" class="comment-block"><div id="bc_0_415M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413471483551">十月 16, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1413471483551">73楼 12单元</a></div><p id="bc_0_415MC" class="comment-content">任何宗教的宣传都带有诅咒的意味，用以吸引他人加入。而总是诅咒他人的人多是废柴（不是说论坛上的诅咒）但无处发泄，宗教正好是个懒惰的地方，又可以诅咒，所以加入宗教的都是废柴和饭桶。</p><span id="bc_0_415MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1966464277"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=186292920423126065">删除12单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_415BR" class="comment-replies"></div><div id="bc_0_415B_box" class="comment-replybox-single"></div></li></div><div id="bc_0_314I" class="continue" kind="ci"><a href="javascript:;" target="_self">回复73楼</a></div></ol><div id="bc_0_314T_box" class="comment-replybox-thread"></div></div></span></div><div id="bc_0_308B_box" class="comment-replybox-single"></div></li><li id="bc_0_309B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c9184725656219201593" class="comment-block"><div id="bc_0_309M" class="comment-header" kind="m"><cite class="user"><a rel="nofollow" href="https://xiaolan.me/">Xiaolan</a></cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412967218696">十月 11, 2014</a></span><a style="font-size: 125%;" class="counter" href="2014/10/weekly-share-74.md?comment=1412967218696">74楼</a></div><p id="bc_0_309MC" class="comment-content">编程随想免翻墙镜像 <a rel="nofollow" target="_blank" title="超链接语法&amp;#65306;
+评论中的网址&amp;#65292;如果两端是空格或换行&amp;#65292;评论发布后会自动变成可点击的超链接&amp;#12290;
+
+&amp;#65288;网址必须以 http:// 或 https:// 开头&amp;#65289;" href="https://github.com/xl2014/suixiang" class="bbcode simple">https://github.com/xl2014/suixiang</a><br> 10月1日更新内容</p><span id="bc_0_309MN" class="comment-actions secondary-text" kind="m"><a kind="i" href="javascript:;" target="_self" o="r">回复74楼</a><span class="item-control blog-admin pid-1527292520"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=9184725656219201593">删除74楼</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_309BR" class="comment-replies"></div><div id="bc_0_309B_box" class="comment-replybox-single"></div></li><li id="bc_0_313B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c7831520407993125861" class="comment-block"><div id="bc_0_313M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412986943579">十月 11, 2014</a></span><a style="font-size: 125%;" class="counter" href="2014/10/weekly-share-74.md?comment=1412986943579">75楼</a></div><p id="bc_0_313MC" class="comment-content">编程君，我想问下<br><br>When injustice becomes law, resistance becomes duty.<br><br>这句话到底是谁说的？<br><br>有说是Thomas Jefferson的，但是根据一些人的说法，比如：<br><a rel="nofollow" target="_blank" title="超链接语法&amp;#65306;
+评论中的网址&amp;#65292;如果两端是空格或换行&amp;#65292;评论发布后会自动变成可点击的超链接&amp;#12290;
+
+&amp;#65288;网址必须以 http:// 或 https:// 开头&amp;#65289;" href="http://www.monticello.org/site/research-and-collections/when-injustice-becomes-law-resistance-becomes-duty-quotation#footnote1_qd0du87" class="bbcode simple">http://www.monticello.org/site/research-and-collections/when-injustice-becomes-law-resistance-becomes-duty-quotation#footnote1_qd0du87</a><br>或者<br><a rel="nofollow" target="_blank" title="超链接语法&amp;#65306;
+评论中的网址&amp;#65292;如果两端是空格或换行&amp;#65292;评论发布后会自动变成可点击的超链接&amp;#12290;
+
+&amp;#65288;网址必须以 http:// 或 https:// 开头&amp;#65289;" href="https://answers.yahoo.com/question/index?qid=20100706141219AAAEFGp" class="bbcode simple">https://answers.yahoo.com/question/index?qid=20100706141219AAAEFGp</a><br><br>似乎jefferson只是有这个类似的思想，没有说过。<br><br>而我更倾向于这句话的德语版本：<br>Wo Unrecht zu Recht wird, wird Widerstand zur Pflicht! （直译英语就是Where injustices becomes law, resistance becomes duty!)<br> <br>这句话是，根据维基百科（https://de.wikipedia.org/wiki/Widerstand_%28Politik%29）：<br>Allgemeiner
+ Begriff: „Wo Unrecht zu Recht wird, wird Widerstand zur Pflicht“. Diese
+ Bertolt Brecht zugeschriebene Parole wurde Anfang der 1970er Jahre in 
+der Anti-AKW-Bewegung gegen das geplante Kernkraftwerk Kernkraftwerk 
+Wyhl populär.<br>一般概念“哪里不公平成为法律，反抗就成为义务”。这个归于<a rel="nofollow" target="_blank" title="超链接语法&amp;#65306;
+[url=网址]标题文字[/url]
+
+&amp;#65288;网址必须以 http:// 或 https:// 开头&amp;#65289;
+
+&amp;#65288;文字部分&amp;#12304;不要&amp;#12305;使用如下的半角符号&amp;#65292;需要的话&amp;#65292;改用全角符号&amp;#65289;
+\ &lt; &gt; ( ) ' &quot; &amp; # $ %" href="https://de.wikipedia.org/wiki/Bertolt_Brecht" class="bbcode with-text">Bertolt Brecht</a>的标语在1970年时的反核运动中针对计划于Wyhl的核电站时流行。</p><span id="bc_0_313MN" class="comment-actions secondary-text" kind="m"><a kind="i" href="javascript:;" target="_self" o="r">回复75楼</a><span class="item-control blog-admin pid-261298401"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=7831520407993125861">删除75楼</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_313BR" class="comment-replies"><span id="bc_0_313b+seedE6D" kind="d"><div id="bc_0_315T" class="comment-thread inline-thread" kind="t" t="0" u="0"><span id="bc_0_315TT" class="thread-toggle thread-expanded" kind="g"><span id="bc_0_315TA" class="thread-arrow"></span><span id="bc_0_315TN" class="thread-count"><span id="bc_0_315TNT" style="display: none;">0</span><span id="bc_0_315TNU" style="display: none;"></span><a href="javascript:;" target="_self">Replies</a><div id="bc_0_315TD" class="thread-dropContainer thread-expanded"><span class="thread-drop"></span></div></span></span><ol id="bc_0_315TC" class="thread-chrome thread-expanded" unselectable="on"><div style="zoom:1" unselectable="on"><li id="bc_0_315B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c6982776904861186019" class="comment-block"><div id="bc_0_315M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412987849043">十月 11, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412987849043">75楼 1单元</a></div><p id="bc_0_315MC" class="comment-content">我提出这可能也有人说是没有根据的，真是悬案。<br><br><a rel="nofollow" target="_blank" title="超链接语法&amp;#65306;
+评论中的网址&amp;#65292;如果两端是空格或换行&amp;#65292;评论发布后会自动变成可点击的超链接&amp;#12290;
+
+&amp;#65288;网址必须以 http:// 或 https:// 开头&amp;#65289;" href="https://www.reddit.com/r/conspiracy/comments/1ggow4/when_injustice_becomes_law/" class="bbcode simple">https://www.reddit.com/r/conspiracy/comments/1ggow4/when_injustice_becomes_law/</a></p><span id="bc_0_315MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-261298401"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=6982776904861186019">删除1单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_315BR" class="comment-replies"></div><div id="bc_0_315B_box" class="comment-replybox-single"></div></li></div><div id="bc_0_315I" class="continue" kind="ci"><a href="javascript:;" target="_self">回复75楼</a></div></ol><div id="bc_0_315T_box" class="comment-replybox-thread"></div></div></span></div><div id="bc_0_313B_box" class="comment-replybox-single"></div></li><li id="bc_0_317B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c8838636687599577157" class="comment-block"><div id="bc_0_317M" class="comment-header" kind="m"><cite class="user">忠党爱国</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412988807970">十月 11, 2014</a></span><a style="font-size: 125%;" class="counter" href="2014/10/weekly-share-74.md?comment=1412988807970">76楼</a></div><p id="bc_0_317MC" class="comment-content">报告bug，<br><br>有简易署名的非匿名评论在侧栏的最新评论里面目前显示为匿名。<br>（吐槽随想君：这js写起来真这么难么？bug太多了点）</p><span id="bc_0_317MN" class="comment-actions secondary-text" kind="m"><a kind="i" href="javascript:;" target="_self" o="r">回复76楼</a><span class="item-control blog-admin pid-261298401"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=8838636687599577157">删除76楼</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_317BR" class="comment-replies"><span id="bc_0_317b+seedE9D" kind="d"><div id="bc_0_318T" class="comment-thread inline-thread" kind="t" t="0" u="0"><span id="bc_0_318TT" class="thread-toggle thread-expanded" kind="g"><span id="bc_0_318TA" class="thread-arrow"></span><span id="bc_0_318TN" class="thread-count"><span id="bc_0_318TNT" style="display: none;">0</span><span id="bc_0_318TNU" style="display: none;"></span><a href="javascript:;" target="_self">Replies</a><div id="bc_0_318TD" class="thread-dropContainer thread-expanded"><span class="thread-drop"></span></div></span></span><ol id="bc_0_318TC" class="thread-chrome thread-expanded" unselectable="on"><div style="zoom:1" unselectable="on"><li id="bc_0_318B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c214768444651801986" class="comment-block"><div id="bc_0_318M" class="comment-header" kind="m"><cite class="user">忠党爱国</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412988898880">十月 11, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1412988898880">76楼 1单元</a></div><p id="bc_0_318MC" class="comment-content">就比如这一条里面，用“名称/网址”署名，结果是忠党爱国，在评论区显示是正常的，但是右侧一律是匿名。</p><span id="bc_0_318MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-261298401"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=214768444651801986">删除1单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_318BR" class="comment-replies"></div><div id="bc_0_318B_box" class="comment-replybox-single"></div></li><li id="bc_0_320B" class="comment" kind="b"><div class="avatar-image-container"><img src="http://lh6.googleusercontent.com/-fpaYncBYqKs/Th477aX8reI/AAAAAAAAAco/nkud5M9T64w/s48/Thinker.jpg"></div><div id="c7996556500228275636" class="comment-block"><div id="bc_0_320M" class="comment-header" kind="m"><cite class="user blog-author"><a rel="nofollow" href="http://www.blogger.com/profile/11741356469378252621">编程随想</a></cite><span class="icon user blog-author"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413008935539">十月 11, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1413008935539">76楼 2单元</a></div><p id="bc_0_320MC" class="comment-content">TO 冒牌的“忠党爱国”<br>多谢反馈 Bug :) 已经修复！<br><br>你抱怨 Bug 多，其实好多 Bug 你还没看到就被俺修复啦 :)<br><br>俺也来抱怨一下：<br>1、<br>Blogspot 的这个评论系统，又没有代码级的文档。俺直接在里面 hacks，【修改基本靠猜】。<br>比如昨天那个引发围观的“头像错误 Bug”——本来俺以为只有博主的留言会带有某个特殊的标记，后来发现不是这么回事。<br>只好换一个思路来判断“是否为博主留言”<br>2、<br>另外一个头大的事情是“浏览器兼容性”。<br>就算不考虑 IE 的兼容性，就算大伙儿全部用最新版本的 Firefox 或 Chrome，也要考虑好多因素。<br>比如俺博客的读者，有很多人装了浏览器安全扩展，会禁用【全部】或【部分】的 JS 脚本。<br>俺还要考虑某些脚本被禁用的时候，界面要基本保持一致。<br>3、<br>大部分读者都是翻墙浏览。翻墙的线路可能不稳定，会导致某些 JS / CSS 没有加载，又是一堆问题。<br>然后俺还要考虑这方面的容错性。<br>4、<br>考虑到俺博客谈了很多信息安全，读者里面肯定不乏安全界的同学。<br>所以在修改 Blogspot 界面系统的时候，还要额外留神——别引入 XSS 的漏洞。<br><br>上述这么多方面，然后时间又比较紧，难免顾此失彼啊 :(</p><span id="bc_0_320MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1582521586"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=7996556500228275636">删除2单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_320BR" class="comment-replies"></div><div id="bc_0_320B_box" class="comment-replybox-single"></div></li><li id="bc_0_342B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c6661493015380470012" class="comment-block"><div id="bc_0_342M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413131585242">十月 13, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1413131585242">76楼 3单元</a></div><p id="bc_0_342MC" class="comment-content">我没摸过blogspot的评论系统，但是以前针对百度贴吧的糟糕代码开发过一些东西。<br>我建议（也许博主已经这么干了），先把Blogspot的评论都解析成结构化的数据。然后实在不行用jQuery删掉评论区自己写一套评论的显示。我印象中jQuery自己已经在浏览器兼容性上做了很多工作了。</p><span id="bc_0_342MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-261298401"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=6661493015380470012">删除3单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_342BR" class="comment-replies"></div><div id="bc_0_342B_box" class="comment-replybox-single"></div></li><li id="bc_0_344B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c8953656663670828246" class="comment-block"><div id="bc_0_344M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413184692903">十月 13, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1413184692903">76楼 4单元</a></div><p id="bc_0_344MC" class="comment-content">其实我觉得与其这样博主还不如彻底放弃BlogSpot，自己建一个站，想要什么高级功能有什么。EC2还免费，只要通过验证，而过验证不涉及实际支付十分简单，只不过每年要更新一次，还有有一定限制。</p><span id="bc_0_344MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1406162312"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=8953656663670828246">删除4单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_344BR" class="comment-replies"></div><div id="bc_0_344B_box" class="comment-replybox-single"></div></li></div><div id="bc_0_318I" class="continue" kind="ci"><a href="javascript:;" target="_self">回复76楼</a></div></ol><div id="bc_0_318T_box" class="comment-replybox-thread"></div></div></span></div><div id="bc_0_317B_box" class="comment-replybox-single"></div></li><li id="bc_0_319B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c8584523134287729302" class="comment-block"><div id="bc_0_319M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1412997192327">十月 11, 2014</a></span><a style="font-size: 125%;" class="counter" href="2014/10/weekly-share-74.md?comment=1412997192327">77楼</a></div><p id="bc_0_319MC" class="comment-content"><div class="bbcode-img"><img alt="&amp;#12288;图片加载失败 :(&amp;#12288;" onerror="this.alt='&amp;#12288;图片加载失败 :(&amp;#12288;'" title="图片语法&amp;#65306;
+[img]图片网址[/img]
+
+&amp;#65288;网址必须以 http:// 或 https:// 开头&amp;#65289;" class="loaded" src="http://blog-imgs-67.fc2blog.us/v/b/i/vbird/542a287637adb.jpg"><br>（要修改“BBCode图片的显示方式”，请猛击“<a href="p/options.md#bbcode" target="_blank">界面配置</a>”）</div></p><span id="bc_0_319MN" class="comment-actions secondary-text" kind="m"><a kind="i" href="javascript:;" target="_self" o="r">回复77楼</a><span class="item-control blog-admin pid-1390112264"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=8584523134287729302">删除77楼</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_319BR" class="comment-replies"></div><div id="bc_0_319B_box" class="comment-replybox-single"></div></li><li id="bc_0_322B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c6724912593871877399" class="comment-block"><div id="bc_0_322M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413041183478">十月 11, 2014</a></span><a style="font-size: 125%;" class="counter" href="2014/10/weekly-share-74.md?comment=1413041183478">78楼</a></div><p id="bc_0_322MC" class="comment-content">看
+到【编程随想】的博客感觉让我懂得很多东西，而且在这个博客里，很多的朋友的留言也可以让人学习以及了解更多的真相。以前常常看国内的凤凰网之类带官方味
+道的报道，所以不会看得懂政治上的东西，现在也知道了五毛之类的东西，让我看新闻可以更加清晰的了解国内的政治动向，结合这个博客的内容，给自己一个比较
+清晰了解。不过问题来了，最近我有一种感觉，就是在看国内报道的时候，总是有很多很多的五毛在顶共、产党，我想很多很多的人都是不了解真相的。而我留下的
+评论都是被屏蔽了。我想让国内的同胞们能够看到墙外的世界，但是被屏蔽，请问你们有这样做过吗？是怎么做到的？</p><span id="bc_0_322MN" class="comment-actions secondary-text" kind="m"><a kind="i" href="javascript:;" target="_self" o="r">回复78楼</a><span class="item-control blog-admin pid-1209111126"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=6724912593871877399">删除78楼</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_322BR" class="comment-replies"><span id="bc_0_322b+seedGbD" kind="d"><div id="bc_0_412T" class="comment-thread inline-thread" kind="t" t="0" u="0"><span id="bc_0_412TT" class="thread-toggle thread-expanded" kind="g"><span id="bc_0_412TA" class="thread-arrow"></span><span id="bc_0_412TN" class="thread-count"><span id="bc_0_412TNT" style="display: none;">0</span><span id="bc_0_412TNU" style="display: none;"></span><a href="javascript:;" target="_self">Replies</a><div id="bc_0_412TD" class="thread-dropContainer thread-expanded"><span class="thread-drop"></span></div></span></span><ol id="bc_0_412TC" class="thread-chrome thread-expanded" unselectable="on"><div style="zoom:1" unselectable="on"><li id="bc_0_412B" class="comment" kind="b"><div class="avatar-image-container"><img src="http://lh6.googleusercontent.com/-fpaYncBYqKs/Th477aX8reI/AAAAAAAAAco/nkud5M9T64w/s48/Thinker.jpg"></div><div id="c3749634935233948945" class="comment-block"><div id="bc_0_412M" class="comment-header" kind="m"><cite class="user blog-author"><a rel="nofollow" href="http://www.blogger.com/profile/11741356469378252621">编程随想</a></cite><span class="icon user blog-author"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413468742625">十月 16, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1413468742625">78楼 1单元</a></div><p id="bc_0_412MC" class="comment-content">TO 78楼的网友<br>首先感谢你的捧场 :)<br><br>针对你提到的问题，可以参考俺之前的博文《<a rel="nofollow" target="_blank" title="超链接语法&amp;#65306;
+[url=网址]标题文字[/url]
+
+&amp;#65288;网址必须以 http:// 或 https:// 开头&amp;#65289;
+
+&amp;#65288;文字部分&amp;#12304;不要&amp;#12305;使用如下的半角符号&amp;#65292;需要的话&amp;#65292;改用全角符号&amp;#65289;
+\ &lt; &gt; ( ) ' &quot; &amp; # $ %" href="2014/01/anti-brainwashing-and-enlightenment.md" class="bbcode with-text">如何用互联网进行“反洗脑”和“政治启蒙”——分享若干个人经验</a>》<br><br>【每个人都可以尽自己的微博之力，为这个国家做点有益的贡献】<br>比如俺虽然只是一个普通的网民，但这个博客，到目前为止已经帮助了好多人（翻墙方面、政治方面、心理学方面）。</p><span id="bc_0_412MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1582521586"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=3749634935233948945">删除1单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_412BR" class="comment-replies"></div><div id="bc_0_412B_box" class="comment-replybox-single"></div></li></div><div id="bc_0_412I" class="continue" kind="ci"><a href="javascript:;" target="_self">回复78楼</a></div></ol><div id="bc_0_412T_box" class="comment-replybox-thread"></div></div></span></div><div id="bc_0_322B_box" class="comment-replybox-single"></div></li><li id="bc_0_325B" class="comment" kind="b"><div class="avatar-image-container"><img src="//lh5.googleusercontent.com/-Rl0CdxS8hAA/AAAAAAAAAAI/AAAAAAAAAJg/urZDsSpuvwY/s512-c/photo.jpg"></div><div id="c8405700451301782357" class="comment-block"><div id="bc_0_325M" class="comment-header" kind="m"><cite class="user"><a rel="nofollow" href="http://www.blogger.com/profile/05314972727114386119">张金涛</a></cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413078852458">十月 12, 2014</a></span><a style="font-size: 125%;" class="counter" href="2014/10/weekly-share-74.md?comment=1413078852458">79楼</a></div><p id="bc_0_325MC" class="comment-content">最近搞了搞CGIProxy和PHPProxy个说.....<br>(PHPProxy) <a rel="nofollow" target="_blank" title="超链接语法&amp;#65306;
+评论中的网址&amp;#65292;如果两端是空格或换行&amp;#65292;评论发布后会自动变成可点击的超链接&amp;#12290;
+
+&amp;#65288;网址必须以 http:// 或 https:// 开头&amp;#65289;" href="https://fanwall.info/p/" class="bbcode simple">https://fanwall.info/p/</a><br>(CGIProxy) <a rel="nofollow" target="_blank" title="超链接语法&amp;#65306;
+评论中的网址&amp;#65292;如果两端是空格或换行&amp;#65292;评论发布后会自动变成可点击的超链接&amp;#12290;
+
+&amp;#65288;网址必须以 http:// 或 https:// 开头&amp;#65289;" href="https://fanwall.info/alpha/" class="bbcode simple">https://fanwall.info/alpha/</a></p><span id="bc_0_325MN" class="comment-actions secondary-text" kind="m"><a kind="i" href="javascript:;" target="_self" o="r">回复79楼</a><span class="item-control blog-admin pid-1195360674"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=8405700451301782357">删除79楼</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_325BR" class="comment-replies"><span id="bc_0_325b+seedFFD" kind="d"><div id="bc_0_326T" class="comment-thread inline-thread" kind="t" t="0" u="0"><span id="bc_0_326TT" class="thread-toggle thread-expanded" kind="g"><span id="bc_0_326TA" class="thread-arrow"></span><span id="bc_0_326TN" class="thread-count"><span id="bc_0_326TNT" style="display: none;">0</span><span id="bc_0_326TNU" style="display: none;"></span><a href="javascript:;" target="_self">Replies</a><div id="bc_0_326TD" class="thread-dropContainer thread-expanded"><span class="thread-drop"></span></div></span></span><ol id="bc_0_326TC" class="thread-chrome thread-expanded" unselectable="on"><div style="zoom:1" unselectable="on"><li id="bc_0_326B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/b36-rounded.png"></div><div id="c2636444630397749686" class="comment-block"><div id="bc_0_326M" class="comment-header" kind="m"><cite class="user"><a rel="nofollow" href="http://www.blogger.com/profile/08853123019167798224">v998</a></cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413079827218">十月 12, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1413079827218">79楼 1单元</a></div><p id="bc_0_326MC" class="comment-content">為甚麼不用Glype?</p><span id="bc_0_326MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1429061783"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=2636444630397749686">删除1单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_326BR" class="comment-replies"></div><div id="bc_0_326B_box" class="comment-replybox-single"></div></li></div><div id="bc_0_326I" class="continue" kind="ci"><a href="javascript:;" target="_self">回复79楼</a></div></ol><div id="bc_0_326T_box" class="comment-replybox-thread"></div></div></span></div><div id="bc_0_325B_box" class="comment-replybox-single"></div></li><li id="bc_0_345B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c1034093341272437433" class="comment-block"><div id="bc_0_345M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413189647660">十月 13, 2014</a></span><a style="font-size: 125%;" class="counter" href="2014/10/weekly-share-74.md?comment=1413189647660">80楼</a></div><p id="bc_0_345MC" class="comment-content">求一本对世界主要宗教介绍的入门书，最近对宗教有点兴趣，希望书比较权威，比较深入浅出，比较客观。相当于《全球通史》之于历史，《形而上学的迷雾》之于哲学。</p><span id="bc_0_345MN" class="comment-actions secondary-text" kind="m"><a kind="i" href="javascript:;" target="_self" o="r">回复80楼</a><span class="item-control blog-admin pid-1388235745"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=1034093341272437433">删除80楼</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_345BR" class="comment-replies"></div><div id="bc_0_345B_box" class="comment-replybox-single"></div></li><li id="bc_0_347B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/photo.png"></div><div id="c367585170780682773" class="comment-block"><div id="bc_0_347M" class="comment-header" kind="m"><cite class="user"><a rel="nofollow" href="http://www.blogger.com/profile/11275317159378783280">守夜人</a></cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413212444239">十月 13, 2014</a></span><a style="font-size: 125%;" class="counter" href="2014/10/weekly-share-74.md?comment=1413212444239">81楼</a></div><p id="bc_0_347MC" class="comment-content">（由于评论无法加载，就裸回复好了）<br>求一本对世界主要宗教介绍的入门书，最近对宗教有点兴趣，希望书比较权威，比较深入浅出，比较客观。相当于《全球通史》之于历史，《形而上学的迷雾》之于哲学。<br>--------------------------<br>鄙人不才，对宗教神学啥的一点儿都不了解，对无神论体系也不了解，但昨天还是发现了一些资料，可以给出一个参考，不过我先说明，这些资料是有立场的，是一位批判中医，批判宗教的人士所整理。看的时候，自己心里有数即可。<br><br>《科学、进化与神创论Science, Evolution, and Creationism》，美国科学院，美国医学科学院编写的，这个报告要是不权威，那就没有权威的了。<br><br>《上帝的迷思》，这本书的立场非常明显，有很强烈的倾向。批判了宗教恐怖主义。<br><br>《道德与神圣》描写了跟宗教有关的道德变迁，作者是中国人，看目录就知道，谈古论今型的。<br><br>我表明我的态度，我过去是有神论者，也曾经受到过宗教和泛宗教观点的影响，接触了心理学和逻辑学之后，看穿了宗教利用心理效应和认知盲区来“糊弄”人的把戏之后，就变成了不可知论者。<br><br>我本人对所有的古典宗教——基督教，伊斯兰和佛教这三大体系及其分支都没有恶感（恐怖主义除外），毕竟经过千百年的沉淀，已经内化成文化的一部分。<br><br>但
+我对新兴宗教保持相当的警惕，而且我能确定他们百分之百说的都是假的，比如外星人，灵修之类的，新型教派，不管是跟佛有关，跟耶稣有关，跟外星人有关，他
+们影响人的手段比古典宗教更加赤裸裸，因为没有文化氛围，只能通过这种方法达到其目的。这类宗教有些不危害社会，而有些会危害社会。<br><br>看宗
+教，主要不在于逻辑思维（不是很需要），而是在于对人类的思维缺陷有多了解，了解人类容易犯的思维谬误，就能够知道宗教，商品营销，对话中的诡辩，演讲中
+的煽情等思维陷阱，不仅仅是宗教这一块，更不是某一种宗教，这是当前最需要建立的反思类型的思维，光批判某一事物没啥用，得承认自己的认知功能有缺陷才是
+第一位的。</p><span id="bc_0_347MN" class="comment-actions secondary-text" kind="m"><a kind="i" href="javascript:;" target="_self" o="r">回复81楼</a><span class="item-control blog-admin pid-1433208295"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=367585170780682773">删除81楼</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_347BR" class="comment-replies"><span id="bc_0_347b+seedFcD" kind="d"><div id="bc_0_349T" class="comment-thread inline-thread" kind="t" t="0" u="0"><span id="bc_0_349TT" class="thread-toggle thread-expanded" kind="g"><span id="bc_0_349TA" class="thread-arrow"></span><span id="bc_0_349TN" class="thread-count"><span id="bc_0_349TNT" style="display: none;">0</span><span id="bc_0_349TNU" style="display: none;"></span><a href="javascript:;" target="_self">Replies</a><div id="bc_0_349TD" class="thread-dropContainer thread-expanded"><span class="thread-drop"></span></div></span></span><ol id="bc_0_349TC" class="thread-chrome thread-expanded" unselectable="on"><div style="zoom:1" unselectable="on"><li id="bc_0_349B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c6468639359619424206" class="comment-block"><div id="bc_0_349M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413225213316">十月 14, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1413225213316">81楼 1单元</a></div><p id="bc_0_349MC" class="comment-content">首先说一句，点击最新评论后加载的评论有可能失败，但是直接进入文章的方式大部分都是能正常工作的。</p><span id="bc_0_349MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1406162312"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=6468639359619424206">删除1单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_349BR" class="comment-replies"></div><div id="bc_0_349B_box" class="comment-replybox-single"></div></li><li id="bc_0_350B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c8870973378868105452" class="comment-block"><div id="bc_0_350M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413226155425">十月 14, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1413226155425">81楼 2单元</a></div><p id="bc_0_350MC" class="comment-content">古典宗教在创立当初都是新兴宗教，也不乏受到迫害，从外面的人看来都是胡说八道，可为什么现在成了“文化的一部分”呢？<br><br>纯粹用科学解读宗教，是无神论者最容易犯的错误。<br>世
+界范围内那么多心理学家，可是有几个是中国人，又有多少是信教的？牛顿晚年也致力于证明第一推动力的存在——别笑，我知道宇宙运行并不需要第一推动力，但
+是先告诉我为什么这些星体会出现在现在的位置，拥有现在的轨道。现代科学也只能把宇宙演化之前的状态这一难解的命题推卸给混沌理论，但混沌理论本身不就非
+常近似于神的存在吗？或者说，为什么会出现物理法则？有观点就认为物理法则本身就是神或神的化身。<br>搞了半天，自己也在用科学来说宗教，唉。</p><span id="bc_0_350MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1406162312"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=8870973378868105452">删除2单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_350BR" class="comment-replies"></div><div id="bc_0_350B_box" class="comment-replybox-single"></div></li><li id="bc_0_352B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c4984310565453983087" class="comment-block"><div id="bc_0_352M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413253336265">十月 14, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1413253336265">81楼 3单元</a></div><p id="bc_0_352MC" class="comment-content">科学家们所谈的上帝和宗教里的上帝不同，宗教的上帝是人格化的上帝。<br>宗教里的上帝既是全能的，又是至善的。<br>如果上帝真的是既全能又至善的，那上帝为何没能做到使世界没有恶？如果是上帝力所不及，那祂就不是全能的神；如果是上帝有意让世间容有不善，那祂就不是至善的神。<br>所以科学所说的这个上帝，祂也只是创生了万物而己，却绝不是一个赏善罚恶的具有人格的神，祂其实就是《道德经》上所说的生一生二生万物的“道”</p><span id="bc_0_352MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-328836503"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=4984310565453983087">删除3单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_352BR" class="comment-replies"></div><div id="bc_0_352B_box" class="comment-replybox-single"></div></li><li id="bc_0_353B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c587932003306714676" class="comment-block"><div id="bc_0_353M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413253500967">十月 14, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1413253500967">81楼 4单元</a></div><p id="bc_0_353MC" class="comment-content">谢谢您的推荐，我会去看看的。</p><span id="bc_0_353MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-546305428"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=587932003306714676">删除4单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_353BR" class="comment-replies"></div><div id="bc_0_353B_box" class="comment-replybox-single"></div></li><li id="bc_0_410B" class="comment" kind="b"><div class="avatar-image-container"><img src="http://lh6.googleusercontent.com/-fpaYncBYqKs/Th477aX8reI/AAAAAAAAAco/nkud5M9T64w/s48/Thinker.jpg"></div><div id="c2237668240111078182" class="comment-block"><div id="bc_0_410M" class="comment-header" kind="m"><cite class="user blog-author"><a rel="nofollow" href="http://www.blogger.com/profile/11741356469378252621">编程随想</a></cite><span class="icon user blog-author"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413467697413">十月 16, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1413467697413">81楼 5单元</a></div><p id="bc_0_410MC" class="comment-content">TO 守夜人<br>多谢推荐书籍 :)<br><br>关于“宗教与科学”方面的书籍，俺想起一本《上帝与新物理学》<br>作为一名“物理学爱好者”，俺对此书 印象不错。<br>此书开头部分就专门提及“宗教和科学”。<br>另外也谈及了若干哲学领域的话题（比如：自由意志、自我、精神）</p><span id="bc_0_410MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1582521586"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=2237668240111078182">删除5单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_410BR" class="comment-replies"></div><div id="bc_0_410B_box" class="comment-replybox-single"></div></li><li id="bc_0_411B" class="comment" kind="b"><div class="avatar-image-container"><img src="http://lh6.googleusercontent.com/-fpaYncBYqKs/Th477aX8reI/AAAAAAAAAco/nkud5M9T64w/s48/Thinker.jpg"></div><div id="c8661991136819486902" class="comment-block"><div id="bc_0_411M" class="comment-header" kind="m"><cite class="user blog-author"><a rel="nofollow" href="http://www.blogger.com/profile/11741356469378252621">编程随想</a></cite><span class="icon user blog-author"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413468191632">十月 16, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1413468191632">81楼 6单元</a></div><p id="bc_0_411MC" class="comment-content">TO 1单元的网友<br>多谢反馈 :)<br>你提到的情况，在之前（10月5日之前）确实存在。<br>后来俺修复了 Bug，应该没有这个问题了。<br>如今，从“最新评论”点击跳转，效果等同于“直接点击博文的链接”。<br><br>如果是评论加载不出来，通常是跟网络环境有关，导致加载失败。</p><span id="bc_0_411MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1582521586"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=8661991136819486902">删除6单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_411BR" class="comment-replies"></div><div id="bc_0_411B_box" class="comment-replybox-single"></div></li></div><div id="bc_0_349I" class="continue" kind="ci"><a href="javascript:;" target="_self">回复81楼</a></div></ol><div id="bc_0_349T_box" class="comment-replybox-thread"></div></div></span></div><div id="bc_0_347B_box" class="comment-replybox-single"></div></li><li id="bc_0_354B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c5976023166275775238" class="comment-block"><div id="bc_0_354M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413270373639">十月 14, 2014</a></span><a style="font-size: 125%;" class="counter" href="2014/10/weekly-share-74.md?comment=1413270373639">82楼</a></div><p id="bc_0_354MC" class="comment-content">政
+治的本質是社會管理   老子道德經裏說政善治  即是說政治的有益之處是治理   是一種社會管理   在國家形態出現之前   
+社會管理主要表現爲對自然人際方面的協調    在國家形態出現以後   社會管理就主要表現爲國家行政方面的管理   從這個意義上來講   
+政治是一個褒義詞    但是   由於大多數民衆與生俱來的懶惰性依賴性以及僥性心理   在把社會管理的權力讓渡給一小部分管理者以後    
+並沒有積極努力地建立起回收所讓渡權力的機制    這就導致讓渡出去的社會管理權力無法有效回收   從而被別有用心的管理者所濫用   
+這些社會管理者就逐漸蛻變成爲專制統治者   這就是專制政治的由來    相比較而言  民主政治對於被民衆讓渡出去的社會管理權力具備有效的回收機制
+  別有用心管理者的濫用也無法形成專制統治  從而能促進社會的可持續發展</p><span id="bc_0_354MN" class="comment-actions secondary-text" kind="m"><a kind="i" href="javascript:;" target="_self" o="r">回复82楼</a><span class="item-control blog-admin pid-746196338"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=5976023166275775238">删除82楼</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_354BR" class="comment-replies"><span id="bc_0_354b+seedFiD" kind="d"><div id="bc_0_355T" class="comment-thread inline-thread" kind="t" t="0" u="0"><span id="bc_0_355TT" class="thread-toggle thread-expanded" kind="g"><span id="bc_0_355TA" class="thread-arrow"></span><span id="bc_0_355TN" class="thread-count"><span id="bc_0_355TNT" style="display: none;">0</span><span id="bc_0_355TNU" style="display: none;"></span><a href="javascript:;" target="_self">Replies</a><div id="bc_0_355TD" class="thread-dropContainer thread-expanded"><span class="thread-drop"></span></div></span></span><ol id="bc_0_355TC" class="thread-chrome thread-expanded" unselectable="on"><div style="zoom:1" unselectable="on"><li id="bc_0_355B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c5046494251338085123" class="comment-block"><div id="bc_0_355M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413271426896">十月 14, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1413271426896">82楼 1单元</a></div><p id="bc_0_355MC" class="comment-content">專制政治得以存在的統治基礎是大多數民衆與生俱來的懶惰性依賴性以及僥性心理    只有民衆克服懶惰性依賴性以及僥性心理   積極努力地建立起回收所讓渡權力的機制   專制政治才會消亡</p><span id="bc_0_355MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1987419211"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=5046494251338085123">删除1单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_355BR" class="comment-replies"></div><div id="bc_0_355B_box" class="comment-replybox-single"></div></li><li id="bc_0_359B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c5484509898166036103" class="comment-block"><div id="bc_0_359M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413272537124">十月 14, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1413272537124">82楼 2单元</a></div><p id="bc_0_359MC" class="comment-content">这从一开始就是民主的想法。<br>专制的思想应该是：你（臣民）的的权利是我（天子）赐予你的。<br>意识到政权其实是人民给的以后，民主的思想就产生了。<br>这就是社会契约论嘛。</p><span id="bc_0_359MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1406162312"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=5484509898166036103">删除2单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_359BR" class="comment-replies"></div><div id="bc_0_359B_box" class="comment-replybox-single"></div></li><li id="bc_0_362B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c315315526135534338" class="comment-block"><div id="bc_0_362M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413274697196">十月 14, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1413274697196">82楼 3单元</a></div><p id="bc_0_362MC" class="comment-content">说的没错，政权本来是从人权出来的。</p><span id="bc_0_362MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-968362347"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=315315526135534338">删除3单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_362BR" class="comment-replies"></div><div id="bc_0_362B_box" class="comment-replybox-single"></div></li></div><div id="bc_0_355I" class="continue" kind="ci"><a href="javascript:;" target="_self">回复82楼</a></div></ol><div id="bc_0_355T_box" class="comment-replybox-thread"></div></div></span></div><div id="bc_0_354B_box" class="comment-replybox-single"></div></li><li id="bc_0_356B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c6350590828437895699" class="comment-block"><div id="bc_0_356M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413272073646">十月 14, 2014</a></span><a style="font-size: 125%;" class="counter" href="2014/10/weekly-share-74.md?comment=1413272073646">83楼</a></div><p id="bc_0_356MC" class="comment-content">基督教并没有说神一定要让世界没有恶，相反，必要之恶（NECESSARIUS）一词就是他们发明的。<br>那什么万能的上帝能不能创造出一块他搬不动的石头并不是这么用的。</p><span id="bc_0_356MN" class="comment-actions secondary-text" kind="m"><a kind="i" href="javascript:;" target="_self" o="r">回复83楼</a><span class="item-control blog-admin pid-1406162312"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=6350590828437895699">删除83楼</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_356BR" class="comment-replies"><span id="bc_0_356b+seedFkD" kind="d"><div id="bc_0_357T" class="comment-thread inline-thread" kind="t" t="0" u="0"><span id="bc_0_357TT" class="thread-toggle thread-expanded" kind="g"><span id="bc_0_357TA" class="thread-arrow"></span><span id="bc_0_357TN" class="thread-count"><span id="bc_0_357TNT" style="display: none;">0</span><span id="bc_0_357TNU" style="display: none;"></span><a href="javascript:;" target="_self">Replies</a><div id="bc_0_357TD" class="thread-dropContainer thread-expanded"><span class="thread-drop"></span></div></span></span><ol id="bc_0_357TC" class="thread-chrome thread-expanded" unselectable="on"><div style="zoom:1" unselectable="on"><li id="bc_0_357B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c1840714887097520120" class="comment-block"><div id="bc_0_357M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413272126068">十月 14, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1413272126068">83楼 1单元</a></div><p id="bc_0_357MC" class="comment-content">又回错了……应该是81楼的回复</p><span id="bc_0_357MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1406162312"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=1840714887097520120">删除1单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_357BR" class="comment-replies"></div><div id="bc_0_357B_box" class="comment-replybox-single"></div></li><li id="bc_0_364B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c2268206927968620311" class="comment-block"><div id="bc_0_364M" class="comment-header" kind="m"><cite class="user">本评论注定被吃</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413279938919">十月 14, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1413279938919">83楼 2单元</a></div><p id="bc_0_364MC" class="comment-content">对于人来说，必要之恶是为了抵御更大的恶。<br>对于全能的神，必要之恶有什么必要。</p><span id="bc_0_364MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1669135952"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=2268206927968620311">删除2单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_364BR" class="comment-replies"></div><div id="bc_0_364B_box" class="comment-replybox-single"></div></li><li id="bc_0_417B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c658871784133635922" class="comment-block"><div id="bc_0_417M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413471788288">十月 16, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1413471788288">83楼 3单元</a></div><p id="bc_0_417MC" class="comment-content">全能的神也架不住巴别塔的挑战，迫不得已对祂自己的创造物下手，这不就是必要之恶的例子吗？</p><span id="bc_0_417MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1406162312"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=658871784133635922">删除3单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_417BR" class="comment-replies"></div><div id="bc_0_417B_box" class="comment-replybox-single"></div></li><li id="bc_0_420B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c3018338495834063786" class="comment-block"><div id="bc_0_420M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413515424361">十月 17, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1413515424361">83楼 4单元</a></div><p id="bc_0_420MC" class="comment-content">全能的神为何要创造出能挑战祂自己的人？既然全能又为何架不住巴别塔的挑战？<br>    也许是祂自己就喜欢这样吧，对于全能的神，必要的恶就是要让世人信我者昌，疑我者亡，且不得好死。<br>在《文革三大屠杀》中这样提到基督教：<br>
+    
+中世纪宗教裁判不仅其最终的目的也是为了维系神明的崇高、禁绝各种可能的异端和渎神，而且其残酷性亦是最直接地从"无限崇拜"发源的，所以人们指出：上帝
+是第一宗教裁判员，"比较而言，后来最残酷的宗教裁判员也无不比上帝本人还要仁慈得多。"１８世纪法国启蒙主义思想家的结论是："上帝生性是大慈大悲的，
+但非常重要的是：不知不觉地使他变得比魔鬼还凶狠"。与"文革"一样，以维系"无限崇拜"为基本目的的宗教裁判制度不仅发明了无数令人发指的迫害异端、剿
+灭"牛鬼蛇神"的酷刑虐法，而且尤其要把这种残酷的迫害作为全民族最神圣的节日，所以当时就往往要以烧死异端者们的火刑仪式作为庆祝贵族婚礼的盛大典礼。
+在类似于宗教裁判神圣法典的《巫士的铁槌》一书中，详细制定了剿灭异端和所谓"女巫"的一系列残酷法律和无所不在的天罗地网：<br>　　凡属女巫案件，
+教会法庭、世俗国家法庭都可以审理；……为使被告承认犯巫术罪，可以先口头威胁，威胁无效，便进行刑讯。轻刑无效可施以重刑，第一天刑讯无效，第二、第三
+天可继续进行。……如果被告拒不承认犯巫术罪，最后即便没有口供，主教与法官也可判她为"不肯改悔的异端分子"，交付国家法庭处死。<br>······<br>费
+尔巴哈深刻地指出了"无限信仰"与残酷野蛮之间的必然联系：信仰包含有一个凶恶的本质。基督教式的信仰是基督教式的迫害异端与处决异端者之至高无上的根
+据。……在信仰看来，一切义务之基础是对上帝的信仰---信仰是绝对的义务，而那些对人应该尽的义务却只是派生的、从属的义务。这样，不信者乃是……理应
+歼灭掉的主体。凡是否定上帝的东西，本身也就必须被否定。最高的犯罪，就是冒犯上帝的尊严。在信仰看来，上帝是一位人格式的、最最人格式的、最最不可冒
+犯、最最有权有势的存在者。……从而，对最高人格的伤害，就必然是最高的犯罪了。……异端、不信---异端只是不明确的、有限的不信--乃是亵渎神明，从
+而是最高的、最应当惩罚的犯罪。从无数多个例子中随便举一个。厄谷朗巴第乌斯给塞尔维托写到："……在一切别的事情上面我都将是温和的，惟独见到有亵渎基
+督我就忍耐不住。"……这种仇恨，起源于无限制的信仰之本质。<br>    
+费尔巴哈还指出，这种由"无限信仰"导致的野蛮残暴不仅统治着外在的世界，而且更不断塑造和膨胀着包括偏执、疯狂、专制欲、迫害欲、盲目的仇恨等等残忍的
+内在心理：信仰在本质上是具有党派性的。谁不是为了基督，那谁就是反对基督。泼但说："一个巫道，即是并没有带来什么损害，……可是，就是因为他抛弃上帝
+而与魔鬼勾结，也即有损上帝的尊严，故而就应当活活地被烧死。"路德说："想杀人并不像不信那么罪大恶极，因为，杀人是违反第五条诫命，而不信却是违反第
+一条，并且是最大一条诫命。"<br>　　诸如此类在"无限信仰"的虔心驱使下而对异端的摧残能够达到何等令人发指的程度，这在西方中世纪宗教史上曾有过无数的例子，比如法国作家雨果的控诉：<br>格
+尔伦斯岛最后一次火烧巫师是在一七四七年。那是在市内一个名叫波达日的广场上面举行的。……通常罪人是认罪的。人们用苦刑帮助他们招供了罪行。波达日广场
+对于社会和宗教，还尽了别的义务，他们在那里也烧死了许多信奉邪教的人。……其中有一个母亲和她的两个女儿，……女儿当中有一个怀了孕，她在柴堆的火炭上
+面生产了。据史书记载："她的肚腹爆裂。"一个活生生的孩子从火堆上滚了下来；……著名的执法官、虔诚的天主教徒黑里页•哥斯南，叫人把孩子再丢进火堆
+里。<br>    “全能的神”同样也在印度犯下了巨大的“必要之恶”，为了上帝的荣耀，信徒们烧杀抢无恶不作。这些虽非基督教信徒所为，但其所信仰的“上帝”仍是和基督徒共同的上帝，在这个仁慈的上帝的指引下，信徒们一样有着喜欢烧死异教徒和彻底毁灭异教的行为。</p><span id="bc_0_420MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-328836503"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=3018338495834063786">删除4单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_420BR" class="comment-replies"></div><div id="bc_0_420B_box" class="comment-replybox-single"></div></li><li id="bc_0_421B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c1207406811961792378" class="comment-block"><div id="bc_0_421M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413518238787">十月 17, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1413518238787">83楼 5单元</a></div><p id="bc_0_421MC" class="comment-content">作为精神鸦片，基督教还是实现文化征服及为殖民服务的有效工具。在中国，有识之士如是说：<br>中国人尽力与欧美日本人周旋已几十年了。始而讥我闭关，我则开关以纳之。纳入之后，客便不断的侵略主人。既已鸦片毒药害及我身体。又以天主耶稣害及我精神。以兵凌，以利诱，其恶不胜枚举。（《李璜：释国家主义》）<br>南美某小国一牧师也这样说过：起初他们手里只有《圣经》，我们有土地；现在他们有土地，而我们手里捧着《圣经》。<br><br>基督教宣扬爱、劝人从善，其实这只是个“糖衣”，在接受这份“糖衣”的同时一定要对其西化他国的图谋保持必要的警惕！基督教企图在在不知不觉中对中国的文化渗透行为，也幸赖有识之士的早发现早挽救，才不致于使其扩大化：<br>“十
+三年七月中华教育社在南京开年会，我和余家菊联合十余人共同提出收回教育权案与教会派激烈争论两日，始得多数通过。大旨为教育应由本国人自办，宗教应与教
+育分离不许外国在中国制造教民的教会学校存在，致丧失了主权，破坏了教育。……十四年五卅惨案发生，独教会学校不许学生自由参与爱国运动，使收回教育权的
+主张在事实上更感必要，无论何人必要来推进这个运动了。……推进这种运动的人自然不只我们，不过发动这个运动的是我们，继续不断的参加这个运动的是我，以
+事要彻底完成这个运动的，那就希望不只是我们。”（《近代国家主义运动史》）<br><br>就连现今的西人自己也对精神鸦片有所提防：<br>2004
+年2月10日，法国国民大会以压倒性攻势通过了“严禁在公共场所佩戴明显的宗教标志，包括伊斯兰的头巾，基督徒的大型十字架等等，学生违反此法的，可被学
+校开除”的法案。在土耳其伊斯坦布大学，一位女生因为戴着面纱，用长袍包裹自己身体去上课，而被校长勒令：“如果她不把头巾、长袍去掉，就不许她上课”。
+这们女生向欧洲人法院提起诉讼，法院认为她所在大学的校长根据政教分离原则做出的决定没有侵犯她个人的自由，而是制止土耳某些极端组织把自己禁令强加给大
+家的做法，驳回了她的请求。<br><br>如果宗教没有胡说八道在里边，为什么现在成了“文化的一部分”的宗教却要受到西方人的如此对待呢？</p><span id="bc_0_421MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-328836503"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=1207406811961792378">删除5单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_421BR" class="comment-replies"></div><div id="bc_0_421B_box" class="comment-replybox-single"></div></li><li id="bc_0_422B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c264492648850392476" class="comment-block"><div id="bc_0_422M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413518550968">十月 17, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1413518550968">83楼 6单元</a></div><p id="bc_0_422MC" class="comment-content">才发的帖子又给吃了？把我的帖子变成了不完整的回复了</p><span id="bc_0_422MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-328836503"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=264492648850392476">删除6单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_422BR" class="comment-replies"></div><div id="bc_0_422B_box" class="comment-replybox-single"></div></li><li id="bc_0_423B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c2109837291251486161" class="comment-block"><div id="bc_0_423M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413531001851">十月 17, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1413531001851">83楼 7单元</a></div><p id="bc_0_423MC" class="comment-content">4单元帖子恢复了，感谢！<br>纠正5单元的错误，其中一句改为：这位女生（穿戴面纱长袍的土耳其女生）向欧洲人权法院提起诉讼；<br>另一句“以事要彻底完成这个运动的”应为“以后要彻底完成这个运动的”（中国青年党收回教育权的言论一段）</p><span id="bc_0_423MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-328836503"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=2109837291251486161">删除7单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_423BR" class="comment-replies"></div><div id="bc_0_423B_box" class="comment-replybox-single"></div></li><li id="bc_0_424B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c2831845222173241768" class="comment-block"><div id="bc_0_424M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413545916331">十月 17, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1413545916331">83楼 8单元</a></div><p id="bc_0_424MC" class="comment-content">你这样说就和共党诋毁西方没有任何差别</p><span id="bc_0_424MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1406162312"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=2831845222173241768">删除8单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_424BR" class="comment-replies"></div><div id="bc_0_424B_box" class="comment-replybox-single"></div></li></div><div id="bc_0_357I" class="continue" kind="ci"><a href="javascript:;" target="_self">回复83楼</a></div></ol><div id="bc_0_357T_box" class="comment-replybox-thread"></div></div></span></div><div id="bc_0_356B_box" class="comment-replybox-single"></div></li><li id="bc_0_365B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c4685706276628296258" class="comment-block"><div id="bc_0_365M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413285589678">十月 14, 2014</a></span><a style="font-size: 125%;" class="counter" href="2014/10/weekly-share-74.md?comment=1413285589678">84楼</a></div><p id="bc_0_365MC" class="comment-content">贵州万人上街抗议　警出动装甲车镇压<br><a rel="nofollow" target="_blank" title="超链接语法&amp;#65306;
+评论中的网址&amp;#65292;如果两端是空格或换行&amp;#65292;评论发布后会自动变成可点击的超链接&amp;#12290;
+
+&amp;#65288;网址必须以 http:// 或 https:// 开头&amp;#65289;" href="http://www.appledaily.com.tw/realtimenews/article/international/20141013/487140/" class="bbcode simple">http://www.appledaily.com.tw/realtimenews/article/international/20141013/487140/</a></p><span id="bc_0_365MN" class="comment-actions secondary-text" kind="m"><a kind="i" href="javascript:;" target="_self" o="r">回复84楼</a><span class="item-control blog-admin pid-1865677198"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=4685706276628296258">删除84楼</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_365BR" class="comment-replies"></div><div id="bc_0_365B_box" class="comment-replybox-single"></div></li><li id="bc_0_366B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/b36-rounded.png"></div><div id="c6330208541271831095" class="comment-block"><div id="bc_0_366M" class="comment-header" kind="m"><cite class="user"><a rel="nofollow" href="http://www.blogger.com/profile/08853123019167798224">v998</a></cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413285960509">十月 14, 2014</a></span><a style="font-size: 125%;" class="counter" href="2014/10/weekly-share-74.md?comment=1413285960509">85楼</a></div><p id="bc_0_366MC" class="comment-content">可否加个print mode, 现在的都不是printing-friendly(例如右边的nav bar), <br>我是指像wiki一样的page for printing...</p><span id="bc_0_366MN" class="comment-actions secondary-text" kind="m"><a kind="i" href="javascript:;" target="_self" o="r">回复85楼</a><span class="item-control blog-admin pid-1429061783"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=6330208541271831095">删除85楼</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_366BR" class="comment-replies"><span id="bc_0_366b+seedGYD" kind="d"><div id="bc_0_409T" class="comment-thread inline-thread" kind="t" t="0" u="0"><span id="bc_0_409TT" class="thread-toggle thread-expanded" kind="g"><span id="bc_0_409TA" class="thread-arrow"></span><span id="bc_0_409TN" class="thread-count"><span id="bc_0_409TNT" style="display: none;">0</span><span id="bc_0_409TNU" style="display: none;"></span><a href="javascript:;" target="_self">Replies</a><div id="bc_0_409TD" class="thread-dropContainer thread-expanded"><span class="thread-drop"></span></div></span></span><ol id="bc_0_409TC" class="thread-chrome thread-expanded" unselectable="on"><div style="zoom:1" unselectable="on"><li id="bc_0_409B" class="comment" kind="b"><div class="avatar-image-container"><img src="http://lh6.googleusercontent.com/-fpaYncBYqKs/Th477aX8reI/AAAAAAAAAco/nkud5M9T64w/s48/Thinker.jpg"></div><div id="c1976798709632339148" class="comment-block"><div id="bc_0_409M" class="comment-header" kind="m"><cite class="user blog-author"><a rel="nofollow" href="http://www.blogger.com/profile/11741356469378252621">编程随想</a></cite><span class="icon user blog-author"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413466825596">十月 16, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1413466825596">85楼 1单元</a></div><p id="bc_0_409MC" class="comment-content">TO v998<br>多谢提建议 :)<br>今天发的博文《<a rel="nofollow" target="_blank" title="超链接语法&amp;#65306;
+[url=网址]标题文字[/url]
+
+&amp;#65288;网址必须以 http:// 或 https:// 开头&amp;#65289;
+
+&amp;#65288;文字部分&amp;#12304;不要&amp;#12305;使用如下的半角符号&amp;#65292;需要的话&amp;#65292;改用全角符号&amp;#65289;
+\ &lt; &gt; ( ) ' &quot; &amp; # $ %" href="2014/10/custom-blogger-ui.md" class="bbcode with-text">博客界面升级——增加“界面定制”、“文章目录”、“自动刷评论”、“全屏显示”等</a>》中，有谈到你这条建议。<br><br>目前已经提供“全屏显示”的功能，至少比原先更接近 Printer-Friendly 了</p><span id="bc_0_409MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1582521586"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=1976798709632339148">删除1单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_409BR" class="comment-replies"></div><div id="bc_0_409B_box" class="comment-replybox-single"></div></li></div><div id="bc_0_409I" class="continue" kind="ci"><a href="javascript:;" target="_self">回复85楼</a></div></ol><div id="bc_0_409T_box" class="comment-replybox-thread"></div></div></span></div><div id="bc_0_366B_box" class="comment-replybox-single"></div></li><li id="bc_0_368B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/b36-rounded.png"></div><div id="c1650515819776240130" class="comment-block"><div id="bc_0_368M" class="comment-header" kind="m"><cite class="user"><a rel="nofollow" href="http://www.blogger.com/profile/11135393746462565830">Liu Yiteng</a></cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413298530662">十月 14, 2014</a></span><a style="font-size: 125%;" class="counter" href="2014/10/weekly-share-74.md?comment=1413298530662">86楼</a></div><p id="bc_0_368MC" class="comment-content">官方消息，占中被清场</p><span id="bc_0_368MN" class="comment-actions secondary-text" kind="m"><a kind="i" href="javascript:;" target="_self" o="r">回复86楼</a><span class="item-control blog-admin pid-1476338144"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=1650515819776240130">删除86楼</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_368BR" class="comment-replies"><span id="bc_0_368b+seedFxD" kind="d"><div id="bc_0_370T" class="comment-thread inline-thread" kind="t" t="0" u="0"><span id="bc_0_370TT" class="thread-toggle thread-expanded" kind="g"><span id="bc_0_370TA" class="thread-arrow"></span><span id="bc_0_370TN" class="thread-count"><span id="bc_0_370TNT" style="display: none;">0</span><span id="bc_0_370TNU" style="display: none;"></span><a href="javascript:;" target="_self">Replies</a><div id="bc_0_370TD" class="thread-dropContainer thread-expanded"><span class="thread-drop"></span></div></span></span><ol id="bc_0_370TC" class="thread-chrome thread-expanded" unselectable="on"><div style="zoom:1" unselectable="on"><li id="bc_0_370B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/b36-rounded.png"></div><div id="c1566346883177495704" class="comment-block"><div id="bc_0_370M" class="comment-header" kind="m"><cite class="user"><a rel="nofollow" href="http://www.blogger.com/profile/08853123019167798224">v998</a></cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413301459027">十月 14, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1413301459027">86楼 1单元</a></div><p id="bc_0_370MC" class="comment-content">这是哪来的消息,<br>你不如先看比较和谐的<del title="删除线语法&amp;#65306;
+[del]带删除线的文字[/del]
+
+&amp;#65288;文字部分&amp;#12304;不要&amp;#12305;使用如下的半角符号&amp;#65292;需要的话&amp;#65292;改用全角符号&amp;#65289;
+\ &lt; &gt; ( ) ' &quot; &amp; # $ %">CC</del>TVB吧...<br>现在警察都不敢清...</p><span id="bc_0_370MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1429061783"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=1566346883177495704">删除1单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_370BR" class="comment-replies"></div><div id="bc_0_370B_box" class="comment-replybox-single"></div></li><li id="bc_0_372B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/b36-rounded.png"></div><div id="c8184376691421734520" class="comment-block"><div id="bc_0_372M" class="comment-header" kind="m"><cite class="user"><a rel="nofollow" href="http://www.blogger.com/profile/08853123019167798224">v998</a></cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413302353277">十月 14, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1413302353277">86楼 2单元</a></div><p id="bc_0_372MC" class="comment-content">更正一下, 是: 现在警察都说不是清场...</p><span id="bc_0_372MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1429061783"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=8184376691421734520">删除2单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_372BR" class="comment-replies"></div><div id="bc_0_372B_box" class="comment-replybox-single"></div></li><li id="bc_0_374B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c5161853874076566968" class="comment-block"><div id="bc_0_374M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413316276836">十月 15, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1413316276836">86楼 3单元</a></div><p id="bc_0_374MC" class="comment-content">是在清场。都赶到添马公园去了。</p><span id="bc_0_374MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-261298401"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=5161853874076566968">删除3单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_374BR" class="comment-replies"></div><div id="bc_0_374B_box" class="comment-replybox-single"></div></li><li id="bc_0_376B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c4547810801391668399" class="comment-block"><div id="bc_0_376M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413338519322">十月 15, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1413338519322">86楼 4单元</a></div><p id="bc_0_376MC" class="comment-content">TO v998<br>你们的意思是非要上装甲车、坦克才叫清场吗？从一开始用暴力手段（即便是非致命性武器）驱散学生、镇压行动时就已经是在清场了。单是胡椒喷雾、催泪弹就够难受了。<br>大陆大部分民众似乎都对实行民主的地方的政府缺乏警惕和批判，纷纷都拿腐烂（已独裁）的和将要腐烂（相对于民主，但还没烂透）的作对比，然后一味的去赞美、歌颂将要腐烂的政府（包括博主在内也是这样），都陷入光环效应了。<br><br>有些不同意见去批评（比如上面这句话），可能又要说成是网评员或体制的顺从者了吧！   还是欠缺宽容啊<br>（让我想起爱因斯坦那句名言：“法律本身并不能保证言论自由；要做到这一点，必需要所有的人都有着包容的心。）<br><br></p><span id="bc_0_376MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-438163549"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=4547810801391668399">删除4单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_376BR" class="comment-replies"></div><div id="bc_0_376B_box" class="comment-replybox-single"></div></li><li id="bc_0_382B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/b36-rounded.png"></div><div id="c7401523903343546049" class="comment-block"><div id="bc_0_382M" class="comment-header" kind="m"><cite class="user"><a rel="nofollow" href="http://www.blogger.com/profile/08853123019167798224">v998</a></cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413363276633">十月 15, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1413363276633">86楼 5单元</a></div><p id="bc_0_382MC" class="comment-content">对不起...好像说错了话<br>另外, Timar 都没了...<br>可以看看<br><a rel="nofollow" target="_blank" title="超链接语法&amp;#65306;
+评论中的网址&amp;#65292;如果两端是空格或换行&amp;#65292;评论发布后会自动变成可点击的超链接&amp;#12290;
+
+&amp;#65288;网址必须以 http:// 或 https:// 开头&amp;#65289;" href="https://www.youtube.com/watch?v=LvsrEF3gp-U&amp;feature=youtu.be" class="bbcode simple">https://www.youtube.com/watch?v=LvsrEF3gp-U&amp;feature=youtu.be</a><br><a rel="nofollow" target="_blank" title="超链接语法&amp;#65306;
+评论中的网址&amp;#65292;如果两端是空格或换行&amp;#65292;评论发布后会自动变成可点击的超链接&amp;#12290;
+
+&amp;#65288;网址必须以 http:// 或 https:// 开头&amp;#65289;" href="http://news.tvb.com/local/543d9e216db28c2310000001" class="bbcode simple">http://news.tvb.com/local/543d9e216db28c2310000001</a><br>看到就光火了...</p><span id="bc_0_382MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1429061783"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=7401523903343546049">删除5单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_382BR" class="comment-replies"></div><div id="bc_0_382B_box" class="comment-replybox-single"></div></li><li id="bc_0_384B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c3777359533791613675" class="comment-block"><div id="bc_0_384M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413366870907">十月 15, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1413366870907">86楼 6单元</a></div><p id="bc_0_384MC" class="comment-content">从现在的样子来说，中共没有做错任何事情。这些驱逐方式是民主国家也会认同的，毕竟学生违反法律在先。</p><span id="bc_0_384MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1406162312"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=3777359533791613675">删除6单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_384BR" class="comment-replies"></div><div id="bc_0_384B_box" class="comment-replybox-single"></div></li><li id="bc_0_386B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c211716864815818445" class="comment-block"><div id="bc_0_386M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413377020888">十月 15, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1413377020888">86楼 7单元</a></div><p id="bc_0_386MC" class="comment-content">你确定中共没有做错任何事吗？那么那些来捣乱殴打学生的人的背景来自哪里？学生怎么个违反法律了（从哪里看出）？</p><span id="bc_0_386MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-438163549"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=211716864815818445">删除7单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_386BR" class="comment-replies"></div><div id="bc_0_386B_box" class="comment-replybox-single"></div></li><li id="bc_0_387B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c2018267132933745101" class="comment-block"><div id="bc_0_387M" class="comment-header" kind="m"><cite class="user">本评论注定被吃</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413378044545">十月 15, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1413378044545">86楼 8单元</a></div><p id="bc_0_387MC" class="comment-content">起源就是中共违背了《中英联合声明》，上面写明北京不得干涉香港人怎么选特首。什么人大决议、白皮书都是违法行为。</p><span id="bc_0_387MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-2026165262"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=2018267132933745101">删除8单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_387BR" class="comment-replies"></div><div id="bc_0_387B_box" class="comment-replybox-single"></div></li><li id="bc_0_389B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c1319626808119084473" class="comment-block"><div id="bc_0_389M" class="comment-header" kind="m"><cite class="user">忠党爱国</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413390550006">十月 16, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1413390550006">86楼 9单元</a></div><p id="bc_0_389MC" class="comment-content">说香港自治，6单元干嘛扯来中共？说也是“港共”。<br>8单元是对的，6单元请自己去翻中英联合声明。<br><br>民主国家实际上并没有认同。你看看美国的态度，看看德国、英国的态度。</p><span id="bc_0_389MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-261298401"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=1319626808119084473">删除9单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_389BR" class="comment-replies"></div><div id="bc_0_389B_box" class="comment-replybox-single"></div></li><li id="bc_0_391B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c7033224400853471434" class="comment-block"><div id="bc_0_391M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413406157466">十月 16, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1413406157466">86楼 10单元</a></div><p id="bc_0_391MC" class="comment-content">6單元是沒有覺醒的人類...我大天朝每年強拆，徵地死了這麼多人,幾乎都是賠錢了事的，這種方式民主國家也會認同的對麼?</p><span id="bc_0_391MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-297515687"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=7033224400853471434">删除10单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_391BR" class="comment-replies"></div><div id="bc_0_391B_box" class="comment-replybox-single"></div></li></div><div id="bc_0_370I" class="continue" kind="ci"><a href="javascript:;" target="_self">回复86楼</a></div></ol><div id="bc_0_370T_box" class="comment-replybox-thread"></div></div></span></div><div id="bc_0_368B_box" class="comment-replybox-single"></div></li><li id="bc_0_369B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c4499735902390966598" class="comment-block"><div id="bc_0_369M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413299215640">十月 14, 2014</a></span><a style="font-size: 125%;" class="counter" href="2014/10/weekly-share-74.md?comment=1413299215640">87楼</a></div><p id="bc_0_369MC" class="comment-content">图片太多了，滚动条难拉得动</p><span id="bc_0_369MN" class="comment-actions secondary-text" kind="m"><a kind="i" href="javascript:;" target="_self" o="r">回复87楼</a><span class="item-control blog-admin pid-438163549"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=4499735902390966598">删除87楼</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_369BR" class="comment-replies"></div><div id="bc_0_369B_box" class="comment-replybox-single"></div></li><li id="bc_0_375B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/b36-rounded.png"></div><div id="c1547702177333973139" class="comment-block"><div id="bc_0_375M" class="comment-header" kind="m"><cite class="user"><a rel="nofollow" href="http://www.blogger.com/profile/03858414715627103571">New-Programmer</a></cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413336967710">十月 15, 2014</a></span><a style="font-size: 125%;" class="counter" href="2014/10/weekly-share-74.md?comment=1413336967710">88楼</a></div><p id="bc_0_375MC" class="comment-content">博主平安否？怎么许久都不更新？</p><span id="bc_0_375MN" class="comment-actions secondary-text" kind="m"><a kind="i" href="javascript:;" target="_self" o="r">回复88楼</a><span class="item-control blog-admin pid-2092979950"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=1547702177333973139">删除88楼</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_375BR" class="comment-replies"><span id="bc_0_375b+seedGDD" kind="d"><div id="bc_0_388T" class="comment-thread inline-thread" kind="t" t="0" u="0"><span id="bc_0_388TT" class="thread-toggle thread-expanded" kind="g"><span id="bc_0_388TA" class="thread-arrow"></span><span id="bc_0_388TN" class="thread-count"><span id="bc_0_388TNT" style="display: none;">0</span><span id="bc_0_388TNU" style="display: none;"></span><a href="javascript:;" target="_self">Replies</a><div id="bc_0_388TD" class="thread-dropContainer thread-expanded"><span class="thread-drop"></span></div></span></span><ol id="bc_0_388TC" class="thread-chrome thread-expanded" unselectable="on"><div style="zoom:1" unselectable="on"><li id="bc_0_388B" class="comment" kind="b"><div class="avatar-image-container"><img src="http://lh6.googleusercontent.com/-fpaYncBYqKs/Th477aX8reI/AAAAAAAAAco/nkud5M9T64w/s48/Thinker.jpg"></div><div id="c2135304435099712715" class="comment-block"><div id="bc_0_388M" class="comment-header" kind="m"><cite class="user blog-author"><a rel="nofollow" href="http://www.blogger.com/profile/11741356469378252621">编程随想</a></cite><span class="icon user blog-author"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413386074242">十月 15, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1413386074242">88楼 1单元</a></div><p id="bc_0_388MC" class="comment-content">TO New-Programmer<br>非常感谢对俺的关心 :)<br><br>十一假期以及之后这一周，俺一直在升级博客的界面功能（今晚又增加了“界面定制选项”）。<br>所以没顾得上发新的博文。<br>实在抱歉 :(</p><span id="bc_0_388MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1582521586"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=2135304435099712715">删除1单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_388BR" class="comment-replies"></div><div id="bc_0_388B_box" class="comment-replybox-single"></div></li></div><div id="bc_0_388I" class="continue" kind="ci"><a href="javascript:;" target="_self">回复88楼</a></div></ol><div id="bc_0_388T_box" class="comment-replybox-thread"></div></div></span></div><div id="bc_0_375B_box" class="comment-replybox-single"></div></li><li id="bc_0_377B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c1629230694166126091" class="comment-block"><div id="bc_0_377M" class="comment-header" kind="m"><cite class="user">1</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413343154855">十月 15, 2014</a></span><a style="font-size: 125%;" class="counter" href="2014/10/weekly-share-74.md?comment=1413343154855">89楼</a></div><p id="bc_0_377MC" class="comment-content">编程君可不可以抽空回复一下"博客评论功能升级——增加“留言过滤”、“200条之后自动加载”、等"41楼3单元</p><span id="bc_0_377MN" class="comment-actions secondary-text" kind="m"><a kind="i" href="javascript:;" target="_self" o="r">回复89楼</a><span class="item-control blog-admin pid-1607707921"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=1629230694166126091">删除89楼</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_377BR" class="comment-replies"><span id="bc_0_377b+seedF5D" kind="d"><div id="bc_0_378T" class="comment-thread inline-thread" kind="t" t="0" u="0"><span id="bc_0_378TT" class="thread-toggle thread-expanded" kind="g"><span id="bc_0_378TA" class="thread-arrow"></span><span id="bc_0_378TN" class="thread-count"><span id="bc_0_378TNT" style="display: none;">0</span><span id="bc_0_378TNU" style="display: none;"></span><a href="javascript:;" target="_self">Replies</a><div id="bc_0_378TD" class="thread-dropContainer thread-expanded"><span class="thread-drop"></span></div></span></span><ol id="bc_0_378TC" class="thread-chrome thread-expanded" unselectable="on"><div style="zoom:1" unselectable="on"><li id="bc_0_378B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c7997857836905018211" class="comment-block"><div id="bc_0_378M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413345933124">十月 15, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1413345933124">89楼 1单元</a></div><p id="bc_0_378MC" class="comment-content">编程随想可真会选择性失察的回复(貌似有些留言不赞同被怀疑成网评员、攻击性言论或者有空白盲区又不好表示出来，故不表态）<br>还有，总是说“没空”不知道到底有多忙呢？</p><span id="bc_0_378MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-438163549"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=7997857836905018211">删除1单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_378BR" class="comment-replies"></div><div id="bc_0_378B_box" class="comment-replybox-single"></div></li><li id="bc_0_379B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c8424256672070156305" class="comment-block"><div id="bc_0_379M" class="comment-header" kind="m"><cite class="user">1</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413362155099">十月 15, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1413362155099">89楼 2单元</a></div><p id="bc_0_379MC" class="comment-content">编程君忙可以理解，编程君也不是万能的只要他竭尽所能就好。还有希望博客里有能力的人也出来帮忙解答一下，感谢诸位了</p><span id="bc_0_379MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1538969998"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=8424256672070156305">删除2单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_379BR" class="comment-replies"></div><div id="bc_0_379B_box" class="comment-replybox-single"></div></li><li id="bc_0_383B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c8187917815241556240" class="comment-block"><div id="bc_0_383M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413366736057">十月 15, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1413366736057">89楼 3单元</a></div><p id="bc_0_383MC" class="comment-content">这几天随想在升级博客，确实没空回复</p><span id="bc_0_383MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1406162312"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=8187917815241556240">删除3单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_383BR" class="comment-replies"></div><div id="bc_0_383B_box" class="comment-replybox-single"></div></li><li id="bc_0_405B" class="comment" kind="b"><div class="avatar-image-container"><img src="http://lh6.googleusercontent.com/-fpaYncBYqKs/Th477aX8reI/AAAAAAAAAco/nkud5M9T64w/s48/Thinker.jpg"></div><div id="c2807878455567956469" class="comment-block"><div id="bc_0_405M" class="comment-header" kind="m"><cite class="user blog-author"><a rel="nofollow" href="http://www.blogger.com/profile/11741356469378252621">编程随想</a></cite><span class="icon user blog-author"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413452721961">十月 16, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1413452721961">89楼 4单元</a></div><p id="bc_0_405MC" class="comment-content">TO 1<br>你在之前博文的 41楼的留言，俺昨晚回复了。<br>链接如下：<br><a rel="nofollow" target="_blank" title="超链接语法&amp;#65306;
+评论中的网址&amp;#65292;如果两端是空格或换行&amp;#65292;评论发布后会自动变成可点击的超链接&amp;#12290;
+
+&amp;#65288;网址必须以 http:// 或 https:// 开头&amp;#65289;" href="2014/09/custom-blogger-comment.md?comment=1413388638495" class="bbcode simple">2014/09/custom-blogger-comment.md?comment=1413388638495</a></p><span id="bc_0_405MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1582521586"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=2807878455567956469">删除4单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_405BR" class="comment-replies"></div><div id="bc_0_405B_box" class="comment-replybox-single"></div></li><li id="bc_0_406B" class="comment" kind="b"><div class="avatar-image-container"><img src="http://lh6.googleusercontent.com/-fpaYncBYqKs/Th477aX8reI/AAAAAAAAAco/nkud5M9T64w/s48/Thinker.jpg"></div><div id="c4892062502845340102" class="comment-block"><div id="bc_0_406M" class="comment-header" kind="m"><cite class="user blog-author"><a rel="nofollow" href="http://www.blogger.com/profile/11741356469378252621">编程随想</a></cite><span class="icon user blog-author"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413453374825">十月 16, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1413453374825">89楼 5单元</a></div><p id="bc_0_406MC" class="comment-content">TO 1单元的网友<br>因为最近一年来，评论太多，俺不可能全部都回复。还望大伙儿谅解。<br>另外，也确实存在你提到的——选择性回复。<br><br>比如某些人故意来捣乱，发表一些没有实质内容，全部是人身攻击的言论——这种评论俺是不会搭理的。<br>还有一些话题很容易引发口水战，俺通常也不参与——否则俺的时间就更加不够用了。<br>而且有些口水战，得不到有意义的结果，纯属浪费时间（比如：方韩粉丝之争）。<br><br>你质疑俺“很忙”说法。<br>那是因为你对俺不了解。另外，你多半也没有管理过这种读者数量很大的博客。所以不晓得其中的工作量有多大。<br>再者说，俺又不是全职来维护这个博客。</p><span id="bc_0_406MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1582521586"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=4892062502845340102">删除5单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_406BR" class="comment-replies"></div><div id="bc_0_406B_box" class="comment-replybox-single"></div></li></div><div id="bc_0_378I" class="continue" kind="ci"><a href="javascript:;" target="_self">回复89楼</a></div></ol><div id="bc_0_378T_box" class="comment-replybox-thread"></div></div></span></div><div id="bc_0_377B_box" class="comment-replybox-single"></div></li><li id="bc_0_380B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c6481853298300296442" class="comment-block"><div id="bc_0_380M" class="comment-header" kind="m"><cite class="user">1</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413362598630">十月 15, 2014</a></span><a style="font-size: 125%;" class="counter" href="2014/10/weekly-share-74.md?comment=1413362598630">90楼</a></div><p id="bc_0_380MC" class="comment-content">请问win7用netsh设置为什么不成功？<br>netsh
+ interface portproxy add v4tov4 listenport=8119 listenaddress=0.0.0.0 
+connectaddress=127.0.0.1 connectport=9050 protocol=tcp<br>用netstat -an | find "LISTEN"检测未显示TCP　　0.0.0.0:8119　　0.0.0.0:0　　LISTENING<br><br>已经修改注册表开启 win7 IP路由转发 <br>win7 为官方原版旗舰版 sha1以检测值一致，请问是何原因？</p><span id="bc_0_380MN" class="comment-actions secondary-text" kind="m"><a kind="i" href="javascript:;" target="_self" o="r">回复90楼</a><span class="item-control blog-admin pid-1538969998"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=6481853298300296442">删除90楼</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_380BR" class="comment-replies"><span id="bc_0_380b+seedGAD" kind="d"><div id="bc_0_385T" class="comment-thread inline-thread" kind="t" t="0" u="0"><span id="bc_0_385TT" class="thread-toggle thread-expanded" kind="g"><span id="bc_0_385TA" class="thread-arrow"></span><span id="bc_0_385TN" class="thread-count"><span id="bc_0_385TNT" style="display: none;">0</span><span id="bc_0_385TNU" style="display: none;"></span><a href="javascript:;" target="_self">Replies</a><div id="bc_0_385TD" class="thread-dropContainer thread-expanded"><span class="thread-drop"></span></div></span></span><ol id="bc_0_385TC" class="thread-chrome thread-expanded" unselectable="on"><div style="zoom:1" unselectable="on"><li id="bc_0_385B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/b36-rounded.png"></div><div id="c930907102176107657" class="comment-block"><div id="bc_0_385M" class="comment-header" kind="m"><cite class="user"><a rel="nofollow" href="http://www.blogger.com/profile/08853123019167798224">v998</a></cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413375874747">十月 15, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1413375874747">90楼 1单元</a></div><p id="bc_0_385MC" class="comment-content">以管理员了没有?</p><span id="bc_0_385MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1429061783"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=930907102176107657">删除1单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_385BR" class="comment-replies"></div><div id="bc_0_385B_box" class="comment-replybox-single"></div></li><li id="bc_0_393B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c5745103453339638275" class="comment-block"><div id="bc_0_393M" class="comment-header" kind="m"><cite class="user">1</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413422667826">十月 16, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1413422667826">90楼 2单元</a></div><p id="bc_0_393MC" class="comment-content">to:v998<br>以管理员了</p><span id="bc_0_393MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1607707921"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=5745103453339638275">删除2单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_393BR" class="comment-replies"></div><div id="bc_0_393B_box" class="comment-replybox-single"></div></li><li id="bc_0_394B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c7731849956332039852" class="comment-block"><div id="bc_0_394M" class="comment-header" kind="m"><cite class="user">1</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413422859652">十月 16, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1413422859652">90楼 3单元</a></div><p id="bc_0_394MC" class="comment-content">编程君的技术贴大家都学会了吗?为什么现在很少有人讨论技术话题了呢?</p><span id="bc_0_394MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-106018309"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=7731849956332039852">删除3单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_394BR" class="comment-replies"></div><div id="bc_0_394B_box" class="comment-replybox-single"></div></li><li id="bc_0_399B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c7459648151081071847" class="comment-block"><div id="bc_0_399M" class="comment-header" kind="m"><cite class="user">1</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413441493188">十月 16, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1413441493188">90楼 4单元</a></div><p id="bc_0_399MC" class="comment-content">有没有人知道阿?</p><span id="bc_0_399MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-944291743"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=7459648151081071847">删除4单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_399BR" class="comment-replies"></div><div id="bc_0_399B_box" class="comment-replybox-single"></div></li><li id="bc_0_401B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c8908254596915768708" class="comment-block"><div id="bc_0_401M" class="comment-header" kind="m"><cite class="user">1</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413446073910">十月 16, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1413446073910">90楼 5单元</a></div><p id="bc_0_401MC" class="comment-content">折腾了一天,尝试更新,作系统恢复快照都不行<br>用rinetd也不行,再博主给的官方下载地址点击下载的"For Windows 95/98/NT: Download from our web server"下载的<br>运行cmd 输入命令rinetd.exe -c config.txt提示不是内部指令或外部指令,也不是可运行的程序,写好的配置文件保存成 config.txt<br>已经和rinetd.exe 放到同一个目录,点击rinetd.exe出现一个对话框就没了,不知道博主说的"运行 cmd 进入 Windows 的命令行窗<br>口，然后进入 rinetd.exe 所在的目录"是什么意思?cmd不是在开始里运行吗?<br><br>provoxy已经配置为tor专用不敢轻易改动,博主所说的几种办法我都没法用,心急阿<br>请问赛风怎么才能共享翻墙通道阿,求教了</p><span id="bc_0_401MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-332512140"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=8908254596915768708">删除5单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_401BR" class="comment-replies"></div><div id="bc_0_401B_box" class="comment-replybox-single"></div></li><li id="bc_0_404B" class="comment" kind="b"><div class="avatar-image-container"><img src="http://lh6.googleusercontent.com/-fpaYncBYqKs/Th477aX8reI/AAAAAAAAAco/nkud5M9T64w/s48/Thinker.jpg"></div><div id="c3987351484833108987" class="comment-block"><div id="bc_0_404M" class="comment-header" kind="m"><cite class="user blog-author"><a rel="nofollow" href="http://www.blogger.com/profile/11741356469378252621">编程随想</a></cite><span class="icon user blog-author"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413452484616">十月 16, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1413452484616">90楼 6单元</a></div><p id="bc_0_404MC" class="comment-content">TO 1<br>关于 netsh 转发<br>之前也有读者反馈说，在 Win7 下面用  netsh 进行端口转发，没有成功。<br>此人的环境是“精简版 Win7”，后来改成其它版本的 Win7 就好了。<br><br>关于 rinetd 转发<br>这是因为你不熟悉 Windows 的命令行操作，所以没有搞懂俺所说的话。<br>你需要先了解最基本的命令行操作，比如说：如何切换当前目录。</p><span id="bc_0_404MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1582521586"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=3987351484833108987">删除6单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_404BR" class="comment-replies"></div><div id="bc_0_404B_box" class="comment-replybox-single"></div></li></div><div id="bc_0_385I" class="continue" kind="ci"><a href="javascript:;" target="_self">回复90楼</a></div></ol><div id="bc_0_385T_box" class="comment-replybox-thread"></div></div></span></div><div id="bc_0_380B_box" class="comment-replybox-single"></div></li><li id="bc_0_381B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c7649150340084579777" class="comment-block"><div id="bc_0_381M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413362871890">十月 15, 2014</a></span><a style="font-size: 125%;" class="counter" href="2014/10/weekly-share-74.md?comment=1413362871890">91楼</a></div><p id="bc_0_381MC" class="comment-content">Windows系统和TOR的简体中文有没有共匪的后门</p><span id="bc_0_381MN" class="comment-actions secondary-text" kind="m"><a kind="i" href="javascript:;" target="_self" o="r">回复91楼</a><span class="item-control blog-admin pid-1871283750"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=7649150340084579777">删除91楼</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_381BR" class="comment-replies"><span id="bc_0_381b+seedGND" kind="d"><div id="bc_0_398T" class="comment-thread inline-thread" kind="t" t="0" u="0"><span id="bc_0_398TT" class="thread-toggle thread-expanded" kind="g"><span id="bc_0_398TA" class="thread-arrow"></span><span id="bc_0_398TN" class="thread-count"><span id="bc_0_398TNT" style="display: none;">0</span><span id="bc_0_398TNU" style="display: none;"></span><a href="javascript:;" target="_self">Replies</a><div id="bc_0_398TD" class="thread-dropContainer thread-expanded"><span class="thread-drop"></span></div></span></span><ol id="bc_0_398TC" class="thread-chrome thread-expanded" unselectable="on"><div style="zoom:1" unselectable="on"><li id="bc_0_398B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c4518621275392982100" class="comment-block"><div id="bc_0_398M" class="comment-header" kind="m"><cite class="user"><a rel="nofollow" href="https://chaonima.com/">共产梦</a></cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413427518472">十月 16, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1413427518472">91楼 1单元</a></div><p id="bc_0_398MC" class="comment-content">最好是曾网。这个好呀。</p><span id="bc_0_398MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-666595959"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=4518621275392982100">删除1单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_398BR" class="comment-replies"></div><div id="bc_0_398B_box" class="comment-replybox-single"></div></li><li id="bc_0_403B" class="comment" kind="b"><div class="avatar-image-container"><img src="http://lh6.googleusercontent.com/-fpaYncBYqKs/Th477aX8reI/AAAAAAAAAco/nkud5M9T64w/s48/Thinker.jpg"></div><div id="c2691885415864873114" class="comment-block"><div id="bc_0_403M" class="comment-header" kind="m"><cite class="user blog-author"><a rel="nofollow" href="http://www.blogger.com/profile/11741356469378252621">编程随想</a></cite><span class="icon user blog-author"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413452190389">十月 16, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1413452190389">91楼 2单元</a></div><p id="bc_0_403MC" class="comment-content">TO 91楼的网友<br>对于 Windows<br>如果装 Windows，一定要用微软官方提供的镜像，【不要用】那些国内的破解版（比如番茄花园之类）。<br><br>对于 TOR<br>如果你直接从 TOR 官网上下载，应该是没问题的。<br>而且 TOR 官网上下载的安装包，还提供了  GPG 签名，以防止安装包被恶意篡改。</p><span id="bc_0_403MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1582521586"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=2691885415864873114">删除2单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_403BR" class="comment-replies"></div><div id="bc_0_403B_box" class="comment-replybox-single"></div></li><li id="bc_0_407B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c3241583479120233462" class="comment-block"><div id="bc_0_407M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413454061491">十月 16, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1413454061491">91楼 3单元</a></div><p id="bc_0_407MC" class="comment-content">谷歌搜索“MSDN i tell you（中文名：MSDN我告诉你）”网站，里面全是微软官方的镜像，可以免费下载，下载完后可以跟tor一样校验啊！<br>注：在微软网站要成为付费用户才能下载系统镜像，博主不知是否有意或无意避开不谈，又没提供破解或密钥什么的，究竟害怕什么。</p><span id="bc_0_407MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-438163549"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=3241583479120233462">删除3单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_407BR" class="comment-replies"></div><div id="bc_0_407B_box" class="comment-replybox-single"></div></li><li id="bc_0_408B" class="comment" kind="b"><div class="avatar-image-container"><img src="http://lh6.googleusercontent.com/-fpaYncBYqKs/Th477aX8reI/AAAAAAAAAco/nkud5M9T64w/s48/Thinker.jpg"></div><div id="c4310492418561968378" class="comment-block"><div id="bc_0_408M" class="comment-header" kind="m"><cite class="user blog-author"><a rel="nofollow" href="http://www.blogger.com/profile/11741356469378252621">编程随想</a></cite><span class="icon user blog-author"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413466361160">十月 16, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1413466361160">91楼 4单元</a></div><p id="bc_0_408MC" class="comment-content">TO 3单元的网友<br>说到微软的官方镜像<br>首先，<br>俺平时主要用 Linux 系统，所以很久没有去网上找过 Windows 镜像了。对相关的网站或序列号，并不了解<br>其次，<br>俺这个博客搭建在 Google 的 Blogspot 平台上。因此会受到美国版权法的约束。<br>俺不能在博客中谈论敏感的版权话题，否则的话， Google 会把相关的页面删除。</p><span id="bc_0_408MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1582521586"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=4310492418561968378">删除4单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_408BR" class="comment-replies"></div><div id="bc_0_408B_box" class="comment-replybox-single"></div></li></div><div id="bc_0_398I" class="continue" kind="ci"><a href="javascript:;" target="_self">回复91楼</a></div></ol><div id="bc_0_398T_box" class="comment-replybox-thread"></div></div></span></div><div id="bc_0_381B_box" class="comment-replybox-single"></div></li><li id="bc_0_390B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c2704863372039499263" class="comment-block"><div id="bc_0_390M" class="comment-header" kind="m"><cite class="user"><a rel="nofollow" href="https://zh.wikipedia.org/zh/%E9%98%B2%E7%81%AB%E9%95%BF%E5%9F%8E">鸡爱抚大波瘤</a></cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413398589630">十月 16, 2014</a></span><a style="font-size: 125%;" class="counter" href="2014/10/weekly-share-74.md?comment=1413398589630">92楼</a></div><p id="bc_0_390MC" class="comment-content">新ID过来秀一下，万恶的GFW :P<br>顺便问一下，shadowsocks.net最近上不了了，有人知道是怎么回事吗？网站挂了？</p><span id="bc_0_390MN" class="comment-actions secondary-text" kind="m"><a kind="i" href="javascript:;" target="_self" o="r">回复92楼</a><span class="item-control blog-admin pid-1086095942"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=2704863372039499263">删除92楼</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_390BR" class="comment-replies"><span id="bc_0_390b+seedGHD" kind="d"><div id="bc_0_392T" class="comment-thread inline-thread" kind="t" t="0" u="0"><span id="bc_0_392TT" class="thread-toggle thread-expanded" kind="g"><span id="bc_0_392TA" class="thread-arrow"></span><span id="bc_0_392TN" class="thread-count"><span id="bc_0_392TNT" style="display: none;">0</span><span id="bc_0_392TNU" style="display: none;"></span><a href="javascript:;" target="_self">Replies</a><div id="bc_0_392TD" class="thread-dropContainer thread-expanded"><span class="thread-drop"></span></div></span></span><ol id="bc_0_392TC" class="thread-chrome thread-expanded" unselectable="on"><div style="zoom:1" unselectable="on"><li id="bc_0_392B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c5231953732903936164" class="comment-block"><div id="bc_0_392M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413406272342">十月 16, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1413406272342">92楼 1单元</a></div><p id="bc_0_392MC" class="comment-content">被共匪拿流量打死了.</p><span id="bc_0_392MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-297515687"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=5231953732903936164">删除1单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_392BR" class="comment-replies"></div><div id="bc_0_392B_box" class="comment-replybox-single"></div></li><li id="bc_0_402B" class="comment" kind="b"><div class="avatar-image-container"><img src="http://lh6.googleusercontent.com/-fpaYncBYqKs/Th477aX8reI/AAAAAAAAAco/nkud5M9T64w/s48/Thinker.jpg"></div><div id="c3041259108425579841" class="comment-block"><div id="bc_0_402M" class="comment-header" kind="m"><cite class="user blog-author"><a rel="nofollow" href="http://www.blogger.com/profile/11741356469378252621">编程随想</a></cite><span class="icon user blog-author"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413451525117">十月 16, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1413451525117">92楼 2单元</a></div><p id="bc_0_402MC" class="comment-content">TO 鸡爱抚大波瘤<br>刚才俺去看了，shadowsocks.net 网站能打开。</p><span id="bc_0_402MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1582521586"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=3041259108425579841">删除2单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看此人的评论</a><a href="javascript:;" class="hide">隐藏此人的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_402BR" class="comment-replies"></div><div id="bc_0_402B_box" class="comment-replybox-single"></div></li></div><div id="bc_0_392I" class="continue" kind="ci"><a href="javascript:;" target="_self">回复92楼</a></div></ol><div id="bc_0_392T_box" class="comment-replybox-thread"></div></div></span></div><div id="bc_0_390B_box" class="comment-replybox-single"></div></li><li id="bc_0_397B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c9001336466128082540" class="comment-block"><div id="bc_0_397M" class="comment-header" kind="m"><cite class="user"><a rel="nofollow" href="https://chaonima.com/">共产梦</a></cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413427461999">十月 16, 2014</a></span><a style="font-size: 125%;" class="counter" href="2014/10/weekly-share-74.md?comment=1413427461999">93楼</a></div><p id="bc_0_397MC" class="comment-content">我要购买弓弩还有气枪以及若干弹药。我很害怕这帮人来抄家。还有一些隐蔽的化学武器。这些东西可以得到吗？</p><span id="bc_0_397MN" class="comment-actions secondary-text" kind="m"><a kind="i" href="javascript:;" target="_self" o="r">回复93楼</a><span class="item-control blog-admin pid-666595959"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=9001336466128082540">删除93楼</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_397BR" class="comment-replies"><span id="bc_0_397b+seedGiD" kind="d"><div id="bc_0_419T" class="comment-thread inline-thread" kind="t" t="0" u="0"><span id="bc_0_419TT" class="thread-toggle thread-expanded" kind="g"><span id="bc_0_419TA" class="thread-arrow"></span><span id="bc_0_419TN" class="thread-count"><span id="bc_0_419TNT" style="display: none;">0</span><span id="bc_0_419TNU" style="display: none;"></span><a href="javascript:;" target="_self">Replies</a><div id="bc_0_419TD" class="thread-dropContainer thread-expanded"><span class="thread-drop"></span></div></span></span><ol id="bc_0_419TC" class="thread-chrome thread-expanded" unselectable="on"><div style="zoom:1" unselectable="on"><li id="bc_0_419B" class="comment" kind="b"><div class="avatar-image-container"><img src="zz2_files/anon36.png"></div><div id="c450554448499013512" class="comment-block"><div id="bc_0_419M" class="comment-header" kind="m"><cite class="user">匿名</cite><span class="icon user"></span><span class="datetime secondary-text"><a rel="nofollow" href="2014/10/weekly-share-74.md?comment=1413472538994">十月 16, 2014</a></span><a class="counter" href="2014/10/weekly-share-74.md?comment=1413472538994">93楼 1单元</a></div><p id="bc_0_419MC" class="comment-content">气枪已经违法了，要搞就搞大点。化学武器直接搜物质的学名，器材大概只能自己做了。</p><span id="bc_0_419MN" class="comment-actions secondary-text" kind="m"><span class="item-control blog-admin pid-1406162312"><a o="d" target="_self" href="http://www.blogger.com/delete-comment.g?blogID=5235590154125226279&amp;postID=450554448499013512">删除1单元</a></span>　<span style="display: none;" class="filter"><a href="javascript:;" class="show">只看与此人同名的评论</a><a href="javascript:;" class="hide">隐藏与此人同名的评论</a><a style="display: none;" href="javascript:;" class="reset">显示所有评论</a></span></span></div><div id="bc_0_419BR" class="comment-replies"></div><div id="bc_0_419B_box" class="comment-replybox-single"></div></li></div><div id="bc_0_419I" class="continue" kind="ci"><a href="javascript:;" target="_self">回复93楼</a></div></ol><div id="bc_0_419T_box" class="comment-replybox-thread"></div></div></span></div><div id="bc_0_397B_box" class="comment-replybox-single"></div></li></ol><div style="display: none;" id="bc_0_200I" class="continue" kind="ci"><a href="javascript:;" target="_self">添加评论</a></div><div id="bc_0_200T_box" class="comment-replybox-thread"><iframe style="display: block;" allowtransparency="true" class="blogger-iframe-colorize blogger-comment-from-post" id="comment-editor" name="comment-editor" src="zz2_files/comment-iframe.htm" width="100%" height="275px" frameborder="0"></iframe></div><div id="bc_0_200L" class="loadmore loaded" kind="rb"><a href="javascript:;" target="_self">没有更多评论页&amp;#65281;</a></div></div></div></div></div>
+</div>
+<p class="comment-footer">
+</p><div class="comment-form">
+<a name="comment-form"></a>
+<p>（如果评论发布之后没有出现，可能是<b>被Google误判为垃圾广告</b>。俺会定期把误判的评论恢复出来）</p>
+<a href="https://www.blogger.com/comment-iframe.g?blogID=5235590154125226279&amp;postID=3544317389143776752&amp;blogspotRpcToken=944974" id="comment-editor-src"></a>
+
+<script type="text/javascript" src="zz2_files/3995214906-comment_from_post_iframe.js"></script>
+<script type="text/javascript">
+      BLOG_CMT_createIframe('https://www.blogger.com/rpc_relay.md');
+    </script>
+</div>
+<p></p>
+<div id="backlinks-container">
+<div id="Blog1_backlinks-container">
+</div>
+</div>
+</div>
+<!-- google_ad_section_end -->
+</div>
+<div class="blog-pager" id="blog-pager">
+<span id="blog-pager-newer-link">
+<a class="blog-pager-newer-link" href="2014/10/custom-blogger-ui.md" id="Blog1_blog-pager-newer-link" title="较新的帖子">较新的帖子</a>
+</span>
+<span id="blog-pager-older-link">
+<a class="blog-pager-older-link" href="2014/10/weekly-share-73.md" id="Blog1_blog-pager-older-link" title="较早的帖子">较早的帖子</a>
+</span>
+<a class="home-link" href="">主页</a>
+</div>
+<div class="clear"></div>
+</div></div>
+</div>
+<div id="sidebar-wrapper">
+<div class="sidebar section" id="sidebar"><div class="widget HTML" id="HTML2">
+<div class="widget-content">
+<a href="https://plus.google.com/113559088971921339544/?rel=author" target="_blank"><img src="zz2_files/ThinkerSmall.jpg" alt="编程随想" title="编程随想"></a><br>
+<br>
+<img src="zz2_files/favicon_004.ico" width="16" height="16"><a href="mailto:program.think@gmail.com" target="_blank" title="俺的邮箱 (Gmail)">俺的邮箱 (Gmail)</a><br>
+<img src="zz2_files/favicon.ico" width="16" height="16"><a href="" target="_blank" title="博客主站点 (BlogSpot)">博客主站点 (BlogSpot)</a><br>
+<img src="zz2_files/favicon_003.ico" width="16" height="16"><a href="https://plus.google.com/113559088971921339544/posts" target="_blank" title="俺的Google+">俺的Google+</a><br>
+<img src="zz2_files/favicon_002.ico" width="16" height="16"><a href="https://twitter.com/programthink" target="_blank" title="俺的推特 (@programthink)">俺的推特 (@programthink)</a><br>
+<img src="zz2_files/phosting.ico" width="16" height="16"><a href="https://code.google.com/p/program-think/" target="_blank" title="俺的收藏 (GoogleCode)">俺的收藏 (GoogleCode)</a><br>
+</div>
+<div class="clear"></div>
+<span class="widget-item-control">
+<span class="item-control blog-admin">
+<a class="quickedit" href="http://www.blogger.com/rearrange?blogID=5235590154125226279&amp;widgetType=HTML&amp;widgetId=HTML2&amp;action=editWidget&amp;sectionId=sidebar" onclick='return _WidgetManager._PopupConfig(document.getElementById("HTML2"));' target="configHTML2" title="修改">
+<img alt="" src="zz2_files/icon18_wrench_allbkg.png" width="18" height="18">
+</a>
+</span>
+</span>
+<div class="clear"></div>
+</div><div class="widget HTML" id="HTML3">
+<h2 class="title">博客订阅网址</h2>
+<div class="widget-content">
+<img src="zz2_files/programthink.gif" title="博客订阅人数" alt="博客订阅人数" border="0" width="88" height="26">
+<br>
+<a href="http://feeds2.feedburner.com/programthink" target="_blank" title="RSS 订阅">
+<img src="zz2_files/feed-icon-animated_002.gif" alt="RSS 订阅网址" border="0"></a>　　　
+<a href="2013/06/email-subscription.md" title="邮件订阅">
+<img src="zz2_files/email-icon.png" alt="邮件订阅网址" border="0"></a>
+<br>
+</div>
+<div class="clear"></div>
+<span class="widget-item-control">
+<span class="item-control blog-admin">
+<a class="quickedit" href="http://www.blogger.com/rearrange?blogID=5235590154125226279&amp;widgetType=HTML&amp;widgetId=HTML3&amp;action=editWidget&amp;sectionId=sidebar" onclick='return _WidgetManager._PopupConfig(document.getElementById("HTML3"));' target="configHTML3" title="修改">
+<img alt="" src="zz2_files/icon18_wrench_allbkg.png" width="18" height="18">
+</a>
+</span>
+</span>
+<div class="clear"></div>
+</div><div class="widget HTML" id="HTML8">
+<h2 class="title">博客打包下载</h2>
+<div class="widget-content">
+<a href="2014/04/blog-ebook.md" title="以电子书形式下载博客内容"><img src="zz2_files/chm.png" alt="CHM 格式"><img src="zz2_files/epub.png" alt="EPUB 格式"></a>
+</div>
+<div class="clear"></div>
+<span class="widget-item-control">
+<span class="item-control blog-admin">
+<a class="quickedit" href="http://www.blogger.com/rearrange?blogID=5235590154125226279&amp;widgetType=HTML&amp;widgetId=HTML8&amp;action=editWidget&amp;sectionId=sidebar" onclick='return _WidgetManager._PopupConfig(document.getElementById("HTML8"));' target="configHTML8" title="修改">
+<img alt="" src="zz2_files/icon18_wrench_allbkg.png" width="18" height="18">
+</a>
+</span>
+</span>
+<div class="clear"></div>
+</div><div class="widget Text" id="Text1">
+<h2 class="title">博客主要内容</h2>
+<div class="widget-content">
+★提升思维能力<br>★普及政治常识<br>★各种翻墙姿势<br>★党国的阴暗面<br>★网络安全知识<br>★软件开发技术<br>
+</div>
+<div class="clear"></div>
+<span class="widget-item-control">
+<span class="item-control blog-admin">
+<a class="quickedit" href="http://www.blogger.com/rearrange?blogID=5235590154125226279&amp;widgetType=Text&amp;widgetId=Text1&amp;action=editWidget&amp;sectionId=sidebar" onclick='return _WidgetManager._PopupConfig(document.getElementById("Text1"));' target="configText1" title="修改">
+<img alt="" src="zz2_files/icon18_wrench_allbkg.png" width="18" height="18">
+</a>
+</span>
+</span>
+<div class="clear"></div>
+</div><div class="widget LinkList" id="LinkList2">
+<h2>推荐帖子(翻墙技术)</h2>
+<div class="widget-content">
+<ul>
+<li><a href="2009/05/how-to-break-through-gfw.md">如何翻墙(全方位入门扫盲)</a></li>
+<li><a href="2011/09/gfw-faq.md">常见翻墙问题答疑</a></li>
+<li><a href="2011/03/how-to-get-gfw-tools.md">获取翻墙软件方法大全</a></li>
+<li><a href="https://code.google.com/p/program-think/wiki/Software">翻墙软件汇总下载 @ 俺的网盘</a></li>
+<li><a href="2013/01/cross-host-use-gfw-tool.md">多台电脑如何共享翻墙通道</a></li>
+<li><a href="2013/11/tor-faq.md">关于 TOR 的常见问题解答</a></li>
+<li><a href="2009/07/break-through-berlin-wall.md">学习一下德国人民的翻墙精神</a></li>
+</ul>
+<div class="clear"></div>
+<span class="widget-item-control">
+<span class="item-control blog-admin">
+<a class="quickedit" href="http://www.blogger.com/rearrange?blogID=5235590154125226279&amp;widgetType=LinkList&amp;widgetId=LinkList2&amp;action=editWidget&amp;sectionId=sidebar" onclick='return _WidgetManager._PopupConfig(document.getElementById("LinkList2"));' target="configLinkList2" title="修改">
+<img alt="" src="zz2_files/icon18_wrench_allbkg.png" width="18" height="18">
+</a>
+</span>
+</span>
+<div class="clear"></div>
+</div>
+</div><div class="widget LinkList" id="LinkList6">
+<h2>推荐帖子(网络安全)</h2>
+<div class="widget-content">
+<ul>
+<li><a href="2010/06/howto-prevent-hacker-attack-0.md">如何防止黑客入侵(系列)</a></li>
+<li><a href="2013/06/privacy-protection-0.md">如何保护隐私(系列)</a></li>
+<li><a href="2010/04/howto-cover-your-tracks-0.md">如何隐藏你的踪迹，避免跨省追捕(系列)</a></li>
+<li><a href="2012/10/system-vm-0.md">扫盲操作系统虚拟机(系列)</a></li>
+<li><a href="2011/05/recommend-truecrypt.md#index">TrueCrypt 的扫盲教程和高级教程</a></li>
+<li><a href="2011/05/file-encryption-overview.md">文件加密的扫盲介绍</a></li>
+<li><a href="2013/07/online-backup-virtual-encrypted-disk.md">文件备份技巧：组合“虚拟加密盘”和“网盘”</a></li>
+<li><a href="2013/02/file-integrity-check.md">扫盲文件完整性校验——关于散列值和数字签名</a></li>
+<li><a href="2009/05/social-engineering-0-overview.md">社会工程学扫盲(系列)</a></li>
+<li><a href="2013/02/weekly-share-41.md">天朝御用骇客是如何暴露的？</a></li>
+</ul>
+<div class="clear"></div>
+<span class="widget-item-control">
+<span class="item-control blog-admin">
+<a class="quickedit" href="http://www.blogger.com/rearrange?blogID=5235590154125226279&amp;widgetType=LinkList&amp;widgetId=LinkList6&amp;action=editWidget&amp;sectionId=sidebar" onclick='return _WidgetManager._PopupConfig(document.getElementById("LinkList6"));' target="configLinkList6" title="修改">
+<img alt="" src="zz2_files/icon18_wrench_allbkg.png" width="18" height="18">
+</a>
+</span>
+</span>
+<div class="clear"></div>
+</div>
+</div><div class="widget LinkList" id="LinkList7">
+<h2>推荐帖子(学会思考)</h2>
+<div class="widget-content">
+<ul>
+<li><a href="2013/04/how-to-read-book.md">《如何阅读一本书》——书评及内容纲要</a></li>
+<li><a href="2010/10/book-review-asking-right-questions.md">书评：《学会提问——批判性思维指南》</a></li>
+<li><a href="2013/09/knowledge-structure.md">如何完善自己的知识结构</a></li>
+<li><a href="2009/02/study-technology-in-three-steps.md">学习技术的三部曲：WHAT、HOW、WHY</a></li>
+<li><a href="2012/03/think-what-how-why.md">用提问促进思维——再谈 WHAT HOW WHY 三部曲</a></li>
+<li><a href="2013/05/difference-between-fact-and-opinion.md">批判性思维扫盲：学会区分"事实"与"观点"</a></li>
+<li><a href="2014/01/doublethink.md">比"欺骗"更有效的洗脑手法——基于"双重思想"的思维控制</a></li>
+<li><a href="2014/02/brainwash-and-idiot.md">聊聊洗脑和脑残——分析"脑残的起源"和"脑残的觉醒"</a></li>
+<li><a href="2009/07/book-review-are-your-lights-on.md">书评：《你的灯亮着吗？——找到问题的真正所在》</a></li>
+<li><a href="2010/07/silent-proof.md">思维的误区：忽视沉默的大多数</a></li>
+<li><a href="2011/03/logical-fallacies.md">扫盲逻辑谬误——以五毛言论为反面教材</a></li>
+</ul>
+<div class="clear"></div>
+<span class="widget-item-control">
+<span class="item-control blog-admin">
+<a class="quickedit" href="http://www.blogger.com/rearrange?blogID=5235590154125226279&amp;widgetType=LinkList&amp;widgetId=LinkList7&amp;action=editWidget&amp;sectionId=sidebar" onclick='return _WidgetManager._PopupConfig(document.getElementById("LinkList7"));' target="configLinkList7" title="修改">
+<img alt="" src="zz2_files/icon18_wrench_allbkg.png" width="18" height="18">
+</a>
+</span>
+</span>
+<div class="clear"></div>
+</div>
+</div><div class="widget LinkList" id="LinkList8">
+<h2>推荐帖子(心理学)</h2>
+<div class="widget-content">
+<ul>
+<li><a href="2010/02/about-mental-model.md">认识你自己——有关心智模式的扫盲介绍</a></li>
+<li><a href="2012/12/emperor-complex.md">天朝民众的心理分析：圣君情结</a></li>
+<li><a href="2012/06/stockholm-syndrome.md">天朝民众的心理分析：斯德哥尔摩综合症</a></li>
+<li><a href="2014/05/fans-and-idolatry.md">不要成为“粉丝”——谈谈“偶像崇拜”的成因和危害</a></li>
+<li><a href="2009/05/halo-effect.md">光环效应引发的认知误区</a></li>
+<li><a href="2010/04/how-to-attribute-success-failure.md">你是怎么看待成败的——兼谈有效归因</a></li>
+<li><a href="2012/01/stockdale-paradox.md">如何面对困境——兼谈"斯托克戴尔悖论"</a></li>
+<li><a href="2012/06/book-review-road-less-traveled.md">书评：《少有人走的路——心智成熟的旅程》</a></li>
+</ul>
+<div class="clear"></div>
+<span class="widget-item-control">
+<span class="item-control blog-admin">
+<a class="quickedit" href="http://www.blogger.com/rearrange?blogID=5235590154125226279&amp;widgetType=LinkList&amp;widgetId=LinkList8&amp;action=editWidget&amp;sectionId=sidebar" onclick='return _WidgetManager._PopupConfig(document.getElementById("LinkList8"));' target="configLinkList8" title="修改">
+<img alt="" src="zz2_files/icon18_wrench_allbkg.png" width="18" height="18">
+</a>
+</span>
+</span>
+<div class="clear"></div>
+</div>
+</div><div class="widget LinkList" id="LinkList5">
+<h2>推荐帖子(政治)</h2>
+<div class="widget-content">
+<ul>
+<li><a href="2011/06/june-fourth-incident-0.md">回顾六四(系列)</a></li>
+<li><a href="2011/12/revolution-0.md">谈革命(系列)</a></li>
+<li><a href="2013/12/political-concepts-state-citizenship-etc.md">政治常识扫盲：理清"国家、政体、公民、政府、政党"等概念</a></li>
+<li><a href="2014/02/freedom-of-speech.md">政治常识扫盲：澄清"言论自由"的各种误区</a></li>
+<li><a href="2013/11/political-reform-or-economic-reform.md">若政治制度不公平，则经济改革无意义</a></li>
+<li><a href="2013/04/more-supervision-less-thankfulness.md">对政府——多些"监督问责"，少些"煽情感动"</a></li>
+<li><a href="2012/07/form-of-government.md">扫盲常见的政治体制</a></li>
+<li><a href="2012/07/form-of-government-in-china.md">聊聊天朝的政治体制</a></li>
+<li><a href="2013/03/princelings.md">俺整理的《太子党关系网络》</a></li>
+<li><a href="2012/03/national-people-congress.md"> 看看全国人大代表都是啥货色——兼谈"议会道路的改良"行不通</a></li>
+<li><a href="2012/07/tacitus-trap.md">朝廷为何落入"塔西佗陷阱"</a></li>
+<li><a href="2012/07/weekly-share-12.md">汇总天朝的雷人语录 (定期更新)</a></li>
+<li><a href="2013/02/film-soviet-story.md">《苏维埃往事》——看清苏联和纳粹的共同本质</a></li>
+<li><a href="2012/10/history-of-red-khmers.md">最"纯正"的共产主义政权——红色高棉简史</a></li>
+<li><a href="2010/11/institutionalize.md">谈谈体制化，并推荐《肖申克的救赎》</a></li>
+<li><a href="2012/08/environment-pollution-in-china.md">谈谈环保问题的根源和解决之道</a></li>
+</ul>
+<div class="clear"></div>
+<span class="widget-item-control">
+<span class="item-control blog-admin">
+<a class="quickedit" href="http://www.blogger.com/rearrange?blogID=5235590154125226279&amp;widgetType=LinkList&amp;widgetId=LinkList5&amp;action=editWidget&amp;sectionId=sidebar" onclick='return _WidgetManager._PopupConfig(document.getElementById("LinkList5"));' target="configLinkList5" title="修改">
+<img alt="" src="zz2_files/icon18_wrench_allbkg.png" width="18" height="18">
+</a>
+</span>
+</span>
+<div class="clear"></div>
+</div>
+</div><div class="widget LinkList" id="LinkList9">
+<h2>推荐帖子(历史)</h2>
+<div class="widget-content">
+<ul>
+<li><a href="2011/06/june-fourth-incident-0.md">回顾 六四(系列)</a></li>
+<li><a href="2012/05/three-years-famine-0.md">谈谈三年大饥荒(系列)</a></li>
+<li><a href="2014/07/artists-and-ccp.md">面对共产党——民国人文大师的众生相</a></li>
+<li><a href="2010/09/censorship-of-images.md">看看真理部是如何PS照片的</a></li>
+<li><a href="2014/04/history-china-fallen-behind-europe.md">中国是从哪个朝代开始落后于西方？</a></li>
+<li><a href="2013/08/korean-war.md">谈谈真理部对朝鲜战争的忽悠</a></li>
+<li><a href="2011/03/ccp-vs-japanese.md">谁是最可恨的人？——写给仇日愤青们</a></li>
+<li><a href="2010/09/sino-japanese-war.md">谈谈真理部对抗战历史的篡改</a></li>
+<li><a href="2014/03/propaganda-for-patriotism.md">分析爱国主义忽悠的常见类型——顺便戳穿几个流传很广的谣言</a></li>
+</ul>
+<div class="clear"></div>
+<span class="widget-item-control">
+<span class="item-control blog-admin">
+<a class="quickedit" href="http://www.blogger.com/rearrange?blogID=5235590154125226279&amp;widgetType=LinkList&amp;widgetId=LinkList9&amp;action=editWidget&amp;sectionId=sidebar" onclick='return _WidgetManager._PopupConfig(document.getElementById("LinkList9"));' target="configLinkList9" title="修改">
+<img alt="" src="zz2_files/icon18_wrench_allbkg.png" width="18" height="18">
+</a>
+</span>
+</span>
+<div class="clear"></div>
+</div>
+</div><div class="widget LinkList" id="LinkList1">
+<h2>推荐帖子(编程技术)</h2>
+<div class="widget-content">
+<ul>
+<li><a href="2012/05/weekly-share-5.md">学习编程语言的3篇好文章</a></li>
+<li><a href="2009/01/choose-it-book.md">如何选择IT技术书籍？</a></li>
+<li><a href="2009/02/how-to-choose-opensource-project.md">如何选择开源项目？</a></li>
+<li><a href="2009/08/why-choose-python-0-overview.md">为什么俺推荐Python(系列)</a></li>
+<li><a href="2009/03/producer-consumer-pattern-0-overview.md">架构设计：生产者/消费者模式</a></li>
+<li><a href="2009/02/multi-process-vs-multi-thread.md">架构设计：进程还是线程？</a></li>
+<li><a href="2009/02/cxx-object-destroy-overview.md">C++对象是怎么死的？(系列)</a></li>
+<li><a href="2009/01/cxx-cross-platform-develop-0-overview.md">C++的移植性和跨平台开发(系列)</a></li>
+<li><a href="2009/03/java-performance-tuning-0-overview.md">Java性能优化(系列)</a></li>
+<li><a href="2009/01/defect-of-java-beginner-0-overview.md">Java新手的通病(系列)</a></li>
+</ul>
+<div class="clear"></div>
+<span class="widget-item-control">
+<span class="item-control blog-admin">
+<a class="quickedit" href="http://www.blogger.com/rearrange?blogID=5235590154125226279&amp;widgetType=LinkList&amp;widgetId=LinkList1&amp;action=editWidget&amp;sectionId=sidebar" onclick='return _WidgetManager._PopupConfig(document.getElementById("LinkList1"));' target="configLinkList1" title="修改">
+<img alt="" src="zz2_files/icon18_wrench_allbkg.png" width="18" height="18">
+</a>
+</span>
+</span>
+<div class="clear"></div>
+</div>
+</div><div class="widget LinkList" id="LinkList4">
+<h2>推荐帖子(企业管理)</h2>
+<div class="widget-content">
+<ul>
+<li><a href="2011/03/hiring-experience-0.md">俺的招聘经验(系列)</a></li>
+<li><a href="2009/04/defect-of-hire.md">招聘的误区</a></li>
+<li><a href="2009/03/80-20-principle-3-management-hire.md">如何找到优秀的开发人才？</a></li>
+<li><a href="2009/03/80-20-principle-4-management-encourage.md">如何发挥员工的积极性？</a></li>
+</ul>
+<div class="clear"></div>
+<span class="widget-item-control">
+<span class="item-control blog-admin">
+<a class="quickedit" href="http://www.blogger.com/rearrange?blogID=5235590154125226279&amp;widgetType=LinkList&amp;widgetId=LinkList4&amp;action=editWidget&amp;sectionId=sidebar" onclick='return _WidgetManager._PopupConfig(document.getElementById("LinkList4"));' target="configLinkList4" title="修改">
+<img alt="" src="zz2_files/icon18_wrench_allbkg.png" width="18" height="18">
+</a>
+</span>
+</span>
+<div class="clear"></div>
+</div>
+</div><div class="widget LinkList" id="LinkList3">
+<h2>推荐帖子(职场点滴)</h2>
+<div class="widget-content">
+<ul>
+<li><a href="2009/01/0.md">如何成为优秀开发人员(系列)</a></li>
+<li><a href="2009/11/job-hopping.md">跳还是不跳，是一个问题？</a></li>
+<li><a href="2009/09/how-to-personal-branding.md">如何包装个人品牌？</a></li>
+</ul>
+<div class="clear"></div>
+<span class="widget-item-control">
+<span class="item-control blog-admin">
+<a class="quickedit" href="http://www.blogger.com/rearrange?blogID=5235590154125226279&amp;widgetType=LinkList&amp;widgetId=LinkList3&amp;action=editWidget&amp;sectionId=sidebar" onclick='return _WidgetManager._PopupConfig(document.getElementById("LinkList3"));' target="configLinkList3" title="修改">
+<img alt="" src="zz2_files/icon18_wrench_allbkg.png" width="18" height="18">
+</a>
+</span>
+</span>
+<div class="clear"></div>
+</div>
+</div><div class="widget HTML" id="HTML7">
+<h2 class="title">博客站内搜索</h2>
+<div class="widget-content">
+<img src="zz2_files/google.png" alt="Google" border="0"><br>
+<form method="GET" action="https://encrypted.google.com/search" target="_blank">
+<input name="ie" value="UTF-8" type="hidden">
+<input name="oe" value="UTF-8" type="hidden">
+<input name="sitesearch" value="program-think.blogspot.com" type="hidden">
+<input name="q" size="32" maxlength="128" type="text">
+<input name="search" value="Google" type="submit">
+</form>
+<br>
+<img src="zz2_files/bing.png" alt="Bing" border="0"><br>
+<form method="GET" action="http://www.bing.com/search" target="_blank">
+<input name="q1" value="site:program-think.blogspot.com" type="hidden">
+<input name="q" size="32" maxlength="128" type="text">
+<input name="search" value="Bing" type="submit">
+</form>
+</div>
+<div class="clear"></div>
+<span class="widget-item-control">
+<span class="item-control blog-admin">
+<a class="quickedit" href="http://www.blogger.com/rearrange?blogID=5235590154125226279&amp;widgetType=HTML&amp;widgetId=HTML7&amp;action=editWidget&amp;sectionId=sidebar" onclick='return _WidgetManager._PopupConfig(document.getElementById("HTML7"));' target="configHTML7" title="修改">
+<img alt="" src="zz2_files/icon18_wrench_allbkg.png" width="18" height="18">
+</a>
+</span>
+</span>
+<div class="clear"></div>
+</div><div class="widget Label" id="Label1">
+<h2>分类标签</h2>
+<div class="widget-content list-label-widget-content">
+<ul>
+<li>
+<a dir="ltr" href="search/label/IT">IT</a>
+<span dir="ltr">(120)</span>
+</li>
+<li>
+<a dir="ltr" href="search/label/IT.%E4%B8%9A%E7%95%8C%E8%AF%84%E8%AE%BA">IT.业界评论</a>
+<span dir="ltr">(12)</span>
+</li>
+<li>
+<a dir="ltr" href="search/label/IT.%E4%BF%A1%E6%81%AF%E5%AE%89%E5%85%A8">IT.信息安全</a>
+<span dir="ltr">(54)</span>
+</li>
+<li>
+<a dir="ltr" href="search/label/IT.%E7%BF%BB%E5%A2%99">IT.翻墙</a>
+<span dir="ltr">(33)</span>
+</li>
+<li>
+<a dir="ltr" href="search/label/IT.%E8%BD%AF%E4%BB%B6%E4%BB%8B%E7%BB%8D">IT.软件介绍</a>
+<span dir="ltr">(32)</span>
+</li>
+<li>
+<a dir="ltr" href="search/label/%E4%B9%A6%E8%AF%84%2F%E5%BD%B1%E8%AF%84">书评/影评</a>
+<span dir="ltr">(34)</span>
+</li>
+<li>
+<a dir="ltr" href="search/label/%E5%8D%9A%E5%AE%A2%E9%80%9A%E5%91%8A">博客通告</a>
+<span dir="ltr">(12)</span>
+</li>
+<li>
+<a dir="ltr" href="search/label/%E5%8E%86%E5%8F%B2">历史</a>
+<span dir="ltr">(53)</span>
+</li>
+<li>
+<a dir="ltr" href="search/label/%E5%AD%A6%E4%B9%A0%E6%96%B9%E6%B3%95">学习方法</a>
+<span dir="ltr">(9)</span>
+</li>
+<li>
+<a dir="ltr" href="search/label/%E5%AD%A6%E4%BC%9A%E6%80%9D%E8%80%83">学会思考</a>
+<span dir="ltr">(15)</span>
+</li>
+<li>
+<a dir="ltr" href="search/label/%E5%BF%83%E7%90%86%E5%AD%A6">心理学</a>
+<span dir="ltr">(21)</span>
+</li>
+<li>
+<a dir="ltr" href="search/label/%E6%94%BF%E6%B2%BB">政治</a>
+<span dir="ltr">(153)</span>
+</li>
+<li>
+<a dir="ltr" href="search/label/%E6%94%BF%E6%B2%BB.%E5%85%AB%E5%8D%A6">政治.八卦</a>
+<span dir="ltr">(12)</span>
+</li>
+<li>
+<a dir="ltr" href="search/label/%E6%94%BF%E6%B2%BB.%E5%85%B1%E4%BA%A7%E8%BF%90%E5%8A%A8">政治.共产运动</a>
+<span dir="ltr">(5)</span>
+</li>
+<li>
+<a dir="ltr" href="search/label/%E6%94%BF%E6%B2%BB.%E5%B8%B8%E8%AF%86">政治.常识</a>
+<span dir="ltr">(17)</span>
+</li>
+<li>
+<a dir="ltr" href="search/label/%E6%94%BF%E6%B2%BB.%E6%9D%83%E8%B4%B5">政治.权贵</a>
+<span dir="ltr">(16)</span>
+</li>
+<li>
+<a dir="ltr" href="search/label/%E6%94%BF%E6%B2%BB.%E6%B3%95%E5%88%B6">政治.法制</a>
+<span dir="ltr">(4)</span>
+</li>
+<li>
+<a dir="ltr" href="search/label/%E6%94%BF%E6%B2%BB.%E7%9C%9F%E7%90%86%E9%83%A8">政治.真理部</a>
+<span dir="ltr">(22)</span>
+</li>
+<li>
+<a dir="ltr" href="search/label/%E6%94%BF%E6%B2%BB.%E8%85%90%E8%B4%A5">政治.腐败</a>
+<span dir="ltr">(13)</span>
+</li>
+<li>
+<a dir="ltr" href="search/label/%E6%97%B6%E4%BA%8B%E8%AF%84%E8%AE%BA">时事评论</a>
+<span dir="ltr">(84)</span>
+</li>
+<li>
+<a dir="ltr" href="search/label/%E7%8E%AF%E4%BF%9D">环保</a>
+<span dir="ltr">(8)</span>
+</li>
+<li>
+<a dir="ltr" href="search/label/%E7%AE%A1%E7%90%86">管理</a>
+<span dir="ltr">(11)</span>
+</li>
+<li>
+<a dir="ltr" href="search/label/%E7%BB%8F%E6%B5%8E">经济</a>
+<span dir="ltr">(12)</span>
+</li>
+<li>
+<a dir="ltr" href="search/label/%E7%BC%96%E7%A8%8B">编程</a>
+<span dir="ltr">(65)</span>
+</li>
+<li>
+<a dir="ltr" href="search/label/%E7%BC%96%E7%A8%8B.C">编程.C</a>
+<span dir="ltr">(16)</span>
+</li>
+<li>
+<a dir="ltr" href="search/label/%E7%BC%96%E7%A8%8B.Java">编程.Java</a>
+<span dir="ltr">(13)</span>
+</li>
+<li>
+<a dir="ltr" href="search/label/%E7%BC%96%E7%A8%8B.Python">编程.Python</a>
+<span dir="ltr">(9)</span>
+</li>
+<li>
+<a dir="ltr" href="search/label/%E7%BC%96%E7%A8%8B.%E5%A4%9A%E7%BA%BF%E7%A8%8B">编程.多线程</a>
+<span dir="ltr">(6)</span>
+</li>
+<li>
+<a dir="ltr" href="search/label/%E7%BC%96%E7%A8%8B.%E5%BC%80%E6%BA%90%E9%A1%B9%E7%9B%AE">编程.开源项目</a>
+<span dir="ltr">(7)</span>
+</li>
+<li>
+<a dir="ltr" href="search/label/%E7%BC%96%E7%A8%8B.%E6%80%A7%E8%83%BD%E4%BC%98%E5%8C%96">编程.性能优化</a>
+<span dir="ltr">(6)</span>
+</li>
+<li>
+<a dir="ltr" href="search/label/%E7%BC%96%E7%A8%8B.%E6%9E%B6%E6%9E%84">编程.架构</a>
+<span dir="ltr">(6)</span>
+</li>
+<li>
+<a dir="ltr" href="search/label/%E7%BC%96%E7%A8%8B.%E8%BD%AF%E4%BB%B6%E5%B7%A5%E7%A8%8B">编程.软件工程</a>
+<span dir="ltr">(14)</span>
+</li>
+<li>
+<a dir="ltr" href="search/label/%E8%81%8C%E5%9C%BA%E7%82%B9%E6%BB%B4">职场点滴</a>
+<span dir="ltr">(14)</span>
+</li>
+<li>
+<a dir="ltr" href="search/label/%E8%BD%AC%E8%BD%BD">转载</a>
+<span dir="ltr">(75)</span>
+</li>
+</ul>
+<div class="clear"></div>
+<span class="widget-item-control">
+<span class="item-control blog-admin">
+<a class="quickedit" href="http://www.blogger.com/rearrange?blogID=5235590154125226279&amp;widgetType=Label&amp;widgetId=Label1&amp;action=editWidget&amp;sectionId=sidebar" onclick='return _WidgetManager._PopupConfig(document.getElementById("Label1"));' target="configLabel1" title="修改">
+<img alt="" src="zz2_files/icon18_wrench_allbkg.png" width="18" height="18">
+</a>
+</span>
+</span>
+<div class="clear"></div>
+</div>
+</div><div class="widget PopularPosts" id="PopularPosts1">
+<h2>最近30天热帖</h2>
+<div class="widget-content popular-posts">
+<ul>
+<li>
+<a href="2014/10/weekly-share-74.md">每周转载：香港占中民主运动的外媒报道和【大量】照片（9-29至10-2）</a>
+</li>
+<li>
+<a href="2009/06/opensource-review-revision-control.md">开源点评：源代码版本控制系统介绍</a>
+</li>
+<li>
+<a href="2014/10/weekly-share-73.md">每周转载：香港占中民主运动的外媒报道和【大量】照片（9-22至9-28）</a>
+</li>
+<li>
+<a href="2014/09/custom-blogger-comment.md"> 博客评论功能升级——增加“留言过滤”、“200条之后自动加载”等</a>
+</li>
+<li>
+<a href="2014/09/weekly-share-72.md">每周转载：关于苏格兰独立公投的网友评论</a>
+</li>
+<li>
+<a href="2014/09/oversimplification.md">各种一元化思维的谬误——从“星座理论”到“共产主义社会”</a>
+</li>
+<li>
+<a href="2014/07/gfw-fqrouter.md">“如何翻墙”系列：fqrouter——安卓系统翻墙利器（免ROOT）</a>
+</li>
+<li>
+<a href="2009/05/how-to-break-through-gfw.md">如何翻墙？——写在 BlogSpot 被封之后 {2014-08-11}</a>
+</li>
+<li>
+<a href="2014/05/gfw-news.md">2014年5月翻墙快报（继续补充 VPN Gate 经验）</a>
+</li>
+<li>
+<a href="2014/10/custom-blogger-ui.md">博客界面升级——增加“界面定制”、“文章目录”、“自动刷评论”、“全屏显示”等</a>
+</li>
+</ul>
+<div class="clear"></div>
+<span class="widget-item-control">
+<span class="item-control blog-admin">
+<a class="quickedit" href="http://www.blogger.com/rearrange?blogID=5235590154125226279&amp;widgetType=PopularPosts&amp;widgetId=PopularPosts1&amp;action=editWidget&amp;sectionId=sidebar" onclick='return _WidgetManager._PopupConfig(document.getElementById("PopularPosts1"));' target="configPopularPosts1" title="修改">
+<img alt="" src="zz2_files/icon18_wrench_allbkg.png" width="18" height="18">
+</a>
+</span>
+</span>
+<div class="clear"></div>
+</div>
+</div><div class="widget BlogArchive" id="BlogArchive2">
+<h2>历史归档</h2>
+<div class="widget-content">
+<div id="ArchiveList">
+<div id="BlogArchive2_ArchiveList">
+<ul class="hierarchy">
+<li class="archivedate expanded">
+<a class="toggle" href="javascript:void(0)">
+<span class="zippy toggle-open">▼&nbsp;</span>
+</a>
+<a class="post-count-link" href="search?updated-min=2014-01-01T00:00:00%2B08:00&amp;updated-max=2015-01-01T00:00:00%2B08:00&amp;max-results=50">2014</a>
+<span class="post-count" dir="ltr">(59)</span>
+<ul class="hierarchy">
+<li class="archivedate expanded">
+<a class="toggle" href="javascript:void(0)">
+<span class="zippy toggle-open">▼&nbsp;</span>
+</a>
+<a class="post-count-link" href="2014_10_01_archive.md">十月</a>
+<span class="post-count" dir="ltr">(3)</span>
+<ul class="posts">
+<li><a href="2014/10/custom-blogger-ui.md">博客界面升级——增加“界面定制”、“文章目录”、“自动刷评论”、“全屏显示”等</a></li>
+<li><a href="2014/10/weekly-share-74.md">每周转载：香港占中民主运动的外媒报道和【大量】照片（9-29至10-2）</a></li>
+<li><a href="2014/10/weekly-share-73.md">每周转载：香港占中民主运动的外媒报道和【大量】照片（9-22至9-28）</a></li>
+</ul>
+</li>
+</ul>
+<ul class="hierarchy">
+<li class="archivedate collapsed">
+<a class="toggle" href="javascript:void(0)">
+<span class="zippy">
+
+          ►&nbsp;
+        
+</span>
+</a>
+<a class="post-count-link" href="2014_09_01_archive.md">九月</a>
+<span class="post-count" dir="ltr">(5)</span>
+</li>
+</ul>
+<ul class="hierarchy">
+<li class="archivedate collapsed">
+<a class="toggle" href="javascript:void(0)">
+<span class="zippy">
+
+          ►&nbsp;
+        
+</span>
+</a>
+<a class="post-count-link" href="2014_08_01_archive.md">八月</a>
+<span class="post-count" dir="ltr">(6)</span>
+</li>
+</ul>
+<ul class="hierarchy">
+<li class="archivedate collapsed">
+<a class="toggle" href="javascript:void(0)">
+<span class="zippy">
+
+          ►&nbsp;
+        
+</span>
+</a>
+<a class="post-count-link" href="2014_07_01_archive.md">七月</a>
+<span class="post-count" dir="ltr">(5)</span>
+</li>
+</ul>
+<ul class="hierarchy">
+<li class="archivedate collapsed">
+<a class="toggle" href="javascript:void(0)">
+<span class="zippy">
+
+          ►&nbsp;
+        
+</span>
+</a>
+<a class="post-count-link" href="2014_06_01_archive.md">六月</a>
+<span class="post-count" dir="ltr">(6)</span>
+</li>
+</ul>
+<ul class="hierarchy">
+<li class="archivedate collapsed">
+<a class="toggle" href="javascript:void(0)">
+<span class="zippy">
+
+          ►&nbsp;
+        
+</span>
+</a>
+<a class="post-count-link" href="2014_05_01_archive.md">五月</a>
+<span class="post-count" dir="ltr">(6)</span>
+</li>
+</ul>
+<ul class="hierarchy">
+<li class="archivedate collapsed">
+<a class="toggle" href="javascript:void(0)">
+<span class="zippy">
+
+          ►&nbsp;
+        
+</span>
+</a>
+<a class="post-count-link" href="2014_04_01_archive.md">四月</a>
+<span class="post-count" dir="ltr">(7)</span>
+</li>
+</ul>
+<ul class="hierarchy">
+<li class="archivedate collapsed">
+<a class="toggle" href="javascript:void(0)">
+<span class="zippy">
+
+          ►&nbsp;
+        
+</span>
+</a>
+<a class="post-count-link" href="2014_03_01_archive.md">三月</a>
+<span class="post-count" dir="ltr">(7)</span>
+</li>
+</ul>
+<ul class="hierarchy">
+<li class="archivedate collapsed">
+<a class="toggle" href="javascript:void(0)">
+<span class="zippy">
+
+          ►&nbsp;
+        
+</span>
+</a>
+<a class="post-count-link" href="2014_02_01_archive.md">二月</a>
+<span class="post-count" dir="ltr">(4)</span>
+</li>
+</ul>
+<ul class="hierarchy">
+<li class="archivedate collapsed">
+<a class="toggle" href="javascript:void(0)">
+<span class="zippy">
+
+          ►&nbsp;
+        
+</span>
+</a>
+<a class="post-count-link" href="2014_01_01_archive.md">一月</a>
+<span class="post-count" dir="ltr">(10)</span>
+</li>
+</ul>
+</li>
+</ul>
+<ul class="hierarchy">
+<li class="archivedate collapsed">
+<a class="toggle" href="javascript:void(0)">
+<span class="zippy">
+
+          ►&nbsp;
+        
+</span>
+</a>
+<a class="post-count-link" href="search?updated-min=2013-01-01T00:00:00%2B08:00&amp;updated-max=2014-01-01T00:00:00%2B08:00&amp;max-results=50">2013</a>
+<span class="post-count" dir="ltr">(96)</span>
+<ul class="hierarchy">
+<li class="archivedate collapsed">
+<a class="toggle" href="javascript:void(0)">
+<span class="zippy">
+
+          ►&nbsp;
+        
+</span>
+</a>
+<a class="post-count-link" href="2013_12_01_archive.md">十二月</a>
+<span class="post-count" dir="ltr">(8)</span>
+</li>
+</ul>
+<ul class="hierarchy">
+<li class="archivedate collapsed">
+<a class="toggle" href="javascript:void(0)">
+<span class="zippy">
+
+          ►&nbsp;
+        
+</span>
+</a>
+<a class="post-count-link" href="2013_11_01_archive.md">十一月</a>
+<span class="post-count" dir="ltr">(7)</span>
+</li>
+</ul>
+<ul class="hierarchy">
+<li class="archivedate collapsed">
+<a class="toggle" href="javascript:void(0)">
+<span class="zippy">
+
+          ►&nbsp;
+        
+</span>
+</a>
+<a class="post-count-link" href="2013_10_01_archive.md">十月</a>
+<span class="post-count" dir="ltr">(5)</span>
+</li>
+</ul>
+<ul class="hierarchy">
+<li class="archivedate collapsed">
+<a class="toggle" href="javascript:void(0)">
+<span class="zippy">
+
+          ►&nbsp;
+        
+</span>
+</a>
+<a class="post-count-link" href="2013_09_01_archive.md">九月</a>
+<span class="post-count" dir="ltr">(3)</span>
+</li>
+</ul>
+<ul class="hierarchy">
+<li class="archivedate collapsed">
+<a class="toggle" href="javascript:void(0)">
+<span class="zippy">
+
+          ►&nbsp;
+        
+</span>
+</a>
+<a class="post-count-link" href="2013_08_01_archive.md">八月</a>
+<span class="post-count" dir="ltr">(6)</span>
+</li>
+</ul>
+<ul class="hierarchy">
+<li class="archivedate collapsed">
+<a class="toggle" href="javascript:void(0)">
+<span class="zippy">
+
+          ►&nbsp;
+        
+</span>
+</a>
+<a class="post-count-link" href="2013_07_01_archive.md">七月</a>
+<span class="post-count" dir="ltr">(7)</span>
+</li>
+</ul>
+<ul class="hierarchy">
+<li class="archivedate collapsed">
+<a class="toggle" href="javascript:void(0)">
+<span class="zippy">
+
+          ►&nbsp;
+        
+</span>
+</a>
+<a class="post-count-link" href="2013_06_01_archive.md">六月</a>
+<span class="post-count" dir="ltr">(10)</span>
+</li>
+</ul>
+<ul class="hierarchy">
+<li class="archivedate collapsed">
+<a class="toggle" href="javascript:void(0)">
+<span class="zippy">
+
+          ►&nbsp;
+        
+</span>
+</a>
+<a class="post-count-link" href="2013_05_01_archive.md">五月</a>
+<span class="post-count" dir="ltr">(10)</span>
+</li>
+</ul>
+<ul class="hierarchy">
+<li class="archivedate collapsed">
+<a class="toggle" href="javascript:void(0)">
+<span class="zippy">
+
+          ►&nbsp;
+        
+</span>
+</a>
+<a class="post-count-link" href="2013_04_01_archive.md">四月</a>
+<span class="post-count" dir="ltr">(10)</span>
+</li>
+</ul>
+<ul class="hierarchy">
+<li class="archivedate collapsed">
+<a class="toggle" href="javascript:void(0)">
+<span class="zippy">
+
+          ►&nbsp;
+        
+</span>
+</a>
+<a class="post-count-link" href="2013_03_01_archive.md">三月</a>
+<span class="post-count" dir="ltr">(11)</span>
+</li>
+</ul>
+<ul class="hierarchy">
+<li class="archivedate collapsed">
+<a class="toggle" href="javascript:void(0)">
+<span class="zippy">
+
+          ►&nbsp;
+        
+</span>
+</a>
+<a class="post-count-link" href="2013_02_01_archive.md">二月</a>
+<span class="post-count" dir="ltr">(8)</span>
+</li>
+</ul>
+<ul class="hierarchy">
+<li class="archivedate collapsed">
+<a class="toggle" href="javascript:void(0)">
+<span class="zippy">
+
+          ►&nbsp;
+        
+</span>
+</a>
+<a class="post-count-link" href="2013_01_01_archive.md">一月</a>
+<span class="post-count" dir="ltr">(11)</span>
+</li>
+</ul>
+</li>
+</ul>
+<ul class="hierarchy">
+<li class="archivedate collapsed">
+<a class="toggle" href="javascript:void(0)">
+<span class="zippy">
+
+          ►&nbsp;
+        
+</span>
+</a>
+<a class="post-count-link" href="search?updated-min=2012-01-01T00:00:00%2B08:00&amp;updated-max=2013-01-01T00:00:00%2B08:00&amp;max-results=50">2012</a>
+<span class="post-count" dir="ltr">(109)</span>
+<ul class="hierarchy">
+<li class="archivedate collapsed">
+<a class="toggle" href="javascript:void(0)">
+<span class="zippy">
+
+          ►&nbsp;
+        
+</span>
+</a>
+<a class="post-count-link" href="2012_12_01_archive.md">十二月</a>
+<span class="post-count" dir="ltr">(13)</span>
+</li>
+</ul>
+<ul class="hierarchy">
+<li class="archivedate collapsed">
+<a class="toggle" href="javascript:void(0)">
+<span class="zippy">
+
+          ►&nbsp;
+        
+</span>
+</a>
+<a class="post-count-link" href="2012_11_01_archive.md">十一月</a>
+<span class="post-count" dir="ltr">(10)</span>
+</li>
+</ul>
+<ul class="hierarchy">
+<li class="archivedate collapsed">
+<a class="toggle" href="javascript:void(0)">
+<span class="zippy">
+
+          ►&nbsp;
+        
+</span>
+</a>
+<a class="post-count-link" href="2012_10_01_archive.md">十月</a>
+<span class="post-count" dir="ltr">(11)</span>
+</li>
+</ul>
+<ul class="hierarchy">
+<li class="archivedate collapsed">
+<a class="toggle" href="javascript:void(0)">
+<span class="zippy">
+
+          ►&nbsp;
+        
+</span>
+</a>
+<a class="post-count-link" href="2012_09_01_archive.md">九月</a>
+<span class="post-count" dir="ltr">(10)</span>
+</li>
+</ul>
+<ul class="hierarchy">
+<li class="archivedate collapsed">
+<a class="toggle" href="javascript:void(0)">
+<span class="zippy">
+
+          ►&nbsp;
+        
+</span>
+</a>
+<a class="post-count-link" href="2012_08_01_archive.md">八月</a>
+<span class="post-count" dir="ltr">(9)</span>
+</li>
+</ul>
+<ul class="hierarchy">
+<li class="archivedate collapsed">
+<a class="toggle" href="javascript:void(0)">
+<span class="zippy">
+
+          ►&nbsp;
+        
+</span>
+</a>
+<a class="post-count-link" href="2012_07_01_archive.md">七月</a>
+<span class="post-count" dir="ltr">(12)</span>
+</li>
+</ul>
+<ul class="hierarchy">
+<li class="archivedate collapsed">
+<a class="toggle" href="javascript:void(0)">
+<span class="zippy">
+
+          ►&nbsp;
+        
+</span>
+</a>
+<a class="post-count-link" href="2012_06_01_archive.md">六月</a>
+<span class="post-count" dir="ltr">(8)</span>
+</li>
+</ul>
+<ul class="hierarchy">
+<li class="archivedate collapsed">
+<a class="toggle" href="javascript:void(0)">
+<span class="zippy">
+
+          ►&nbsp;
+        
+</span>
+</a>
+<a class="post-count-link" href="2012_05_01_archive.md">五月</a>
+<span class="post-count" dir="ltr">(10)</span>
+</li>
+</ul>
+<ul class="hierarchy">
+<li class="archivedate collapsed">
+<a class="toggle" href="javascript:void(0)">
+<span class="zippy">
+
+          ►&nbsp;
+        
+</span>
+</a>
+<a class="post-count-link" href="2012_04_01_archive.md">四月</a>
+<span class="post-count" dir="ltr">(9)</span>
+</li>
+</ul>
+<ul class="hierarchy">
+<li class="archivedate collapsed">
+<a class="toggle" href="javascript:void(0)">
+<span class="zippy">
+
+          ►&nbsp;
+        
+</span>
+</a>
+<a class="post-count-link" href="2012_03_01_archive.md">三月</a>
+<span class="post-count" dir="ltr">(5)</span>
+</li>
+</ul>
+<ul class="hierarchy">
+<li class="archivedate collapsed">
+<a class="toggle" href="javascript:void(0)">
+<span class="zippy">
+
+          ►&nbsp;
+        
+</span>
+</a>
+<a class="post-count-link" href="2012_02_01_archive.md">二月</a>
+<span class="post-count" dir="ltr">(6)</span>
+</li>
+</ul>
+<ul class="hierarchy">
+<li class="archivedate collapsed">
+<a class="toggle" href="javascript:void(0)">
+<span class="zippy">
+
+          ►&nbsp;
+        
+</span>
+</a>
+<a class="post-count-link" href="2012_01_01_archive.md">一月</a>
+<span class="post-count" dir="ltr">(6)</span>
+</li>
+</ul>
+</li>
+</ul>
+<ul class="hierarchy">
+<li class="archivedate collapsed">
+<a class="toggle" href="javascript:void(0)">
+<span class="zippy">
+
+          ►&nbsp;
+        
+</span>
+</a>
+<a class="post-count-link" href="search?updated-min=2011-01-01T00:00:00%2B08:00&amp;updated-max=2012-01-01T00:00:00%2B08:00&amp;max-results=50">2011</a>
+<span class="post-count" dir="ltr">(58)</span>
+<ul class="hierarchy">
+<li class="archivedate collapsed">
+<a class="toggle" href="javascript:void(0)">
+<span class="zippy">
+
+          ►&nbsp;
+        
+</span>
+</a>
+<a class="post-count-link" href="2011_12_01_archive.md">十二月</a>
+<span class="post-count" dir="ltr">(9)</span>
+</li>
+</ul>
+<ul class="hierarchy">
+<li class="archivedate collapsed">
+<a class="toggle" href="javascript:void(0)">
+<span class="zippy">
+
+          ►&nbsp;
+        
+</span>
+</a>
+<a class="post-count-link" href="2011_11_01_archive.md">十一月</a>
+<span class="post-count" dir="ltr">(6)</span>
+</li>
+</ul>
+<ul class="hierarchy">
+<li class="archivedate collapsed">
+<a class="toggle" href="javascript:void(0)">
+<span class="zippy">
+
+          ►&nbsp;
+        
+</span>
+</a>
+<a class="post-count-link" href="2011_10_01_archive.md">十月</a>
+<span class="post-count" dir="ltr">(3)</span>
+</li>
+</ul>
+<ul class="hierarchy">
+<li class="archivedate collapsed">
+<a class="toggle" href="javascript:void(0)">
+<span class="zippy">
+
+          ►&nbsp;
+        
+</span>
+</a>
+<a class="post-count-link" href="2011_09_01_archive.md">九月</a>
+<span class="post-count" dir="ltr">(4)</span>
+</li>
+</ul>
+<ul class="hierarchy">
+<li class="archivedate collapsed">
+<a class="toggle" href="javascript:void(0)">
+<span class="zippy">
+
+          ►&nbsp;
+        
+</span>
+</a>
+<a class="post-count-link" href="2011_08_01_archive.md">八月</a>
+<span class="post-count" dir="ltr">(4)</span>
+</li>
+</ul>
+<ul class="hierarchy">
+<li class="archivedate collapsed">
+<a class="toggle" href="javascript:void(0)">
+<span class="zippy">
+
+          ►&nbsp;
+        
+</span>
+</a>
+<a class="post-count-link" href="2011_07_01_archive.md">七月</a>
+<span class="post-count" dir="ltr">(4)</span>
+</li>
+</ul>
+<ul class="hierarchy">
+<li class="archivedate collapsed">
+<a class="toggle" href="javascript:void(0)">
+<span class="zippy">
+
+          ►&nbsp;
+        
+</span>
+</a>
+<a class="post-count-link" href="2011_06_01_archive.md">六月</a>
+<span class="post-count" dir="ltr">(5)</span>
+</li>
+</ul>
+<ul class="hierarchy">
+<li class="archivedate collapsed">
+<a class="toggle" href="javascript:void(0)">
+<span class="zippy">
+
+          ►&nbsp;
+        
+</span>
+</a>
+<a class="post-count-link" href="2011_05_01_archive.md">五月</a>
+<span class="post-count" dir="ltr">(6)</span>
+</li>
+</ul>
+<ul class="hierarchy">
+<li class="archivedate collapsed">
+<a class="toggle" href="javascript:void(0)">
+<span class="zippy">
+
+          ►&nbsp;
+        
+</span>
+</a>
+<a class="post-count-link" href="2011_04_01_archive.md">四月</a>
+<span class="post-count" dir="ltr">(4)</span>
+</li>
+</ul>
+<ul class="hierarchy">
+<li class="archivedate collapsed">
+<a class="toggle" href="javascript:void(0)">
+<span class="zippy">
+
+          ►&nbsp;
+        
+</span>
+</a>
+<a class="post-count-link" href="2011_03_01_archive.md">三月</a>
+<span class="post-count" dir="ltr">(9)</span>
+</li>
+</ul>
+<ul class="hierarchy">
+<li class="archivedate collapsed">
+<a class="toggle" href="javascript:void(0)">
+<span class="zippy">
+
+          ►&nbsp;
+        
+</span>
+</a>
+<a class="post-count-link" href="2011_02_01_archive.md">二月</a>
+<span class="post-count" dir="ltr">(2)</span>
+</li>
+</ul>
+<ul class="hierarchy">
+<li class="archivedate collapsed">
+<a class="toggle" href="javascript:void(0)">
+<span class="zippy">
+
+          ►&nbsp;
+        
+</span>
+</a>
+<a class="post-count-link" href="2011_01_01_archive.md">一月</a>
+<span class="post-count" dir="ltr">(2)</span>
+</li>
+</ul>
+</li>
+</ul>
+<ul class="hierarchy">
+<li class="archivedate collapsed">
+<a class="toggle" href="javascript:void(0)">
+<span class="zippy">
+
+          ►&nbsp;
+        
+</span>
+</a>
+<a class="post-count-link" href="search?updated-min=2010-01-01T00:00:00%2B08:00&amp;updated-max=2011-01-01T00:00:00%2B08:00&amp;max-results=40">2010</a>
+<span class="post-count" dir="ltr">(40)</span>
+<ul class="hierarchy">
+<li class="archivedate collapsed">
+<a class="toggle" href="javascript:void(0)">
+<span class="zippy">
+
+          ►&nbsp;
+        
+</span>
+</a>
+<a class="post-count-link" href="2010_12_01_archive.md">十二月</a>
+<span class="post-count" dir="ltr">(4)</span>
+</li>
+</ul>
+<ul class="hierarchy">
+<li class="archivedate collapsed">
+<a class="toggle" href="javascript:void(0)">
+<span class="zippy">
+
+          ►&nbsp;
+        
+</span>
+</a>
+<a class="post-count-link" href="2010_11_01_archive.md">十一月</a>
+<span class="post-count" dir="ltr">(4)</span>
+</li>
+</ul>
+<ul class="hierarchy">
+<li class="archivedate collapsed">
+<a class="toggle" href="javascript:void(0)">
+<span class="zippy">
+
+          ►&nbsp;
+        
+</span>
+</a>
+<a class="post-count-link" href="2010_10_01_archive.md">十月</a>
+<span class="post-count" dir="ltr">(2)</span>
+</li>
+</ul>
+<ul class="hierarchy">
+<li class="archivedate collapsed">
+<a class="toggle" href="javascript:void(0)">
+<span class="zippy">
+
+          ►&nbsp;
+        
+</span>
+</a>
+<a class="post-count-link" href="2010_09_01_archive.md">九月</a>
+<span class="post-count" dir="ltr">(4)</span>
+</li>
+</ul>
+<ul class="hierarchy">
+<li class="archivedate collapsed">
+<a class="toggle" href="javascript:void(0)">
+<span class="zippy">
+
+          ►&nbsp;
+        
+</span>
+</a>
+<a class="post-count-link" href="2010_08_01_archive.md">八月</a>
+<span class="post-count" dir="ltr">(4)</span>
+</li>
+</ul>
+<ul class="hierarchy">
+<li class="archivedate collapsed">
+<a class="toggle" href="javascript:void(0)">
+<span class="zippy">
+
+          ►&nbsp;
+        
+</span>
+</a>
+<a class="post-count-link" href="2010_07_01_archive.md">七月</a>
+<span class="post-count" dir="ltr">(2)</span>
+</li>
+</ul>
+<ul class="hierarchy">
+<li class="archivedate collapsed">
+<a class="toggle" href="javascript:void(0)">
+<span class="zippy">
+
+          ►&nbsp;
+        
+</span>
+</a>
+<a class="post-count-link" href="2010_06_01_archive.md">六月</a>
+<span class="post-count" dir="ltr">(4)</span>
+</li>
+</ul>
+<ul class="hierarchy">
+<li class="archivedate collapsed">
+<a class="toggle" href="javascript:void(0)">
+<span class="zippy">
+
+          ►&nbsp;
+        
+</span>
+</a>
+<a class="post-count-link" href="2010_05_01_archive.md">五月</a>
+<span class="post-count" dir="ltr">(3)</span>
+</li>
+</ul>
+<ul class="hierarchy">
+<li class="archivedate collapsed">
+<a class="toggle" href="javascript:void(0)">
+<span class="zippy">
+
+          ►&nbsp;
+        
+</span>
+</a>
+<a class="post-count-link" href="2010_04_01_archive.md">四月</a>
+<span class="post-count" dir="ltr">(4)</span>
+</li>
+</ul>
+<ul class="hierarchy">
+<li class="archivedate collapsed">
+<a class="toggle" href="javascript:void(0)">
+<span class="zippy">
+
+          ►&nbsp;
+        
+</span>
+</a>
+<a class="post-count-link" href="2010_03_01_archive.md">三月</a>
+<span class="post-count" dir="ltr">(3)</span>
+</li>
+</ul>
+<ul class="hierarchy">
+<li class="archivedate collapsed">
+<a class="toggle" href="javascript:void(0)">
+<span class="zippy">
+
+          ►&nbsp;
+        
+</span>
+</a>
+<a class="post-count-link" href="2010_02_01_archive.md">二月</a>
+<span class="post-count" dir="ltr">(5)</span>
+</li>
+</ul>
+<ul class="hierarchy">
+<li class="archivedate collapsed">
+<a class="toggle" href="javascript:void(0)">
+<span class="zippy">
+
+          ►&nbsp;
+        
+</span>
+</a>
+<a class="post-count-link" href="2010_01_01_archive.md">一月</a>
+<span class="post-count" dir="ltr">(1)</span>
+</li>
+</ul>
+</li>
+</ul>
+<ul class="hierarchy">
+<li class="archivedate collapsed">
+<a class="toggle" href="javascript:void(0)">
+<span class="zippy">
+
+          ►&nbsp;
+        
+</span>
+</a>
+<a class="post-count-link" href="search?updated-min=2009-01-01T00:00:00%2B08:00&amp;updated-max=2010-01-01T00:00:00%2B08:00&amp;max-results=50">2009</a>
+<span class="post-count" dir="ltr">(93)</span>
+<ul class="hierarchy">
+<li class="archivedate collapsed">
+<a class="toggle" href="javascript:void(0)">
+<span class="zippy">
+
+          ►&nbsp;
+        
+</span>
+</a>
+<a class="post-count-link" href="2009_12_01_archive.md">十二月</a>
+<span class="post-count" dir="ltr">(1)</span>
+</li>
+</ul>
+<ul class="hierarchy">
+<li class="archivedate collapsed">
+<a class="toggle" href="javascript:void(0)">
+<span class="zippy">
+
+          ►&nbsp;
+        
+</span>
+</a>
+<a class="post-count-link" href="2009_11_01_archive.md">十一月</a>
+<span class="post-count" dir="ltr">(1)</span>
+</li>
+</ul>
+<ul class="hierarchy">
+<li class="archivedate collapsed">
+<a class="toggle" href="javascript:void(0)">
+<span class="zippy">
+
+          ►&nbsp;
+        
+</span>
+</a>
+<a class="post-count-link" href="2009_10_01_archive.md">十月</a>
+<span class="post-count" dir="ltr">(1)</span>
+</li>
+</ul>
+<ul class="hierarchy">
+<li class="archivedate collapsed">
+<a class="toggle" href="javascript:void(0)">
+<span class="zippy">
+
+          ►&nbsp;
+        
+</span>
+</a>
+<a class="post-count-link" href="2009_09_01_archive.md">九月</a>
+<span class="post-count" dir="ltr">(3)</span>
+</li>
+</ul>
+<ul class="hierarchy">
+<li class="archivedate collapsed">
+<a class="toggle" href="javascript:void(0)">
+<span class="zippy">
+
+          ►&nbsp;
+        
+</span>
+</a>
+<a class="post-count-link" href="2009_08_01_archive.md">八月</a>
+<span class="post-count" dir="ltr">(4)</span>
+</li>
+</ul>
+<ul class="hierarchy">
+<li class="archivedate collapsed">
+<a class="toggle" href="javascript:void(0)">
+<span class="zippy">
+
+          ►&nbsp;
+        
+</span>
+</a>
+<a class="post-count-link" href="2009_07_01_archive.md">七月</a>
+<span class="post-count" dir="ltr">(5)</span>
+</li>
+</ul>
+<ul class="hierarchy">
+<li class="archivedate collapsed">
+<a class="toggle" href="javascript:void(0)">
+<span class="zippy">
+
+          ►&nbsp;
+        
+</span>
+</a>
+<a class="post-count-link" href="2009_06_01_archive.md">六月</a>
+<span class="post-count" dir="ltr">(6)</span>
+</li>
+</ul>
+<ul class="hierarchy">
+<li class="archivedate collapsed">
+<a class="toggle" href="javascript:void(0)">
+<span class="zippy">
+
+          ►&nbsp;
+        
+</span>
+</a>
+<a class="post-count-link" href="2009_05_01_archive.md">五月</a>
+<span class="post-count" dir="ltr">(8)</span>
+</li>
+</ul>
+<ul class="hierarchy">
+<li class="archivedate collapsed">
+<a class="toggle" href="javascript:void(0)">
+<span class="zippy">
+
+          ►&nbsp;
+        
+</span>
+</a>
+<a class="post-count-link" href="2009_04_01_archive.md">四月</a>
+<span class="post-count" dir="ltr">(10)</span>
+</li>
+</ul>
+<ul class="hierarchy">
+<li class="archivedate collapsed">
+<a class="toggle" href="javascript:void(0)">
+<span class="zippy">
+
+          ►&nbsp;
+        
+</span>
+</a>
+<a class="post-count-link" href="2009_03_01_archive.md">三月</a>
+<span class="post-count" dir="ltr">(15)</span>
+</li>
+</ul>
+<ul class="hierarchy">
+<li class="archivedate collapsed">
+<a class="toggle" href="javascript:void(0)">
+<span class="zippy">
+
+          ►&nbsp;
+        
+</span>
+</a>
+<a class="post-count-link" href="2009_02_01_archive.md">二月</a>
+<span class="post-count" dir="ltr">(21)</span>
+</li>
+</ul>
+<ul class="hierarchy">
+<li class="archivedate collapsed">
+<a class="toggle" href="javascript:void(0)">
+<span class="zippy">
+
+          ►&nbsp;
+        
+</span>
+</a>
+<a class="post-count-link" href="2009_01_01_archive.md">一月</a>
+<span class="post-count" dir="ltr">(18)</span>
+</li>
+</ul>
+</li>
+</ul>
+</div>
+</div>
+<div class="clear"></div>
+<span class="widget-item-control">
+<span class="item-control blog-admin">
+<a class="quickedit" href="http://www.blogger.com/rearrange?blogID=5235590154125226279&amp;widgetType=BlogArchive&amp;widgetId=BlogArchive2&amp;action=editWidget&amp;sectionId=sidebar" onclick='return _WidgetManager._PopupConfig(document.getElementById("BlogArchive2"));' target="configBlogArchive2" title="修改">
+<img alt="" src="zz2_files/icon18_wrench_allbkg.png" width="18" height="18">
+</a>
+</span>
+</span>
+<div class="clear"></div>
+</div>
+</div><div class="widget HTML" id="HTML1">
+<div class="widget-content">
+<script type="text/javascript">
+// Global functions
+
+function getUrlParam(sUrl, sName)
+{
+  if(null == sUrl)
+  {
+    sUrl = location.search;
+  }
+  sName = sName.replace(/[\[]/, "\\[").replace(/[\]]/, "\\]");
+  var regex = new RegExp("[\\?&]" + sName + "=([^&#]*)");
+  var results = regex.exec(sUrl);
+  return (results==null) ? "" : decodeURIComponent(results[1].replace(/\+/g, " "));
+}
+
+function scrollToElement($element)
+{
+  jQuery("html,body").animate(
+    {
+      scrollTop: $element.offset().top
+    },
+    "fast"
+  );
+}
+
+function adjustElementPos($element, offset)
+{
+  var x = offset.left;
+  var y = offset.top;
+
+  x = (x < 0) ? 0 : x;
+  y = (y < 0) ? 0 : y;
+
+  if( x > jQuery(window).width() - $element.width() )
+  {
+    x = jQuery(window).width() - $element.width();
+  }
+  if( y > jQuery(window).height() - $element.height() )
+  {
+    y = jQuery(window).height() - $element.height();
+  }
+
+  $element.css({ left:x, top:y });
+  return { left:x, top:y };
+}
+
+function clickElement($element)
+{
+  var offset = $element.offset();
+  var event = jQuery.Event(
+    "mousedown",
+    {
+      which: 1,
+      pageX: offset.left,
+      pageY: offset.top
+    }
+  );
+  $element.trigger(event);
+}
+
+// To minimize encodeURIComponent() output and keep readability,
+// use this format in cookie:
+// key1(value1)key2(value2)
+
+function hadConfig()
+{
+  var regex = /^(?:.+?;)?\s*options\s*\=\s*([^;]*).*$/
+  return document.cookie.match(regex) ? true : false;
+}
+
+function loadConfig()
+{
+  var mapDefaultConfig =
+  {
+    "article.font-size" : "100",
+    "article.inner-index" : "true",
+
+    "comments.font-size" : "100",
+    "comments.bbcode-img" : "auto",
+
+    "tweets.font-size" : "100",
+    "tweets.init-num" : "50",
+    "tweets.auto-load" : "true",
+    "tweets.auto-load-timeout" : "5",
+
+    "side-toolbar.show" : "true",
+    "side-toolbar.drag" : "true",
+    "side-toolbar.drag-pos" : ""
+  };
+
+  var results = document.cookie.match(/^(?:.+?;)?\s*options\s*\=\s*([^;]*).*$/);
+  if(!results || results.length!=2)
+  {
+    return mapDefaultConfig;
+  }
+
+  var arrItems = decodeURIComponent(results[1]).split(")");
+  var mapConfig = {};
+  for(var i=0; i<arrItems.length-1; i++)
+  {
+    var results = arrItems[i].match(/^(.+?)\((.+)$/);
+    if(results && results.length==3)
+    {
+      var sKey = results[1].trim();
+      if(sKey.length > 0)
+      {
+        mapConfig[sKey] = results[2].trim();
+      }
+    }
+  }
+
+  for(var sKey in mapDefaultConfig)
+  {
+    if(!(sKey in mapConfig))
+    {
+      mapConfig[sKey] = mapDefaultConfig[sKey];
+    }
+  }
+
+  return mapConfig;
+}  // loadConfig() end
+
+function saveConfig(mapConfig, nExpireDays)
+{
+  var sConfig = "";
+  for(var sKey in mapConfig)
+  {
+    sConfig += sKey+"("+mapConfig[sKey]+")";
+  }
+  sConfig = encodeURIComponent(sConfig);
+
+  var dt = new Date();
+  dt.setTime(dt.getTime() + nExpireDays*24*60*60*1000);
+  document.cookie = "options="+sConfig + ";expires="+dt.toUTCString() + ";path=/";
+
+  return hadConfig();
+}
+
+function showBottomTip(sText, nTimeout)
+{
+  var $element = jQuery("#bottom-tip");
+  $element.md(sText);
+  sText = $element.md();
+  $element.show();
+
+  if(nTimeout > 0)
+  {
+    var timer = setTimeout(
+      function()
+      {
+        clearTimeout(timer);
+        timer = null;
+
+        if($element.md() == sText)
+        {
+          hideBottomTip();
+        }
+      },
+      nTimeout
+    );
+  }
+}
+
+function hideBottomTip()
+{
+  jQuery("#bottom-tip").hide().md("");
+}
+
+function layoutReset()
+{
+  $("#sidebar").show();
+  $("#main").css("width", "67%");
+  $("#comments").show();
+  $("#Header1").show();
+
+  var mapConfig = loadConfig();
+  if("true" == mapConfig["side-toolbar.show"])
+  {
+    $("#side-toolbar").show();
+  }
+
+  $(".maximize").show();
+  $(".minimize").hide();
+}
+
+
+jQuery(function($)
+{
+  function initArticleInnerLinks(mapConfig)
+  {
+    if("true" != mapConfig["article.inner-index"])
+    {
+      return;
+    }
+    if($(".post-inner-index").length == 0)
+    {
+      return;
+    }
+
+    $(".post-inner-index").css("padding-bottom", "2em")
+        .append("<div><b style='font-size:120%;'>文章目录</b></div>");
+
+    $(".post-body h2").each(
+      function(nIndex)
+      {
+        var sHash = "head-"+(nIndex+1);
+        $(this).before("<a name='"+sHash+"'></a>");
+        $(".post-inner-index").append("<a href='#"+sHash+"'>"+$(this).md()+"</a><br/>");
+      }
+    );
+  }
+
+  function initArticleMaxMinBox()
+  {
+    $(".post-toolbar-1 .post-config-buttons")
+        .append("<a href='/p/options.md#auto-load' target='_blank' title='界面配置'><img src='http://lh5.googleusercontent.com/-qH1f8q9gQ2c/VDyK-qD1MwI/AAAAAAAABDE/NQS-KMY3rgc/config_32x32.png' alt='配置'/></a>")
+        .append("<a class='maximize' title='进入全屏模式' href='javascript:;'><img src='http://lh4.googleusercontent.com/-xvmbNnFdxWU/VDx_uEPOw1I/AAAAAAAAA_s/-zd0eweSahg/maximize_32x32.png' alt='全屏'/></a>")
+        .append("<a class='minimize' title='退出全屏模式' href='javascript:;'><img src='http://lh4.googleusercontent.com/-sijQmuC36C4/VDyBM8xDLeI/AAAAAAAABAc/fG3M6jUli74/minimize_32x32.png' alt='恢复'/></a>")
+
+    $(".post-config-buttons .maximize").click(
+      function()
+      {
+        $("#sidebar").hide();
+        $("#main").css("width", "100%");
+        $("#comments").hide();
+        $("#Header1").hide();
+
+        var mapConfig = loadConfig();
+        if("true" == mapConfig["side-toolbar.show"])
+        {
+          $("#side-toolbar").hide();
+        }
+
+        $(".post-config-buttons .minimize").show();
+        $(this).hide();
+
+        scrollToElement($("a[name=article]"));
+      }
+    );
+    $(".post-config-buttons .minimize").hide().click( function() { layoutReset(); } );
+  }  // initArticleMaxMinBox() end
+
+  function initTooltip()
+  {
+    $(document).tooltip({
+      content: function(callback)
+      {
+        callback( $(this).attr("title").replace(/\n/g, "<br/>") );
+      },
+      open: function(event, ui)
+      {
+        ui.tooltip.hover( function() { $(this).hide("fade");  } );
+        var timer = setTimeout(
+          function ()
+          {
+            clearTimeout(timer);
+            timer = null;
+            $(ui.tooltip).hide("fade");
+          },
+          3000
+        );
+      }
+    });
+  }  // initTooltip() end
+
+  var RATIO_NUM = 10000;
+
+  function loadToolbarPos()
+  {
+    if(!hadConfig())
+    {
+      return;
+    }
+    var mapConfig = loadConfig();
+    if(mapConfig["side-toolbar.show"]!="true" || mapConfig["side-toolbar.drag"]!="true")
+    {
+      return;
+    }
+
+    $("#side-toolbar").css("margin-left", "0px");
+    $("#side-toolbar").css("margin-top", "0px");
+
+    var sPos = mapConfig["side-toolbar.drag-pos"];
+    if(sPos.match(/\d{1,5}_\d{1,5}/))
+    {
+      var offset = {
+        left: parseInt(sPos.split("_")[0]),
+        top: parseInt(sPos.split("_")[1])
+      };
+      offset.left = Math.round($(window).width() * offset.left / RATIO_NUM);
+      offset.top = Math.round($(window).height() * offset.top / RATIO_NUM);
+
+      if(offset.left > $(window).width()/2)
+      {
+        offset.left -= $("#side-toolbar").width();
+      }
+      if(offset.top > $(window).height()/2)
+      {
+        offset.top -= $("#side-toolbar").height();
+      }
+      adjustElementPos($("#side-toolbar"), offset);
+    }
+    else if("" == sPos)
+    {
+      var offset = {
+        left: $(window).width() - 38,
+        top: $(window).height()/2 - 60
+      };
+      adjustElementPos($("#side-toolbar"), offset);
+    }
+  }
+
+  function saveToolbarPos()
+  {
+    var offset = $("#side-toolbar").offset();
+    offset.left = offset.left - $(window).scrollLeft();
+    offset.top = offset.top - $(window).scrollTop();
+    offset = adjustElementPos($("#side-toolbar"), offset);
+
+    if(!hadConfig())
+    {
+      showBottomTip("到&#8220;<a href='/p/options.md' target='_blank'>界面配置</a>&#8221;开启相关选项&#65292;既可&#12304;自动保存&#12305;工具条的位置", 10000);
+      return;
+    }
+    var mapConfig = loadConfig();
+    if(mapConfig["side-toolbar.show"]!="true" || mapConfig["side-toolbar.drag"]!="true")
+    {
+      return;
+    }
+
+    if(offset.left > $(window).width()/2)
+    {
+      offset.left += $("#side-toolbar").width();
+    }
+    if(offset.top > $(window).height()/2)
+    {
+      offset.top += $("#side-toolbar").height();
+    }
+
+    offset.left = Math.round(offset.left / $(window).width() * RATIO_NUM);
+    offset.top = Math.round(offset.top / $(window).height() * RATIO_NUM);
+
+    mapConfig["side-toolbar.drag-pos"] = offset.left+"_"+offset.top;
+    if(saveConfig(mapConfig))
+    {
+      showBottomTip("已经把工具条的位置保存到 cookie 中&#12290;", 3000);
+    }
+    else
+    {
+      showBottomTip("&#12304;无法&#12305;保存工具条的位置到 cookie 中&#65281;请检查你的浏览器设置&#12290;", 5000);
+    }
+  }
+
+  function initToolbar(mapConfig)
+  {
+    if(mapConfig["side-toolbar.show"] != "true")
+    {
+      return;
+    }
+
+    $("#side-toolbar .go-options").show();
+    if("true" == mapConfig["side-toolbar.drag"])
+    {
+      $("#side-toolbar .drag").show();
+      $("#side-toolbar").draggable({
+        cancel: "a",
+        cursor: "move",
+        start: function(event, ui)
+               {
+                 $("#side-toolbar").css("margin-left", "0px");
+                 $("#side-toolbar").css("margin-top", "0px");
+               },
+        stop: function(event, ui) { saveToolbarPos(); }
+      });
+    }
+
+    $(window).resize(
+      function(event)
+      {
+        var timer = setTimeout(
+          function()
+          {
+            clearTimeout(timer);
+            timer = null;
+            loadToolbarPos();
+          },
+          300
+        );
+      }
+    );
+    $(window).trigger("resize");  // trick
+    $("#side-toolbar").css("visibility", "visible");
+  }  // initToolbar() end
+
+  function init()
+  {
+    var mapConfig = loadConfig();
+
+    // Apply font size
+    $(".post").css("font-size", mapConfig["article.font-size"]+"%");
+    $("#comments").css("font-size", mapConfig["comments.font-size"]+"%");
+    $("#tweets").css("font-size", mapConfig["tweets.font-size"]+"%");
+
+    initArticleMaxMinBox();
+
+    initToolbar(mapConfig);
+    initTooltip();
+
+    initArticleInnerLinks(mapConfig);
+  }
+
+  $(document).ready(
+    function()
+    {
+      try
+      {
+        init();
+      }
+      catch(err)
+      {
+      }
+    }
+  );
+});
+</script>
+
+<div style="display: block;" id="bottom-tip">本文的【全部评论】已经加载完成</div>
+
+<div style="visibility: visible;" class="ui-draggable" id="side-toolbar">
+  <div class="drag" style="cursor: move;">
+    <img title="拖拽到你满意的位置" alt="拖拽" src="zz2_files/cross_32x32.png">
+  </div>
+  <div class="go-home">
+    <a href="" title="跳转到俺博客主页"><img alt="主页" src="zz2_files/home_32x32.png"></a>
+  </div>
+  <div class="go-article">
+    <a href="#article" title="跳转到正文区"><img alt="正文" src="zz2_files/article_32x32.png"></a>
+  </div>
+  <div class="go-comments">
+    <a class="comment-number" href="#comments" title="跳转到评论区"></a>
+  </div>
+  <div class="go-tweets">
+    <a href="#tweets" title="跳转到最新评论区"><img alt="最新" src="zz2_files/tweets_32x32.png"></a>
+  </div>
+  <div class="go-options" style="">
+    <a href="p/options.md" target="_blank" title="跳转到界面配置"><img alt="配置" src="zz2_files/config_32x32.png"></a>
+  </div>
+</div>
+
+
+<!--[if lt IE 9 ]> <div id="ie-ver-old"></div> <![endif]-->
+<!--[if gt IE 8 ]> <div id="ie-ver-new"></div> <![endif]-->
+
+
+<style type="text/css">
+
+/*--@ jQueryUI font @--*/
+.ui-widget {
+  font: 100% "Trebuchet MS",verdana,sans-serif !important;
+}
+.ui-widget .ui-widget {
+  font: 90% "Trebuchet MS",verdana,sans-serif !important;
+}
+
+/*--@ jQueryUI tooltip @--*/
+.ui-tooltip {
+  background: #F0F0C0 !important;
+  border-radius: 15px !important;
+  font-size: 100% !important;
+  max-width: 640px !important;
+}
+
+/*--@ jQueryUI progressbar @--*/
+.ui-progressbar {
+  position: relative;
+}
+
+/*--@ Message tip at bottom @--*/
+#bottom-tip {
+  display: none;
+  background-color: #C0C0C0;
+  border: 1px solid #808080;
+  text-align: center;
+  font-size: 125%;
+  z-index: 1024;
+  position: fixed;
+  left: 0;
+  bottom: 0;
+  width: 100%;
+  height: 64px;
+  line-height: 64px;
+}
+
+/*--@ Toolbar on right side @--*/
+#side-toolbar {
+  display: none;
+  visibility: hidden;
+  background-color: #E0E0E0;
+  border: 1px solid #808080;
+  z-index: 1024;
+  position: fixed;
+  top: 50%;
+  margin-top: -60px;
+  left: 100%;
+  margin-left: -38px;
+  width: 38px;
+  height: auto;
+  padding: 3px;
+  font-size: 15px;
+}
+#side-toolbar div {
+  width: 32px;
+  height: 32px;
+  border: none;
+  margin: 0px;
+  padding: 0px;
+}
+
+#side-toolbar .go-comments {
+  text-align: center;
+  background: url(http://lh5.googleusercontent.com/-ldAVi5TiroM/VDyL8gW5qfI/AAAAAAAABD0/WsLjo5ACfcI/comments_32x32.png) no-repeat scroll 0px 0px transparent;
+}
+#side-toolbar .go-comments a,
+#side-toolbar .go-comments a:link,
+#side-toolbar .go-comments a:visited {
+  text-decoration: none;
+  color: #F000F0;
+}
+#side-toolbar .go-comments .comment-number:after {
+  line-height: 25px;
+  font-size: 10px;
+}
+
+.post-toolbar-1 .post-config-buttons a {
+  margin: 0px 3px;
+}
+</style>
+
+
+<noscript>
+<style type="text/css">
+
+/*--@ Message tip at bottom @--*/
+#bottom-tip {
+  display: block !important;
+}
+#bottom-tip:after {
+  font-weight: bold;
+  content: "你的浏览器不支持 JavaScript/JS 脚本, 导致某些功能无法正常显示 :(";
+}
+
+/*--@ Toolbar on right side @--*/
+#side-toolbar {
+  visibility: visible !important;
+}
+
+</style>
+</noscript>
+</div>
+<div class="clear"></div>
+<span class="widget-item-control">
+<span class="item-control blog-admin">
+<a class="quickedit" href="http://www.blogger.com/rearrange?blogID=5235590154125226279&amp;widgetType=HTML&amp;widgetId=HTML1&amp;action=editWidget&amp;sectionId=sidebar" onclick='return _WidgetManager._PopupConfig(document.getElementById("HTML1"));' target="configHTML1" title="修改">
+<img alt="" src="zz2_files/icon18_wrench_allbkg.png" width="18" height="18">
+</a>
+</span>
+</span>
+<div class="clear"></div>
+</div><div class="widget HTML" id="HTML5">
+<div class="widget-content">
+<script defer="defer" type="text/javascript">
+jQuery(function($)
+{
+  var g_nTotalCommentNum = 0;
+
+  function initCounter()
+  {
+    function getCommentUrl($link)
+    {
+      var $comment = $link.closest("li.comment");
+      if( $link.length>0 && $comment.find(".comment-content:first .deleted-comment").length==0 )
+      {
+        return $link.attr("href").replace(/(\?|&)showComment=/i, "$1comment=")
+                                .replace(/#c\d+$/i, "");
+      }
+      else
+      {
+        return null;
+      }
+    }
+
+    $(".comments .comment-thread:first ol:first").children("li.comment").each(
+      function(nIndex)
+      {
+        var sLevel = (nIndex+1) + "楼";
+
+        var $topComment = $(this);
+        var $topCommentDate = $topComment.find(".comment-header:first .datetime a");
+
+        var sCommentUrl = getCommentUrl($topCommentDate);
+        if(sCommentUrl)
+        {
+          $topCommentDate.attr("href", sCommentUrl);
+          $topComment.find(".comment-header:first")
+                    .append("<a class='counter' href='"+sCommentUrl+"'/>");
+        }
+        else
+        {
+          $topComment.find(".comment-header:first").append("<span class='counter'/>");
+        }
+        $topComment.find(".counter:first").css("font-size", "125%").md(sLevel);
+
+        $topComment.find(".comment-actions:first a:first").append(sLevel);
+        $topComment.find(".comment-actions:first .blog-admin a:first").append(sLevel);
+        $topComment.find(".comment-replies .continue a:first").append(sLevel);
+
+        $topComment.find("li.comment").each(
+          function(nIndex)
+          {
+            var $subComment = $(this);
+            var $subCommentDate = $subComment.find(".comment-header:first .datetime a");
+
+            var sCommentUrl = getCommentUrl($subCommentDate);
+            if(sCommentUrl)
+            {
+              $subCommentDate.attr("href", sCommentUrl);
+              $subComment.find(".comment-header:first")
+                        .append("<a class='counter' href='"+sCommentUrl+"'/>");
+            }
+            else
+            {
+              $subComment.find(".comment-header:first").append("<span class='counter'/>");
+            }
+            $subComment.find(".counter:first").md(sLevel + " " + (nIndex+1) + "单元");
+
+            $subComment.find(".comment-actions:first .blog-admin a:first").append((nIndex+1) + "单元");
+          }
+        );
+      }
+    );
+  }  // initCounter() end
+
+  function initFilter()
+  {
+    $(".comments li.comment").each(
+      function(nIndex)
+      {
+        var sUser = $(this).find("cite.user:first").md();
+
+        var sHtml = "";
+        if("匿名" == sUser)
+        {
+          sHtml = "<a class='hide'>隐藏所有匿名评论</a>"
+                + "<a class='reset'>显示所有评论</a>";
+        }
+        else if(sUser.match(/ href="https?\:\/\/www\.blogger\.com\/profile\/\d+"/i))
+        {
+          sHtml = "<a class='show'>只看此人的评论</a>"
+                + "<a class='hide'>隐藏此人的评论</a>"
+                + "<a class='reset'>显示所有评论</a>";
+        }
+        else
+        {
+          sHtml = "<a class='show'>只看与此人同名的评论</a>"
+                + "<a class='hide'>隐藏与此人同名的评论</a>"
+                + "<a class='reset'>显示所有评论</a>";
+        }
+        var $actions = $(this).find(".comment-actions:first");
+        $actions.append("&#12288;<span class='filter'>"+sHtml+"</span>");
+        $actions.find(".filter a").attr("href", "javascript:;");
+        $actions.find(".filter .reset").hide();
+        $actions.children(".filter").hide();
+      }
+    );
+
+    $(".comments .comment-block").hover(
+      function()
+      {
+        $(this).find(".comment-actions:first .filter").show();
+      },
+      function()
+      {
+        $(this).find(".comment-actions:first .filter").hide();
+      }
+    );
+
+    $(".comments .filter .show").click(
+      function()
+      {
+        var nOldNum = $(".comments li.comment:visible").length;
+        var $curComment = $(this).closest("li.comment");
+        var sUser = $curComment.find("cite.user:first").md();
+
+        $(".comments li.comment").each(
+          function(nIndex)
+          {
+            if($(this).find("cite.user:first").md() == sUser)
+            {
+              $(this).find(".filter .hide").hide();
+            }
+          }
+        );
+
+        $(".comments .comment-thread:first ol:first").children("li.comment").each(
+          function(nIndex)
+          {
+            var $topComment = $(this);
+
+            if($topComment.find("cite.user:first").md() == sUser)
+            {
+              return;
+            }
+
+            var bHad = false;
+            $topComment.find("li.comment").each(
+              function(nIndex)
+              {
+                if($(this).find("cite.user:first").md() == sUser)
+                {
+                  bHad = true;
+                }
+                else
+                {
+                  $(this).hide();
+                }
+              }
+            );
+            if(!bHad)
+            {
+              $topComment.hide();
+            }
+          }
+        );
+
+        $(".comments .filter .show").hide();
+        $(".comments .filter .reset").show();
+        scrollToElement($curComment);
+
+        if(true)
+        {
+          var nNewNum = $(".comments li.comment:visible").length;
+          showBottomTip("已经过滤 " + (nOldNum-nNewNum) + " 条评论&#65292;还剩下 "
+                        + nNewNum +" 条评论", 3000);
+        }
+      }
+    );
+
+    $(".comments .filter .hide").click(
+      function()
+      {
+        var nOldNum = $(".comments li.comment:visible").length;
+        var $curComment = $(this).closest("li.comment");
+        var sUser = $curComment.find("cite.user:first").md();
+
+        $(".comments li.comment").each(
+          function(nIndex)
+          {
+            if($(this).find("cite.user:first").md() == sUser)
+            {
+              $(this).hide();
+            }
+          }
+        );
+        $(".comments .filter .reset").show();
+        scrollToElement($(".comments"));
+
+        if(true)
+        {
+          var nNewNum = $(".comments li.comment:visible").length;
+          showBottomTip("已经过滤 " + (nOldNum-nNewNum) + " 条评论&#65292;还剩下 "
+                        + nNewNum +" 条评论", 3000);
+        }
+      }
+    );
+
+    $(".comments .filter .reset").click(
+      function()
+      {
+        $(".comments li.comment").show();
+        $(".comments .filter a").show();
+        $(".comments .filter .reset").hide();
+        scrollToElement($(this).closest("li.comment"));
+
+        showBottomTip("已经重新显示全部 "+ g_nTotalCommentNum +" 条评论", 3000);
+      }
+    );
+  }  // initFilter() end
+
+  function renderUser()
+  {
+    var sAdminOldAvatar1 = "http://1.bp.blogspot.com/-XePI_9_4Qmw/Th5EhWLzFmI/AAAAAAAAAf4/-WZBwo-0frU/s45/Thinker.jpg";
+    var sAdminOldAvatar2 = "http://1.bp.blogspot.com/-AmZd_cbsMA8/Th5EbQ2_22I/AAAAAAAAAfg/loksvIqGzic/s220/Thinker.jpg";
+    var sAdminNewAvatar = "http://lh6.googleusercontent.com/-fpaYncBYqKs/Th477aX8reI/AAAAAAAAAco/nkud5M9T64w/s48/Thinker.jpg";
+
+    $(".comments li.comment .avatar-image-container img").each(
+      function(nIndex)
+      {
+        var sAvatarUrl = $(this).attr("src");
+
+        if(sAvatarUrl==sAdminOldAvatar1 || sAvatarUrl==sAdminOldAvatar2)
+        {
+          $(this).attr("src", sAdminNewAvatar);
+          //$(this).closest("li.comment").children(".comment-block")
+          //      .css("border-color", "#A0A0A0").css("border-style", "dashed");
+        }
+
+        if("http://img1.blogblog.com/img/anon36.png" == sAvatarUrl)
+        {
+          var $comment_user = $(this).closest("li.comment").find("cite.user:first");
+          if($comment_user.md() == "Anonymous")
+          {
+            $comment_user.md("匿名");
+          }
+        }
+      }
+    );
+  }  // renderUser() end
+
+  function renderBBCode()
+  {
+    var sUrlPattern = "https?:\\/\\/[\\w\\-]+(?:\\.[\\w\\-]+)+(?:\\:\\d+)?\\/?[\\w\\-\\/\\.\\+\\(\\)\\*%!@~=\\,\\:]*(?:\\?[\\w\\-]+=[\\w\\-\\/\\.\\+\\(\\)\\*%!@~]*(?:&amp;[\\w\\-]+=[\\w\\-\\/\\.\\+\\(\\)\\*%!@~=\\,\\:]*)*)?(?:#[\\w\\-\\/\\.\\+\\(\\)\\*%!@~=\\,\\:]*)?";
+
+    var sTextPattern = "[\\w\\s\\,\\-\\+\\.\\:\\/\\?\\!@\\u4E00-\\u9FFF\\u2000-\\u206F\\u25A0-\\u26FF\\u3000-\\u303F\\uFF00-\\uFFEF]+?";
+
+    var mapConfig = loadConfig();
+
+    function getBBCodeImgHtml()
+    {
+      var sShowType = mapConfig["comments.bbcode-img"];
+
+      if("disable" == sShowType)
+      {
+        return "你已经设置了&#8212;&#8212;&#12304;<b>禁止显示</b>&#12305;BBCode图片&#65292;该图片的网址如下&#65306;<br/>$1";
+      }
+      else if("manual" == sShowType)
+      {
+        return "你已经设置了&#8212;&#8212;&#12304;<b>手动显示</b>&#12305;BBCode图片&#65292;该图片的网址如下&#65306;<br/>"
+            + "<b class='img-url'>$1</b><br/>"
+            + "<span>如果你认为该图片位于&#12304;可信任&#12305;的网站上&#65292;可点击&#65306;<a class='load'>加载并显示图片</a></span>"
+            + "<img class='prepare'/>";
+      }
+      else
+      {
+        return "<img class='loaded' src='$1'/>";
+      }
+    }
+
+    var arrRepInfo = [
+      [new RegExp("(^|>|\\s)("+sUrlPattern+")($|<|\\s)", "g"),
+          "$1<a href='$2' class='bbcode simple'>$2</a>$3"],
+      [new RegExp("\\[url\\]("+sUrlPattern+")\\[\\/url\\]", "g"),
+          "<a href='$1' class='bbcode without-text'>$1</a>"],
+      [new RegExp("\\[url=("+sUrlPattern+")\\]("+sTextPattern+")\\[\\/url\\]", "g"),
+          "<a href='$1' class='bbcode with-text'>$2</a>"],
+      [new RegExp("\\[img\\]("+sUrlPattern+")\\[\\/img\\]", "g"),
+          "<div class='bbcode-img'>"+getBBCodeImgHtml()+"</div>"],
+      [new RegExp("\\[b\\]("+sTextPattern+")\\[\\/b\\]", "g"),
+          "<b>$1</b>"],
+      [new RegExp("\\[i\\]("+sTextPattern+")\\[\\/i\\]", "g"),
+          "<i>$1</i>"],
+      [new RegExp("\\[del\\]("+sTextPattern+")\\[\\/del\\]", "g"),
+          "<del>$1</del>"]
+    ];
+
+    var nRepInfoLen = arrRepInfo.length;
+    $(".comments .comment-content").each(
+      function(nIndex)
+      {
+        var sText = $(this).md();
+        for(var i=0; i<nRepInfoLen; i++)
+        {
+          sText = sText.replace(arrRepInfo[i][0], arrRepInfo[i][1]);
+        }
+        $(this).md(sText);
+      }
+    );
+
+    var sInvalidChar = "\n\n&#65288;文字部分&#12304;不要&#12305;使用如下的半角符号&#65292;需要的话&#65292;改用全角符号&#65289;\n\\ < > ( ) ' \" & # $ %";
+    var sUrlProto = "\n\n&#65288;网址必须以 http:// 或 https:// 开头&#65289;";
+
+    var arrTipInfo = [
+      ["a.simple", "超链接语法&#65306;\n评论中的网址&#65292;如果两端是空格或换行&#65292;评论发布后会自动变成可点击的超链接&#12290;" + sUrlProto],
+      ["a.without-text", "超链接语法&#65306;\n[url]网址[/url]" + sUrlProto],
+      ["a.with-text", "超链接语法&#65306;\n[url=网址]标题文字[/url]" + sUrlProto + sInvalidChar],
+      ["img", "图片语法&#65306;\n[img]图片网址[/img]"+ sUrlProto],
+      ["b", "粗体语法&#65306;\n[b]带粗体的文字[/b]" + sInvalidChar],
+      ["i", "斜体语法&#65306;\n[i]带斜体的文字[/i]" + sInvalidChar],
+      ["del", "删除线语法&#65306;\n[del]带删除线的文字[/del]" + sInvalidChar]
+    ];
+    for(var i=0; i<arrTipInfo.length; i++)
+    {
+      var sSelector = ".comments .comment-content "+arrTipInfo[i][0];
+      $(sSelector).attr("title", arrTipInfo[i][1]);
+    }
+
+    $(".comments .comment-content a.bbcode").attr("target", "_blank").attr("rel", "nofollow");
+
+    $(".comments .comment-content img").each(
+      function(nIndex)
+      {
+        $(this).attr("onerror", "this.alt='&#12288;图片加载失败 :(&#12288;'")
+        if($(this).is(".prepare"))
+        {
+          $(this).attr("alt", "&#12288;正在载入图片...&#12288;").hide();
+        }
+      }
+    );
+
+    $(".comments .comment-content .bbcode-img").append(
+      "<br/>&#65288;要修改&#8220;BBCode图片的显示方式&#8221;&#65292;请猛击&#8220;<a href='/p/options.md#bbcode' target='_blank'>界面配置</a>&#8221;&#65289;"
+    );
+    $(".comments .comment-content .bbcode-img a.load").each(
+      function(nIndex)
+      {
+        $(this).click(
+          function()
+          {
+            var $img_group = $(this).closest(".bbcode-img");
+            var sImgUrl = $img_group.find(".img-url").md();
+            $img_group.children("img.prepare").attr("src", sImgUrl).show();
+            $(this).parent().hide();
+          }
+        ).attr("href", "javascript:;");
+      }
+    );
+
+    var sSelector = ".comments .comment-content a,"
+                    + ".comments .comment-content img,"
+                    + ".comments .comment-content b,"
+                    + ".comments .comment-content i,"
+                    + ".comments .comment-content del"
+    $(sSelector).tooltip({
+      content: function(callback)
+      {
+        callback( $(this).attr("title").replace(/\n/g, "<br/>") );
+      },
+      open: function(event, ui)
+      {
+        ui.tooltip.hover(
+          function()
+          {
+            $(this).hide("fade");
+          }
+        );
+        var timer = setTimeout(
+          function()
+          {
+            clearTimeout(timer);
+            timer = null;
+            $(ui.tooltip).hide("fade");
+          },
+          6000
+        );
+      }
+    });
+  }  // renderBBCode() end
+
+  function complete()
+  {
+    $(".comments #comment-holder ol:first").show()  // restore visible
+        .css("margin-bottom", "4em");
+
+    // Scroll to current comment
+    var sCommentId = getUrlParam(null, "comment");
+    if(sCommentId)
+    {
+      $(".comments .comment-header a.counter").each(
+        function(nIndex)
+        {
+          if($(this).attr("href").indexOf(sCommentId) > 0)
+          {
+            scrollToElement($(this).closest("li.comment"));
+            return false;
+          }
+        }
+      );
+    }
+
+    showBottomTip("本文的&#12304;全部评论&#12305;已经加载完成", 4000);
+    $(".comments .comment-form p").md("&#65288;如果评论发布之后没有出现&#65292;可能是<b>被Google误判为垃圾广告</b>&#12290;俺会定期把误判的评论恢复出来&#65289;");
+  }  // complete() end
+
+  function renderComments()
+  {
+    initCounter();
+    initFilter();
+    renderUser();
+    renderBBCode();
+    complete();
+  }
+
+  function loadComments()
+  {
+    var $loading = $(".comments .comments-loading");
+    $loading.append("<div><b>正在加载评论</b></div>"
+                + "<div class='progress-bar'><div class='progress-label'/></div>");
+    var $progressBar = $loading.find(".progress-bar");
+    var $progressLabel = $loading.find(".progress-label");
+    $loading.show();
+
+    function setProgress()
+    {
+      if(g_nTotalCommentNum > 200)
+      {
+        var nPercent = Math.round( ($(".comments li.comment").length-200)
+                                 * 100 / (g_nTotalCommentNum-200) );
+        $progressBar.progressbar({value: nPercent});
+        $progressLabel.md(nPercent+"%");
+      }
+    }
+    setProgress();
+
+    var $button = $(".comments .loadmore a");
+    $button.md("");
+    clickElement($button);
+
+    var timer = setInterval(
+      function()
+      {
+        setProgress();
+        var sLabel = $button.md();
+        if("没有更多评论页&amp;#65281;" == sLabel)
+        {
+          clearInterval(timer);
+          timer = null;
+
+          renderComments();
+          $loading.hide();
+        }
+        else if("加载更多..." == sLabel)
+        {
+          $button.md("");
+          clickElement($button);
+        }
+      },
+      200
+    );
+  }  // loadComments() end
+
+  function init()
+  {
+    g_nTotalCommentNum = parseInt($(".comments #comment-label").attr("data-count"));
+
+    if($(".comments li.comment").length == g_nTotalCommentNum)
+    {
+      renderComments();
+      return;
+    }
+
+    if($("#ie-ver-old").length > 0)
+    {
+      $(".comments .comments-warning").md("评论数超过200&#65292;博客系统默认只显示前面200条&#12290;<br/>&#12304;因为你的 IE 版本太老&#12305;&#65292;无法自动加载200条之后的评论 :(<br/>赶紧升级 IE 或者换个浏览器吧&#65281;");
+      $(".comments .comments-content").show();  // restore visible
+      return;
+    }
+
+    $(".comments #comment-holder ol:first").hide();
+    $(".comments .comments-content").show();
+    loadComments();
+  }
+
+  $(document).ready(
+    function()
+    {
+      try
+      {
+        if($(".comments").length > 0)
+        {
+          init();
+        }
+      }
+      catch(err)
+      {
+      }
+    }
+  );
+});
+</script>
+
+
+<style type="text/css">
+
+.comments {
+  margin-left: 0px !important;
+}
+
+/*--@ Label @--*/
+.comments #comment-label {
+  font-size: 140% !important;
+}
+
+/*--@ Loading message @--*/
+.comments .comments-loading {
+  display: none;
+  width: 100%;
+  font-size: 125%;
+  text-align: left;
+}
+.comments .comments-loading .progress-label {
+  position: absolute;
+  left: 50%;
+  margin-left: -20px;
+  top: 50%;
+  margin-top: -10px;
+  font-size: 20px;
+  font-weight: bold;
+}
+
+/*--@ Warning message @--*/
+.comments .comments-warning {
+  font-weight: bold;
+}
+
+/*--@ Threads @--*/
+.comments .comment-thread ol {
+  list-style-type: none !important;
+}
+.comments .comment-block {
+  background: transparent;
+  background-color: #E0E0E0;
+  padding: 10px !important;
+  border: 3px solid #D0D0D0;
+  border-radius: 10px;
+  margin-left: 60px !important;
+}
+.comments .thread-expanded li.comment {
+  margin: 0px !important;
+  padding: 0px !important;
+}
+.comments .thread-expanded li.comment .comment-block {
+  background-color: #D0D0D0;
+  border: 2px solid #C0C0C0;
+}
+
+/*--@ Button of toggle @--*/
+.comments .thread-count a {
+  visibility: hidden !important;
+  display: none !important;
+}
+.comments .thread-expanded .thread-arrow {
+  width: 60px !important;
+  height: 18px !important;
+  background: url(http://lh4.googleusercontent.com/-4ERG2oTbBto/VCLpPtQq6TI/AAAAAAAAAwY/McjQoGb27Hs/expanded.png) no-repeat scroll 0px 3px transparent;
+}
+.comments .thread-expanded .thread-arrow:after {
+  content: "折叠";
+  float: right;
+  color: #808080;
+}
+.comments .thread-collapsed .thread-arrow {
+  width: 60px !important;
+  height: 18px !important;
+  background: url(http://lh6.googleusercontent.com/-75fy7CaLijk/VCLpob33T4I/AAAAAAAAAwo/N5ANIayhyfU/collapsed.png) no-repeat scroll 0px 3px transparent;
+}
+.comments .thread-collapsed .thread-arrow:after {
+  content: "展开";
+  float: right;
+  color: #808080;
+}
+
+/*--@ Comment header @--*/
+.comments .comment-header .counter {
+  float: right;
+  text-align: right;
+  font-size: 100%;
+}
+.comments .comment-header .datetime {
+  margin-left: 12px !important;
+}
+
+/*--@ Comment text @--*/
+.comments .comment-content del {
+  color: grey;
+}
+
+/*--@ Button of actions @--*/
+.comments .comment-actions a {
+  padding-left: 5px !important;
+  padding-right: 5px !important;
+}
+
+/*--@ Deleted comment @--*/
+.comments .deleted-comment {
+  font-style: italic !important;
+  color: #606060 !important;
+}
+.comments .deleted-comment:after {
+  content: "( 此处的 '作者' 指的是评论的作者, 不是指博主 )";
+}
+
+/*--@ Image of avatar @--*/
+.comments .avatar-image-container,
+.comments .avatar-image-container img {
+  width: 48px !important;
+  height: 48px !important;
+  max-width: 48px !important;
+  max-height: 48px !important;
+  border: none !important;
+}
+
+/*--@ Image of BBcode @--*/
+.comments .comment-content a[target="_blank"] {
+  background: transparent url(http://lh3.googleusercontent.com/-Gvp33TYNyrw/SY01Gm5ITiI/AAAAAAAAAao/6Uh-A5Lm5tk/external_link.gif) no-repeat scroll right center;
+  padding-right: 13px;
+}
+.comments .comment-content img {
+  max-width: 720px;
+  border: 1px solid black;
+}
+.comments .comment-content .bbcode-img {
+  border:1px solid #909090;
+}
+
+/*--@ Editor @--*/
+.comments .comment-form p {
+  font-size: 120% !important;
+  margin-top: 0em !important;
+}
+
+/*--@ Button of 'load more' @--*/
+.comments .loadmore {
+  margin-top: 0em !important;
+}
+.comments .loadmore a {
+  visibility: hidden !important;
+  display: none !important;
+}
+
+/*--@ Comment footer @--*/
+.comments .comment-footer {
+  padding-bottom: 0px !important;
+}
+
+</style>
+
+
+<noscript>
+<style type="text/css">
+
+/*--@ Warning message @--*/
+.comments .comments-warning:before {
+  content: "评论数超过200, 博客系统默认只显示前面200条, 因为你的浏览器不支持 JS 脚本, 无法自动加载200条之后的评论 :(";
+}
+
+/*--@ Thread @--*/
+.comments .comment-thread .continue a,
+.comments .comment-block .comment-actions a,
+.comments iframe#comment-editor {
+  visibility: hidden !important;
+  display: none !important;
+}
+.comments .thread-toggle {
+  cursor: default !important;
+}
+.comments .thread-toggle .thread-arrow:after {
+  content: "";
+}
+
+/*--@ Comment header @--*/
+.comments .comment-thread ol {
+  counter-reset: comment_counter;
+}
+.comments .comment-thread li .comment-header:after {
+  content: counter(comment_counter,decimal) "楼";
+  counter-increment: comment_counter;
+  float: right;
+  position: relative;
+  z-index: 1;
+  font-size: 125%;
+  color: #0066FF;
+  border: none;
+}
+
+.comments .comment-thread ol ol {
+  counter-reset: child_comment_counter;
+}
+.comments .comment-thread li li .comment-header:after {
+  content: counter(comment_counter,decimal) "楼 " counter(child_comment_counter,decimal) "单元";
+  counter-increment: child_comment_counter;
+  font-size: 100%;
+}
+
+/*--@ Button of 'load more' @--*/
+.comments .loadmore {
+  margin-top: 2em !important;
+  cursor: default !important;
+}
+
+/*--@ Editor @--*/
+.comments .comment-form p:after {
+  font-weight: bold;
+  content: "由于你的浏览器不支持 JS 脚本, 所以无法发布新的评论 :(";
+}
+
+</style>
+</noscript>
+</div>
+<div class="clear"></div>
+<span class="widget-item-control">
+<span class="item-control blog-admin">
+<a class="quickedit" href="http://www.blogger.com/rearrange?blogID=5235590154125226279&amp;widgetType=HTML&amp;widgetId=HTML5&amp;action=editWidget&amp;sectionId=sidebar" onclick='return _WidgetManager._PopupConfig(document.getElementById("HTML5"));' target="configHTML5" title="修改">
+<img alt="" src="zz2_files/icon18_wrench_allbkg.png" width="18" height="18">
+</a>
+</span>
+</span>
+<div class="clear"></div>
+</div><div class="widget HTML" id="HTML4">
+<h2 class="title">最新评论</h2>
+<div class="widget-content">
+<script type="text/javascript">
+jQuery(function($)
+{
+  var g_nLoadNum = 0;
+  var g_bLoading = false;
+
+  var g_nAutoLoadTimeout = null;
+  var g_nAutoLoadCount = null;
+
+  var g_nSpamNum = 0;
+
+
+  function loadTweets(bInit, bAuto)
+  {
+    $("#tweets .comments-loading").md(bInit ? "正在加载 ..." : "正在刷新 ...");
+
+    g_bLoading = true;
+    $.getJSON(
+      "feeds/comments/default?alt=json&max-results="+g_nLoadNum,
+      function(json)
+      {
+        g_bLoading = false;
+
+        $("#tweets .comments-loading").md("");
+        loadComplete(json, bInit, bAuto);
+      }
+    );
+  }
+
+  function loadComplete(json, bInit, bAuto)
+  {
+    var nShowNum = showTweets(json, bInit);
+
+    if(!bAuto && !bInit)  // Manual refresh
+    {
+      $("#tweets .comments-toolbar .refresh").show();
+      if(nShowNum > 0)
+      {
+        showBottomTip("发现了 <b>"+nShowNum+"</b> 条新的评论", 4000);
+      }
+      else
+      {
+        showBottomTip("&#12304;没有&#12305;发现新的评论", 4000);
+      }
+    }
+
+    if(bInit)
+    {
+      $("#tweets .comments-toolbar .refresh").show();
+      if( getUrlParam(null, "comment")
+          && $("#comments .comments-loading").is(":visible") )
+      {
+        scrollToElement($("#comments"));  // Jump to see comments loading progressbar
+      }
+    }
+  }
+
+  function Comment(json)
+  {
+    this.sId = "";
+    this.sUrl = "";
+    this.sUser = "";
+    this.sImgUrl = "";
+    this.sText = "";
+    this.sDate = "";
+
+    for(var i=0; i<json.link.length; i++)
+    {
+      if(json.link[i].rel == "alternate")
+      {
+        this.sUrl = json.link[i].href;
+        break;
+      }
+    }
+
+    if(this.sUrl)
+    {
+      this.sUrl = this.sUrl.replace(/(\?|&)showComment=/i, "$1comment=")
+                            .replace(/#c\d+$/i, "");
+      this.sId = getUrlParam(this.sUrl, "comment");
+    }
+
+    this.sImgUrl = json.author[0].gd$image.src;
+    if("http://img1.blogblog.com/img/blank.gif" == sImgUrl)
+    {
+      this.sImgUrl = "http://img1.blogblog.com/img/anon36.png";
+    }
+
+    this.sUser = json.author[0].name.$t;
+    if("http://img1.blogblog.com/img/anon36.png" == this.sImgUrl
+      && "Anonymous" == this.sUser)
+    {
+      this.sUser = "匿名";
+    }
+
+    if("content" in json)
+    {
+      this.sText = json.content.$t;
+    }
+    else if("summary" in json)
+    {
+      this.sText = json.summary.$t;
+    }
+
+    if("此评论已被作者删除"+String.fromCharCode(12290) == this.sText)
+    {
+      this.sText = "<i><b>" + this.sUser + "</b> 自己把这条评论删除了 :(</i>";
+    }
+    else
+    {
+      this.sText = this.sText.replace(/\u003C/gi, "<")
+                              .replace(/\u003E/gi, ">")
+                              .replace(/<\s*br\s*(\/)?\s*>/gi, "\n")
+                              .replace(/<.*?>|\|&#/g, "");
+    }
+
+    for(var i=0; i<json.gd$extendedProperty.length; i++)
+    {
+      if("blogger.displayTime" == json.gd$extendedProperty[i].name)
+      {
+        this.sDate = json.gd$extendedProperty[i].value;
+        break;
+      }
+    }
+    return this;
+  }  // Comment() end
+
+  function insertCommentElement($content, comment)
+  {
+    var sHtml = "<div class='comment-block' id='comment-"+comment.sId+"'>"
+              + "<div class='comment-header'>"
+              + "<img class='avatar'/><cite class='user'/><span class='datetime'/></div>"
+              + "<div class='comment-text'><a/></div>"
+              + "</div>";
+    if($content.children(".comment-block").length > 0)
+    {
+      $content.children(".comment-block:first").before(sHtml);
+    }
+    else
+    {
+      $content.append(sHtml);
+    }
+
+    var $comment_block = $content.children("#comment-"+comment.sId);
+    var $comment_header = $comment_block.children(".comment-header");
+
+
+    var nMaxTextLen = 128;
+    var nMaxUserNameLen = 16;
+
+    var $comment_user = $comment_header.children("cite.user");
+    if(comment.sUser.length > nMaxUserNameLen)
+    {
+      $comment_user.attr("title", comment.sUser)
+                  .md(comment.sUser.substring(0, nMaxUserNameLen)+"...");
+    }
+    else
+    {
+      $comment_user.md(comment.sUser);
+    }
+    $comment_header.children(".datetime").md(comment.sDate);
+    $comment_header.children("img.avatar").attr("src", comment.sImgUrl);
+
+    var $comment_link = $comment_block.find(".comment-text a");
+    $comment_link.attr("href", comment.sUrl);
+    if(comment.sUrl.indexOf(location.pathname) > 0)  // current page
+    {
+      if(getUrlParam(null, "test"))
+      {
+      // Find existed anchor
+      var sCommentId = getUrlParam(comment.sUrl, "comment");
+      $("#comments .comment-header a.counter").each(
+        function(nIndex)
+        {
+          if($(this).attr("href").indexOf(sCommentId) > 0)
+          {
+            $comment_link.click(
+              function()
+              {
+                scrollToElement($(this).closest("li.comment"));
+                return false;
+              }
+            );
+            return false;
+          }
+        }
+      );
+      }
+    }
+    else
+    {
+      $comment_link.attr("target", "_blank")
+          .after("<img src='http://lh3.googleusercontent.com/-Gvp33TYNyrw/SY01Gm5ITiI/AAAAAAAAAao/6Uh-A5Lm5tk/external_link.gif'/>");
+    }
+
+    if(comment.sText.length > nMaxTextLen)
+    {
+      $comment_link.attr("title", comment.sText);
+      $comment_link.tooltip({
+        content: function(callback)
+        {
+          callback( $(this).attr("title").replace(/\n/g, "<br/>") );
+        },
+        open: function(event, ui)
+        {
+          ui.tooltip.hover(
+            function()
+            {
+              $(this).hide("fade");
+            }
+          );
+        }
+      });
+
+      comment.sText = comment.sText.substring(0, nMaxTextLen) + " ......";
+    }
+    $comment_link.md(comment.sText.replace(/\n/g, "<br/>"));
+
+    return $comment_block;
+  }  // insertCommentElement() end
+
+  function showTweets(json, bInit)
+  {
+    var nShowNum = 0;
+    var $content = $("#tweets .comments-content");
+    for(var n=json.feed.entry.length-1; n>=0; n--)
+    {
+      var comment = Comment(json.feed.entry[n]);
+
+      if(!comment.sText.match(/[\u4E00-\u9FFF]+/))  // Not found chinese char
+      {
+        g_nSpamNum += 1;
+        continue;
+      }
+
+      if(!bInit && $content.children("#comment-"+comment.sId).length>0)
+      {
+        continue;
+      }
+
+      var $comment_block = insertCommentElement($content, comment);
+      if(!bInit)
+      {
+        nShowNum += 1;
+        $comment_block.css("background-color", "#F0F0C0");
+      }
+    }
+
+    if(g_nSpamNum > 0)
+    {
+      $("#tweets .spam-count").md(""+g_nSpamNum).parent().show();
+    }
+
+    if(nShowNum > 0)
+    {
+      var timer = setTimeout(
+        function()
+        {
+          clearTimeout(timer);
+          timer = null;
+
+          for(var i=0; i<nShowNum; i++)
+          {
+            $content.children(".comment-block").eq(i).css("background-color", "white");
+          }
+        },
+        1000*10
+      );
+    }
+
+    return nShowNum;
+  }  // showTweets() end
+
+  function initAutoLoad(mapConfig)
+  {
+    if(mapConfig["tweets.auto-load"] != "true")
+    {
+      $("#tweets .comments-auto-load .disable").show();
+      return;
+    }
+
+    var nMinutes = parseInt(mapConfig["tweets.auto-load-timeout"]);
+    if(isNaN(nMinutes) || nMinutes<=0)
+    {
+      showBottomTip("&#8220;最新评论区&#8221;自动刷新功能的时间间隔&#65292;&#12304;配置参数有误&#12305;&#12290;请重新设置&#12290;", 6000);
+      return;
+    }
+    $("#tweets .comments-auto-load .enable .timeout").md(""+nMinutes);
+    $("#tweets .comments-auto-load .enable").show();
+
+    g_nLoadNum = Math.round(Math.sqrt(nMinutes) * 5);
+    if(g_nLoadNum > 100)
+    {
+      g_nLoadNum = 100;
+    }
+
+    g_nAutoLoadTimeout = nMinutes*60;
+    g_nAutoLoadCount = g_nAutoLoadTimeout;
+
+    setInterval(
+      function()
+      {
+        if(!g_bLoading)
+        {
+          g_nAutoLoadCount -= 1;
+          //$("#tweets .comments-loading").md(""+g_nAutoLoadCount);
+          if(g_nAutoLoadCount <= 0)
+          {
+            g_nAutoLoadCount = g_nAutoLoadTimeout;
+            loadTweets(false, true);
+          }
+        }
+      },
+      1000
+    );
+  }  // initAutoLoad() end
+
+  function init()
+  {
+    var mapConfig = loadConfig();
+    g_nLoadNum = parseInt(mapConfig["tweets.init-num"]);
+    if(isNaN(g_nLoadNum))
+    {
+      g_nLoadNum = 50;
+    }
+    loadTweets(true, false);
+
+    $("#tweets .comments-toolbar .refresh").click(
+      function()
+      {
+        $(this).hide();
+        loadTweets(false, false);
+      }
+    );
+
+    initAutoLoad(mapConfig);
+  }
+
+  $(document).ready(
+    function()
+    {
+      try
+      {
+        init();
+      }
+      catch(err)
+      {
+      }
+    }
+  );
+});
+</script>
+
+
+<a name="tweets"></a>
+<div style="font-size: 100%;" id="tweets">
+  <div class="comments-toolbar">
+    <a class="feed-link" href="feeds/comments/default" title="订阅最新评论"><img src="zz2_files/feed-icon-animated.gif" alt="订阅地址"></a>
+    <a href="p/options.md#auto-load" target="_blank" title="界面定制"><img src="zz2_files/config_32x32_002.png" alt="界面定制"></a>
+    <a class="refresh" href="javascript:;" title="手动刷新" style=""><img src="zz2_files/refresh_32x32.png" alt="手动刷新"></a>
+    <span class="comments-loading"></span>
+  </div>
+  <div class="comments-auto-load">
+    <span class="enable" style="">自动刷新启用（间隔 <b class="timeout">5</b> 分钟）</span>
+    <span class="disable" style="display:none;">自动刷新禁用</span>
+  </div>
+  <hr>
+  <div class="comments-content"><div class="comment-block" id="comment-1413604993388"><div class="comment-header"><img src="zz2_files/anon36.png" class="avatar"><cite class="user">匿名</cite><span class="datetime">十月 18, 2014</span></div><div class="comment-text"><a title="小弟长期潜水，浮出水面呼吸一下：
+
+感谢编程随想大的努力分享，中立平和的观点，翔实有力的来源出处，对中共政府一次又一次打脸，相信它的脸都肿的不成人样了XDDD
+心理学系列和学会思考系列对于启发民智实在是莫大帮助，这个应该是中共最痛恨的，因为它的愚民政策是渗透到生活各个方面的，教育，书籍，传媒，组织都难逃魔手，所以沉默的大多数还是被洗脑居多的啊，对没被洗脑的一群则采取恐吓打压的控制方式，所以编程随想大的努力还是任重而道远啊~~还请编程大多多注意自身网络安全和人生安全，5毛和网军除了大肆来乱外，还通过问一些无关的话题来旁敲侧击，好像是用来缩小搜索范围，请编程大一定要小心谨慎啊！！
+
+接收中国有关讯息的网站是编程大的网站和维基百科
+
+接收日本有关讯息则是 东京博士的 文章，此人也是热心分享的网友，也曾经大战5毛和网军，但是他是日本华人，所以发文的风险是比编程大  小很多的。
+
+接收美国的讯息主要是youtube和各大报纸网站
+
+接收台湾和香港讯息的 就是各大繁体中文论坛了
+
+请问大家还有什么好的资讯来源吗？ 中立中肯，最好还有点生活化的，比如类似编程随想大的网站，谢谢" target="_blank" href="2014/10/custom-blogger-ui.md?comment=1413604993388">小弟长期潜水，浮出水面呼吸一下：<br><br>感谢编程随想大的努力分享，中立平和的观点，翔实有力的来源出处，对中共政府一次又一次打脸，相信它的脸都肿的不成人样了XDDD<br>心理学系列和学会思考系列对于启发民智实在是莫大帮助，这个应该是中共最痛恨的，因为它的愚民政策是渗 ......</a><img src="zz2_files/external_link.gif"></div></div><div class="comment-block" id="comment-1413603040817"><div class="comment-header"><img src="zz2_files/anon36.png" class="avatar"><cite class="user">匿名</cite><span class="datetime">十月 18, 2014</span></div><div class="comment-text"><a title="大陆的宗教是隔绝的，任何宗教都不能自由发展，法轮功偏偏又因为天时人和，发展的是最大的，在海外华人宗教和反共团体那边是处于垄断地位，这就是大陆的禁令所决定的，要是解除了禁令，局面就不会是这个样子。就是说你是在特定的时间，特定的场合看到了这么多人，换个正常环境就不会有这么多人了，现在这么人也的确不正常，但这种不正常是有来由的，将来随着大陆政局的变化，这一切肯定会正常化。
+
+当前法轮功的声势壮观，也说明民运团体的能力不行，也能够说明民主这玩意在大陆不受待见。所以只能由宗教扛大旗，不知道是好事还是坏事，因为世俗化的力量用不上，只能是非世俗化力量来做，证明这个社会没啥公信力了。
+
+大陆在八十年代就开始做器官移植的生意，那时候是用死刑犯的，随着这个事业的愈演愈烈，发展成什么样真说不好，非法摘除器官一定是有的，活体摘除，有证据可以推论，但没有直接证据，看这事情太血腥，全世界都未必信，等共匪倒台之后再看看暴光出来的讯息好了。" target="_blank" href="2014/10/custom-blogger-ui.md?comment=1413603040817">大
+陆的宗教是隔绝的，任何宗教都不能自由发展，法轮功偏偏又因为天时人和，发展的是最大的，在海外华人宗教和反共团体那边是处于垄断地位，这就是大陆的禁令
+所决定的，要是解除了禁令，局面就不会是这个样子。就是说你是在特定的时间，特定的场合看到了这么多人，换个正常环境 ......</a><img src="zz2_files/external_link.gif"></div></div><div class="comment-block" id="comment-1413601429274"><div class="comment-header"><img src="zz2_files/anon36.png" class="avatar"><cite class="user">匿名</cite><span class="datetime">十月 18, 2014</span></div><div class="comment-text"><a title="对于论坛的定位，我是这样想的。有政治抱负的人多，有技术能力的人多，有宽容思想的人少些，有持之以恒的人少，然而能够拥有这些优秀品质在一身的人，就少之又少了。所谓沧海横流，方显出英雄本色，大概指的就是这个意思。
+
+所以一个有这样优秀品质的人来管理的论坛，就仿佛有开明的‘上帝’，人人都会想来做客的。" target="_blank" href="2014/10/custom-blogger-ui.md?comment=1413601429274">对于论坛的定位，我是这样想的。有政治抱负的人多，有技术能力的人多，有宽容思想的人少些，有持之以恒的人少，然而能够拥有这些优秀品质在一身的人，就少之又少了。所谓沧海横流，方显出英雄本色，大概指的就是这个意思。<br><br>所以一个有这样优秀品质的人来管理的论坛，就仿佛 ......</a><img src="zz2_files/external_link.gif"></div></div><div class="comment-block" id="comment-1413601056700"><div class="comment-header"><img src="zz2_files/anon36.png" class="avatar"><cite class="user">匿名</cite><span class="datetime">十月 18, 2014</span></div><div class="comment-text"><a target="_blank" href="2014/10/custom-blogger-ui.md?comment=1413601056700">如果你担心cookie的容量不够，可不可以考虑网站只用一个cookie，但是用户如果打开一个页面，就写入相关页面的url和最后打开的时间。以后用户再打开同样的页面，就可以做时间的比较，只高亮上次记录时间之后的评论。</a><img src="zz2_files/external_link.gif"></div></div><div class="comment-block" id="comment-1413600503521"><div class="comment-header"><img src="zz2_files/anon36.png" class="avatar"><cite class="user">匿名</cite><span class="datetime">十月 18, 2014</span></div><div class="comment-text"><a target="_blank" href="2014/10/custom-blogger-ui.md?comment=1413600503521">刚才试用了下这https://startpage.com/， 搜索能力照比google是天壤之别</a><img src="zz2_files/external_link.gif"></div></div><div class="comment-block" id="comment-1413599980269"><div class="comment-header"><img src="zz2_files/anon36.png" class="avatar"><cite class="user">匿名</cite><span class="datetime">十月 18, 2014</span></div><div class="comment-text"><a target="_blank" href="2014/10/custom-blogger-ui.md?comment=1413599980269">Discuz的确是100-%开放源代码（php代码是无法以二进制形式发布的），但是你不能修改，修改了就算侵权。而且dicuz执行效率低，漏洞什么的也有不少</a><img src="zz2_files/external_link.gif"></div></div><div class="comment-block" id="comment-1413597570138"><div class="comment-header"><img src="zz2_files/anon36.png" class="avatar"><cite class="user">匿名</cite><span class="datetime">十月 18, 2014</span></div><div class="comment-text"><a target="_blank" href="2014/10/custom-blogger-ui.md?comment=1413597570138">13单元请问，如果是那种用dos命令藏了敏感文档的图片，用你这插件加密后再解密，当使用rar或7zip打开后藏在里面的文档会不会受影响？<br>另外尊敬大侠和共匪战斗！</a><img src="zz2_files/external_link.gif"></div></div><div class="comment-block" id="comment-1413596413085"><div class="comment-header"><img src="zz2_files/anon36.png" class="avatar"><cite class="user">匿名</cite><span class="datetime">十月 18, 2014</span></div><div class="comment-text"><a target="_blank" href="2014/10/custom-blogger-ui.md?comment=1413596413085">Tor 4.0有bug。3.6版开始有。工具》选项》高级》证书，编辑完某一证书后，那个ok按钮不好使。所以，每次启动后都得删除一遍，就是那两个，china 和 CNNIC﻿</a><img src="zz2_files/external_link.gif"></div></div><div class="comment-block" id="comment-1413595216133"><div class="comment-header"><img src="zz2_files/b16-rounded.gif" class="avatar"><cite class="user">v998</cite><span class="datetime">十月 18, 2014</span></div><div class="comment-text"><a title="@Flat 1
+源码好像是的开放, 但不是普通在github上的那种开源license, 我不太喜欢
+后门问题: DiscuzX 系列开始加了外部js, 例如:
+http://discuz.gtimg.cn/cloud/scripts/discuz_tips.js?v=1
+感觉不太好, 虽然php里没有后门, 但是加上云平台却不知道了...
+不太建议discuz, 但是要用我就会用6.0, 6.1F, 或 7.2" target="_blank" href="2014/10/custom-blogger-ui.md?comment=1413595216133">@Flat 1<br>源码好像是的开放, 但不是普通在github上的那种开源license, 我不太喜欢<br>后门问题: DiscuzX 系列开始加了外部js, 例如:<br>http://discuz.gtimg.cn/cloud/scripts/discuz_tip ......</a><img src="zz2_files/external_link.gif"></div></div><div class="comment-block" id="comment-1413588250242"><div class="comment-header"><img src="zz2_files/b16-rounded.gif" class="avatar"><cite class="user">智多星张召忠</cite><span class="datetime">十月 18, 2014</span></div><div class="comment-text"><a title="多和少是个相对的概念了。
+
+编程兄认为少，是跟三大宗教比，那当然是没得比了。。。
+我认为多，是比我的主观判断多，我本来就认为没什么人信，而且又住一小镇，出来几千人，就太多了。
+
+楼上认为我有认知偏差的推论我没太懂？？法轮功不在禁令上？您试试打个招牌写“招收法轮功学员”试试？" target="_blank" href="2014/10/custom-blogger-ui.md?comment=1413588250242">多和少是个相对的概念了。<br><br>编程兄认为少，是跟三大宗教比，那当然是没得比了。。。<br>我认为多，是比我的主观判断多，我本来就认为没什么人信，而且又住一小镇，出来几千人，就太多了。<br><br>楼上认为我有认知偏差的推论我没太懂？？法轮功不在禁令上？您试试打个招牌写“招收 ......</a><img src="zz2_files/external_link.gif"></div></div><div class="comment-block" id="comment-1413587865085"><div class="comment-header"><img src="zz2_files/b16-rounded.gif" class="avatar"><cite class="user">智多星张召忠</cite><span class="datetime">十月 18, 2014</span></div><div class="comment-text"><a title="我觉得应该有活摘的可能性。
+
+一，以中共的特性，发生这些事不给报道。二，法轮功在大陆是被忽略人群。三，如果这些被忽略的人群，落到了某些唯利是图的官员手上，会发生什么事？
+
+当然，这事没有确凿证据，有的话早拿出来了。要是早拿出来，也没用，表示别国不认同，或是不敢认同。同样都会导致说不清楚，无法确定。
+
+凭我对国内人性的了解，我认为活摘的可能性十分大。不过什么都扯到活摘上就言过其实了。。。" target="_blank" href="2014/10/custom-blogger-ui.md?comment=1413587865085">我觉得应该有活摘的可能性。<br><br>一，以中共的特性，发生这些事不给报道。二，法轮功在大陆是被忽略人群。三，如果这些被忽略的人群，落到了某些唯利是图的官员手上，会发生什么事？<br><br>当然，这事没有确凿证据，有的话早拿出来了。要是早拿出来，也没用，表示别国不认同，或是 ......</a><img src="zz2_files/external_link.gif"></div></div><div class="comment-block" id="comment-1413585626900"><div class="comment-header"><img src="zz2_files/anon36.png" class="avatar"><cite class="user">匿名</cite><span class="datetime">十月 18, 2014</span></div><div class="comment-text"><a target="_blank" href="2014/10/custom-blogger-ui.md?comment=1413585626900">最近怎么原创的时事评论少了？</a><img src="zz2_files/external_link.gif"></div></div><div class="comment-block" id="comment-1413584538985"><div class="comment-header"><img src="zz2_files/anon36.png" class="avatar"><cite class="user">小白</cite><span class="datetime">十月 18, 2014</span></div><div class="comment-text"><a target="_blank" href="2014/10/custom-blogger-ui.md?comment=1413584538985">不好意思，插楼问一个问题： 请问编程随想和各位技术大大们，Discuz论坛源码是不是100%开源，会不会有后门之类的安全隐患，用来做网站安不安全吗？</a><img src="zz2_files/external_link.gif"></div></div><div class="comment-block" id="comment-1413570221455"><div class="comment-header"><img src="zz2_files/anon36.png" class="avatar"><cite class="user">忠党爱国</cite><span class="datetime">十月 18, 2014</span></div><div class="comment-text"><a target="_blank" href="2014/10/custom-blogger-ui.md?comment=1413570221455">13单元：一看你就是没用过这插件望文生义，或者文都没望。<br>现在我的插件可以在被“加密”的图片上右键然后选择“解密此图片”，然后弹出窗口里面输入密码，就出现了解密的结果。</a><img src="zz2_files/external_link.gif"></div></div><div class="comment-block" id="comment-1413569913858"><div class="comment-header"><img src="zz2_files/anon36.png" class="avatar"><cite class="user">忠党爱国</cite><span class="datetime">十月 18, 2014</span></div><div class="comment-text"><a title="关于已读评论，我猜测JS能做到发现某个位置上的div之类的被滚动进可视的区域。因为有些论坛不是有那个一边滚动一边加载的功能吗？如果这样，就算是比较复杂的算法，比如看在这个楼层呆了多久，也是可能了。
+
+关于GFW的计算能力，的确，有人申请过baidustatic.co的域名，干河蟹的事情，发现果然GFW会宁可去一起封锁baidustatic.com，也就是说他们连正则表达式的速度都嫌慢。
+
+论坛这个，我不知道blogspot可定制的程度有多少。能否用jQuery整个删掉评论区然后换成一个外站的论坛的索引之类。换句话说类似Disqus的原理，但是自己写代码。界面可以搞成类似slashdot或者solidot那种比较简约的折叠样式+翻页。这个外站需要放到大点的云上面，否则被党国盯上DDOS就糟了。" target="_blank" href="2014/10/custom-blogger-ui.md?comment=1413569913858">关于已读评论，我猜测JS能做到发现某个位置上的div之类的被滚动进可视的区域。因为有些论坛不是有那个一边滚动一边加载的功能吗？如果这样，就算是比较复杂的算法，比如看在这个楼层呆了多久，也是可能了。<br><br>关于GFW的计算能力，的确，有人申请过baidustat ......</a><img src="zz2_files/external_link.gif"></div></div><div class="comment-block" id="comment-1413569342516"><div class="comment-header"><img src="zz2_files/anon36.png" class="avatar"><cite class="user">忠党爱国</cite><span class="datetime">十月 18, 2014</span></div><div class="comment-text"><a target="_blank" href="2014/10/custom-blogger-ui.md?comment=1413569342516">2单元：对我来说这功能没用。我一向用隐私模式浏览。</a><img src="zz2_files/external_link.gif"></div></div><div class="comment-block" id="comment-1413563459869"><div class="comment-header"><img src="zz2_files/anon36.png" class="avatar"><cite class="user">匿名</cite><span class="datetime">十月 18, 2014</span></div><div class="comment-text"><a target="_blank" href="2014/10/custom-blogger-ui.md?comment=1413563459869">轮子滚蛋，fuck，反共精神不客观，不严肃，整天瞎J8扯，神马事都能扯到活在器官。</a><img src="zz2_files/external_link.gif"></div></div><div class="comment-block" id="comment-1413563369066"><div class="comment-header"><img src="zz2_files/anon36.png" class="avatar"><cite class="user">匿名</cite><span class="datetime">十月 18, 2014</span></div><div class="comment-text"><a target="_blank" href="2014/10/custom-blogger-ui.md?comment=1413563369066">cf cdn用了IP选播技术，中共想打死除非把世界各地的点全部打死才行。</a><img src="zz2_files/external_link.gif"></div></div><div class="comment-block" id="comment-1413561616593"><div class="comment-header"><img src="zz2_files/anon36.png" class="avatar"><cite class="user">匿名</cite><span class="datetime">十月 18, 2014</span></div><div class="comment-text"><a title="法轮功是什么请看明慧网的介绍，明白法轮功的真相极为重要，既然翻墙出来了就好好的了解清楚。法轮功不参与政治，按照“真、善、忍”的标准修炼，不追求世间的名利等东西，只是教人向善。99年前就有一亿人学练身心受益，当时有些报纸和电视做过正面报道，其中不乏领导干部和高级知识分子。修炼者们可不是没有理性的，他们真正认识到了真理才义无反顾的坚持自己的信仰，对任何国家都是百利无一害的。江泽民出于妒嫉之心发起了对法轮功灭绝人性的迫害，甚至发展到活摘大法弟子器官。真相被掩盖，很多人偏听偏信了政府的谣言而不明真相敌视大法。实际上共产党的滔天罪恶导致其必被清算，明白真相才能免遭裹挟和陪葬，所以说天灭中共、三退平安。在善、恶与正义、邪恶间做出明智选择是每一个人走向未来的必经之路。" target="_blank" href="2014/10/custom-blogger-ui.md?comment=1413561616593">法
+轮功是什么请看明慧网的介绍，明白法轮功的真相极为重要，既然翻墙出来了就好好的了解清楚。法轮功不参与政治，按照“真、善、忍”的标准修炼，不追求世间
+的名利等东西，只是教人向善。99年前就有一亿人学练身心受益，当时有些报纸和电视做过正面报道，其中不乏领导干部和 ......</a><img src="zz2_files/external_link.gif"></div></div><div class="comment-block" id="comment-1413561325181"><div class="comment-header"><img src="zz2_files/Thinker_002.jpg" class="avatar"><cite class="user">编程随想</cite><span class="datetime">十月 17, 2014</span></div><div class="comment-text"><a title="TO 27楼的网友
+在《[url=2013/06/privacy-protection-0.md]如何保护隐私[/url]》系列的下一篇，俺会谈到“互联网服务”的隐私问题。到时候也会提到 Google 的问题
+
+如果你担心 Google 了解太多你的隐私，建议你首先把浏览器换成 Firefox
+另外，Web 搜索可以改用 https://startpage.com/
+这个搜索引擎的后端，用的就是 Google，但是它作为一个中间层，让 Google 无法直接看到是谁在发起搜索请求。
+还有其它一些建议，俺会在那个系列中补充。" target="_blank" href="2014/10/custom-blogger-ui.md?comment=1413561325181">TO 27楼的网友<br>在《[url=2013/06/privacy-protection-0.md]如何保护隐私[/url]》系列的下一篇，俺会谈到“互联网服务”的隐私问题。到时候也会提 ......</a><img src="zz2_files/external_link.gif"></div></div><div class="comment-block" id="comment-1413560945933"><div class="comment-header"><img src="zz2_files/Thinker_002.jpg" class="avatar"><cite class="user">编程随想</cite><span class="datetime">十月 17, 2014</span></div><div class="comment-text"><a title="TO Tony Yule
+多谢 IT 同行来捧场 :)
+
+说到 Java，你用的是哪个 Java 框架？
+说到 bootstrap，这玩意儿俺听说过，但是没用过。据说是 Twitter 开源出来的。
+
+俺定制博客界面，主要靠 jQuery。
+最近这次改版，刚刚引入了 jQueryUI（只用到它的：进度条、拖拽、tooltip）" target="_blank" href="2014/10/custom-blogger-ui.md?comment=1413560945933">TO Tony Yule<br>多谢 IT 同行来捧场 :)<br><br>说到 Java，你用的是哪个 Java 框架？<br>说到 bootstrap，这玩意儿俺听说过，但是没用过。据说是 Twitter 开源出来的。<br><br>俺定制博客界面，主要靠 jQuery。<br>最近这次改版， ......</a><img src="zz2_files/external_link.gif"></div></div><div class="comment-block" id="comment-1413560222550"><div class="comment-header"><img src="zz2_files/b16-rounded.gif" class="avatar"><cite class="user">v998</cite><span class="datetime">十月 17, 2014</span></div><div class="comment-text"><a target="_blank" href="2014/10/custom-blogger-ui.md?comment=1413560222550">Snowden 已经说过了, 可是我的生活仍离不开Google...</a><img src="zz2_files/external_link.gif"></div></div><div class="comment-block" id="comment-1413560035668"><div class="comment-header"><img src="zz2_files/anon36.png" class="avatar"><cite class="user">匿名</cite><span class="datetime">十月 17, 2014</span></div><div class="comment-text"><a target="_blank" href="2014/04/history-china-fallen-behind-europe.md?comment=1413560035668">这点赞同！</a><img src="zz2_files/external_link.gif"></div></div><div class="comment-block" id="comment-1413559905255"><div class="comment-header"><img src="zz2_files/Thinker_002.jpg" class="avatar"><cite class="user">编程随想</cite><span class="datetime">十月 17, 2014</span></div><div class="comment-text"><a title="TO 17单元的网友
+感谢你提出建设性的反馈 :)
+
+先声明：
+俺其实对管理论坛，没啥经验的。
+而且俺自己也不经常去逛论坛。
+
+关于“安全性”
+应该没啥分歧。
+
+关于“管理员”
+你所说的有道理。
+不清楚 Google Group 是否满足这样的需求。
+
+关于“匿名发言”
+俺猜测：很多网友用匿名，主要是因为他们懒得再去注册帐号。
+如今的博客评论，既支持登录后发言，也支持匿名发言。正好可以照顾不同类型的访客。
+不过论坛也确实有很多功能，是目前的博客评论无法实现的。
+
+还想到另一个问题——如果俺开一个论坛，该如何“定位”？
+论坛和博客之间，是什么关系呢？
+因为网上已经有很多各式各样论坛。俺如果要开一个，必须想清楚定位问题。
+比如这个论坛和其它论坛，有啥“差异化”的特色？" target="_blank" href="2014/10/custom-blogger-ui.md?comment=1413559905255">TO 17单元的网友<br>感谢你提出建设性的反馈 :)<br><br>先声明：<br>俺其实对管理论坛，没啥经验的。<br>而且俺自己也不经常去逛论坛。<br><br>关于“安全性”<br>应该没啥分歧。<br><br>关于“管理员”<br>你所说的有道理。<br>不清楚 Google Group 是否满足这样的需求。<br><br>关 ......</a><img src="zz2_files/external_link.gif"></div></div><div class="comment-block" id="comment-1413559758565"><div class="comment-header"><img src="zz2_files/anon36.png" class="avatar"><cite class="user">匿名</cite><span class="datetime">十月 17, 2014</span></div><div class="comment-text"><a target="_blank" href="2014/10/custom-blogger-ui.md?comment=1413559758565">不敢在chrome登录谷歌帐号了，谷歌记录了我很多曾经访问过的网站及看过的youtube视频，（单是网页历史记录）删都删不完，我的隐私啊！<br></a><img src="zz2_files/external_link.gif"></div></div><div class="comment-block" id="comment-1413559112349"><div class="comment-header"><img src="zz2_files/anon36.png" class="avatar"><cite class="user">匿名</cite><span class="datetime">十月 17, 2014</span></div><div class="comment-text"><a target="_blank" href="2011/06/june-fourth-incident-2.md?comment=1413559112349">如果不走当时这步，您能告诉我中国现在将向何方嘛？</a><img src="zz2_files/external_link.gif"></div></div><div class="comment-block" id="comment-1413558031447"><div class="comment-header"><img src="zz2_files/photo_003.jpg" class="avatar"><cite class="user">Tony Yule</cite><span class="datetime">十月 17, 2014</span></div><div class="comment-text"><a target="_blank" href="2014/10/custom-blogger-ui.md?comment=1413558031447">同为IT同行 关注楼主博客很久了   我会做一网站 用Java写  前端UI  会bootstrap</a><img src="zz2_files/external_link.gif"></div></div><div class="comment-block" id="comment-1413557831046"><div class="comment-header"><img src="zz2_files/anon36.png" class="avatar"><cite class="user">匿名</cite><span class="datetime">十月 17, 2014</span></div><div class="comment-text"><a title="1、匿名发言 
+
+编程是不是担心如果论坛不采取匿名发言，论坛人气就不行？我觉得这个问题的答案，只有实际尝试才知道。我倒认为，很多人愿意另外开辟话题，愿意讨论自己想讨论的东西。如果要激烈而且紧凑的讨论，那么采用ID是非常有效的。有的才能放矢。
+
+而且采用论坛，不是一对多的博客，而是多对多，也便于更多的人分享自己的经验，让用户来帮助你来回答网友的提问，这样反而更加有效率。
+
+2、安全性
+
+安全性的问题，看起来Google可以满足
+
+3、管理员
+
+为什么要寻找可靠的人的管理，而不是着眼于可靠的制度呢？为什么不可以允许较多的人管理，但是提供较少的权限呢？管理员可以把帖子转移到垃圾桶的版块，但是不能删除也不能修改别人的发言。这样是不是可以解决问题呢？然后你可以同意优先回答那些贡献时间管理的网友的问题，作为奖励。" target="_blank" href="2014/10/custom-blogger-ui.md?comment=1413557831046">1、匿名发言 <br><br>编程是不是担心如果论坛不采取匿名发言，论坛人气就不行？我觉得这个问题的答案，只有实际尝试才知道。我倒认为，很多人愿意另外开辟话题，愿意讨论自己想讨论的东西。如果要激烈而且紧凑的讨论，那么采用ID是非常有效的。有的才能放矢。<br><br>而且采用论坛 ......</a><img src="zz2_files/external_link.gif"></div></div><div class="comment-block" id="comment-1413557620461"><div class="comment-header"><img src="zz2_files/Thinker_002.jpg" class="avatar"><cite class="user">编程随想</cite><span class="datetime">十月 17, 2014</span></div><div class="comment-text"><a title="TO 14单元的网友
+多谢提供思路 :)
+
+你这个建议，有两种实现方式，各有弊端。
+方案1、
+只用一个 cookie 记录访问时间
+弊端就是：
+无法判断哪些页面是读者曾经打开过的。
+
+方案2、
+对每一个页面记录一个“访问时间”
+弊端就是：
+需要很多 cookie 
+要知道，同一个域名之下的 cookie，总长度有上限的（约4kb）。
+另外，俺这个域名下，除了俺在记录 cookie，Google 的 Blogspot 平台也在记录 cookie
+所以这个方案，很容易导致 cookie 总长度达到上限。" target="_blank" href="2014/10/custom-blogger-ui.md?comment=1413557620461">TO 14单元的网友<br>多谢提供思路 :)<br><br>你这个建议，有两种实现方式，各有弊端。<br>方案1、<br>只用一个 cookie 记录访问时间<br>弊端就是：<br>无法判断哪些页面是读者曾经打开过的。<br><br>方案2、<br>对每一个页面记录一个“访问时间”<br>弊端就是：<br>需要很多 coo ......</a><img src="zz2_files/external_link.gif"></div></div><div class="comment-block" id="comment-1413557108889"><div class="comment-header"><img src="zz2_files/Thinker_002.jpg" class="avatar"><cite class="user">编程随想</cite><span class="datetime">十月 17, 2014</span></div><div class="comment-text"><a title="TO meek
+俺在 12单元 担心“TOR 的流量混淆插件是否足够坚挺”
+因为 GFW 已经具有某些特征检测。
+如果 TOR 的流量混淆不够彻底，说不定还是会被检测出来。
+
+不过从长远来看，俺觉得 GFW 没戏。
+
+“流量混淆”的缺点是会牺牲传输性能。
+在如今带宽越来越高的情况下，这个缺点应该不明显。
+假设今后有更多的翻墙工具采用“流量混淆技术”，GFW 的即便有办法检测，计算复杂度也会猛增（这种增长可能是非线性的）。
+久而久之，GFW 会承受不了这样的计算复杂度——毕竟它面对但是天朝的国际出口，流量太大了" target="_blank" href="2014/10/custom-blogger-ui.md?comment=1413557108889">TO meek<br>俺在 12单元 担心“TOR 的流量混淆插件是否足够坚挺”<br>因为 GFW 已经具有某些特征检测。<br>如果 TOR 的流量混淆不够彻底，说不定还是会被检测出来。<br><br>不过从长远来看，俺觉得 GFW 没戏。<br><br>“流量混淆”的缺点是会牺牲传输性能。<br> ......</a><img src="zz2_files/external_link.gif"></div></div><div class="comment-block" id="comment-1413557069913"><div class="comment-header"><img src="zz2_files/anon36.png" class="avatar"><cite class="user">匿名</cite><span class="datetime">十月 17, 2014</span></div><div class="comment-text"><a target="_blank" href="2014/10/custom-blogger-ui.md?comment=1413557069913">是不是用cookie就可以分辨浏览器不同时间的访问。这样的话，就可以只显示两次访问中间新增加的内容了。“已经读过的评论”，我想楼主的意思就是上次浏览器访问时刻之前已经添加的评论。</a><img src="zz2_files/external_link.gif"></div></div><div class="comment-block" id="comment-1413556423854"><div class="comment-header"><img src="zz2_files/anon36.png" class="avatar"><cite class="user">匿名</cite><span class="datetime">十月 17, 2014</span></div><div class="comment-text"><a target="_blank" href="2014/10/custom-blogger-ui.md?comment=1413556423854">用firefox esr 31便携版非常顺畅，没有出现chrome 31 便携版的卡顿、乱码现象</a><img src="zz2_files/external_link.gif"></div></div><div class="comment-block" id="comment-1413556361438"><div class="comment-header"><img src="zz2_files/Thinker_002.jpg" class="avatar"><cite class="user">编程随想</cite><span class="datetime">十月 17, 2014</span></div><div class="comment-text"><a title="TO 25楼的网友
+多谢提建议 :)
+
+关于“跳转到最新评论区”
+如果博文比较长或者评论比较多，要想直接看到“最新评论”，是比较困难的——要拖动滚动条去找。
+有了这个按钮，就可以直接跳到“最新评论区”。
+
+关于“主页的工具条”
+俺反而觉得没有必要。
+主页的工具条，你觉得该放啥按钮捏？
+主页又没有“评论区”，也没有“正文区”。
+然后，在主页上，“跳转到主页”的按钮也多余了。
+刚才你又提到说“跳转到最新评论区”是多余的。
+那主页上的工具条，基本上就只剩下“界面定制”一个按钮了。
+
+关于“图标是否太花哨”
+俺已经提供了“隐藏工具条”的定制选项。
+如果某个读者觉得这个工具条很多余，那么就把工具条隐藏掉。
+反之，需要工具条的读者，就可以把工具条显示出来，还可以拖拽到自己觉得舒服的位置上。
+
+俺这次改版，重点是“界面定制选项”。用意也在于此——大伙儿自己爱咋整就咋整。" target="_blank" href="2014/10/custom-blogger-ui.md?comment=1413556361438">TO 25楼的网友<br>多谢提建议 :)<br><br>关于“跳转到最新评论区”<br>如果博文比较长或者评论比较多，要想直接看到“最新评论”，是比较困难的——要拖动滚动条去找。<br>有了这个按钮，就可以直接跳到“最新评论区”。<br><br>关于“主页的工具条”<br>俺反而觉得没有必要。<br>主页的 ......</a><img src="zz2_files/external_link.gif"></div></div><div class="comment-block" id="comment-1413556182530"><div class="comment-header"><img src="zz2_files/anon36.png" class="avatar"><cite class="user">匿名</cite><span class="datetime">十月 17, 2014</span></div><div class="comment-text"><a target="_blank" href="2014/10/custom-blogger-ui.md?comment=1413556182530">刚才用firefox esr 31便携版点“发布”按钮后正常跳转，没有出现乱码情况</a><img src="zz2_files/external_link.gif"></div></div><div class="comment-block" id="comment-1413556061284"><div class="comment-header"><img src="zz2_files/anon36.png" class="avatar"><cite class="user">匿名</cite><span class="datetime">十月 17, 2014</span></div><div class="comment-text"><a target="_blank" href="2014/10/custom-blogger-ui.md?comment=1413556061284">用firefox esr 31便携版测试一下，是不是还是乱码</a><img src="zz2_files/external_link.gif"></div></div><div class="comment-block" id="comment-1413555903489"><div class="comment-header"><img src="zz2_files/anon36.png" class="avatar"><cite class="user">匿名</cite><span class="datetime">十月 17, 2014</span></div><div class="comment-text"><a target="_blank" href="2014/10/custom-blogger-ui.md?comment=1413555903489">我用的是免费vpn</a><img src="zz2_files/external_link.gif"></div></div><div class="comment-block" id="comment-1413555624020"><div class="comment-header"><img src="zz2_files/anon36.png" class="avatar"><cite class="user">匿名</cite><span class="datetime">十月 17, 2014</span></div><div class="comment-text"><a target="_blank" href="2014/10/custom-blogger-ui.md?comment=1413555624020">那个浮动工具条的“跳转到最新评论区”图标又是多余的，把它撤掉吧！另外在主页也增加个浮动工具条方便点击。<br><br>要那么多花哨多余的图标干嘛呢（究竟是让读者来看博文内容还是来看一大堆花哨多余的图标）<br>简洁、简洁、再简洁；简单、简单、再简单！！！<br><br></a><img src="zz2_files/external_link.gif"></div></div><div class="comment-block" id="comment-1413555170731"><div class="comment-header"><img src="zz2_files/Thinker_002.jpg" class="avatar"><cite class="user">编程随想</cite><span class="datetime">十月 17, 2014</span></div><div class="comment-text"><a title="看来还是 JS 引擎的问题。
+
+评论区的“发布”按钮不是俺控制的，是 Blogspot 系统控制的。
+点了“发布”按钮之后会进行一次跳转，那次跳转之后，才是俺的 JS 脚本控制的。
+
+你提到的“出现满页乱码一闪而过”。这个时间点，还没有进入到俺的 JS 代码。
+如果是 Blogspot 的 JS 代码出现这种奇怪的现象，感觉还是你的 chrome 便携版有问题。
+
+另外，你用的是哪个翻墙工具？" target="_blank" href="2014/10/custom-blogger-ui.md?comment=1413555170731">看来还是 JS 引擎的问题。<br><br>评论区的“发布”按钮不是俺控制的，是 Blogspot 系统控制的。<br>点了“发布”按钮之后会进行一次跳转，那次跳转之后，才是俺的 JS 脚本控制的。<br><br>你提到的“出现满页乱码一闪而过”。这个时间点，还没有进入到俺的 JS 代 ......</a><img src="zz2_files/external_link.gif"></div></div><div class="comment-block" id="comment-1413554443972"><div class="comment-header"><img src="zz2_files/anon36.png" class="avatar"><cite class="user">匿名</cite><span class="datetime">十月 17, 2014</span></div><div class="comment-text"><a target="_blank" href="2014/10/custom-blogger-ui.md?comment=1413554443972">每次留言点“发布”按钮后都会出现满页乱码一闪而过，之后正常跳转的现象</a><img src="zz2_files/external_link.gif"></div></div><div class="comment-block" id="comment-1413554276248"><div class="comment-header"><img src="zz2_files/anon36.png" class="avatar"><cite class="user">匿名</cite><span class="datetime">十月 17, 2014</span></div><div class="comment-text"><a target="_blank" href="2014/10/custom-blogger-ui.md?comment=1413554276248">哦！又出问题了。点了“发布”按钮后出现满页的乱码一闪而过然后又正常了</a><img src="zz2_files/external_link.gif"></div></div><div class="comment-block" id="comment-1413554031270"><div class="comment-header"><img src="zz2_files/anon36.png" class="avatar"><cite class="user">匿名</cite><span class="datetime">十月 17, 2014</span></div><div class="comment-text"><a target="_blank" href="2014/10/custom-blogger-ui.md?comment=1413554031270">我刚才把便携版更新到最新38 了，情况似乎有所缓解，拖得动工具条也没那么卡了（但不知能坚持多久）</a><img src="zz2_files/external_link.gif"></div></div><div class="comment-block" id="comment-1413553491157"><div class="comment-header"><img src="zz2_files/Thinker_002.jpg" class="avatar"><cite class="user">编程随想</cite><span class="datetime">十月 17, 2014</span></div><div class="comment-text"><a title="TO 12单元
+如果你浏览其它网站也很卡，那基本上可以排除俺博客的 JS 脚本的问题。
+另外，刚才俺用一个 Chrome 2X 版本测试，拖动工具条没有问题（拖动流畅）
+
+既然 Chrome 2X 没问题，那 Chrome 31 应该也不会有问题。
+所以问题多半出在——你的 Chrome 31 是便携版。这个便携版可能哪个模块出故障了。" target="_blank" href="2014/10/custom-blogger-ui.md?comment=1413553491157">TO 12单元<br>如果你浏览其它网站也很卡，那基本上可以排除俺博客的 JS 脚本的问题。<br>另外，刚才俺用一个 Chrome 2X 版本测试，拖动工具条没有问题（拖动流畅）<br><br>既然 Chrome 2X 没问题，那 Chrome 31 应该也不会有问题。<br>所以问 ......</a><img src="zz2_files/external_link.gif"></div></div><div class="comment-block" id="comment-1413552783293"><div class="comment-header"><img src="zz2_files/anon36.png" class="avatar"><cite class="user">匿名</cite><span class="datetime">十月 17, 2014</span></div><div class="comment-text"><a target="_blank" href="2014/10/custom-blogger-ui.md?comment=1413552783293">可能尝试搞一个暗网，感觉来这里的小白并不多，而且搞暗网不代表这里就不要了，最大的好处就是搞暗网服务器是你自己的了，想怎么弄都行。考虑一下吧。真的很期待。</a><img src="zz2_files/external_link.gif"></div></div><div class="comment-block" id="comment-1413552297842"><div class="comment-header"><img src="zz2_files/anon36.png" class="avatar"><cite class="user">匿名</cite><span class="datetime">十月 17, 2014</span></div><div class="comment-text"><a target="_blank" href="2014/10/custom-blogger-ui.md?comment=1413552297842">不单是浏览本博客，浏览其他页面也是卡，工具条往往难拖得动，容易出现“假死”</a><img src="zz2_files/external_link.gif"></div></div><div class="comment-block" id="comment-1413551656090"><div class="comment-header"><img src="zz2_files/Thinker_002.jpg" class="avatar"><cite class="user">编程随想</cite><span class="datetime">十月 17, 2014</span></div><div class="comment-text"><a title="TO 10单元的网友
+你这一说，俺想起来了。
+你就是之前用 Chrome 31 碰到工具条无法拖动的那位读者。
+
+俺感觉你碰到这这两个问题，可能是同一个根源。
+不知道你这个 Chrome 31 的便携版，跟正常版本是不是有啥差异。
+俺怀疑：会不会这个便携版的 JS 引擎有问题？
+待会儿俺找一个比 Chrome 31 更老的 版本测试一下。
+就能判断出：是不是便携版的问题" target="_blank" href="2014/10/custom-blogger-ui.md?comment=1413551656090">TO 10单元的网友<br>你这一说，俺想起来了。<br>你就是之前用 Chrome 31 碰到工具条无法拖动的那位读者。<br><br>俺感觉你碰到这这两个问题，可能是同一个根源。<br>不知道你这个 Chrome 31 的便携版，跟正常版本是不是有啥差异。<br>俺怀疑：会不会这个便携版 ......</a><img src="zz2_files/external_link.gif"></div></div><div class="comment-block" id="comment-1413551410382"><div class="comment-header"><img src="zz2_files/anon36.png" class="avatar"><cite class="user">meek</cite><span class="datetime">十月 17, 2014</span></div><div class="comment-text"><a target="_blank" href="2014/10/custom-blogger-ui.md?comment=1413551410382">主要是依赖国外云服务，裆有本事全封了吧</a><img src="zz2_files/external_link.gif"></div></div><div class="comment-block" id="comment-1413551316872"><div class="comment-header"><img src="zz2_files/Thinker_002.jpg" class="avatar"><cite class="user">编程随想</cite><span class="datetime">十月 17, 2014</span></div><div class="comment-text"><a title="TO 5单元的网友
+针对你所说的，补充一下：
+前不久香港搞 6-22 公投，天朝的御用骇客发起了创纪录的 DDOS 攻击。
+当时公投网站找了三家大型的云计算提供商（包括：亚马逊）
+结果连亚马逊都撑不住，后来靠 CloudFlare 才坚持下来。
+
+根据维基百科：
+亚马逊在20小时之内收到 100亿次 的 DNS查询请求。
+CloudFlare 遭遇的网络流量峰值是 75GB/秒" target="_blank" href="2014/10/custom-blogger-ui.md?comment=1413551316872">TO 5单元的网友<br>针对你所说的，补充一下：<br>前不久香港搞 6-22 公投，天朝的御用骇客发起了创纪录的 DDOS 攻击。<br>当时公投网站找了三家大型的云计算提供商（包括：亚马逊）<br>结果连亚马逊都撑不住，后来靠 CloudFlare 才坚持下来。<br><br>根据维基 ......</a><img src="zz2_files/external_link.gif"></div></div><div class="comment-block" id="comment-1413550874773"><div class="comment-header"><img src="zz2_files/Thinker_002.jpg" class="avatar"><cite class="user">编程随想</cite><span class="datetime">十月 17, 2014</span></div><div class="comment-text"><a title="TO 4单元的网友
+使用暗网，有好处也有坏处。
+
+如果是一个小群体，成员都比较懂技术，并且整个群体对安全性（尤其是隐匿性）的要求非常高。那么暗网是一个不错的选择。
+
+但是像俺这样的博客，不适合用暗网来搭建。
+因为俺的读者群里面，有很多是技术菜鸟。
+而且暗网不容易被搜索到，不利于扩大俺博客的影响力。" target="_blank" href="2014/10/custom-blogger-ui.md?comment=1413550874773">TO 4单元的网友<br>使用暗网，有好处也有坏处。<br><br>如果是一个小群体，成员都比较懂技术，并且整个群体对安全性（尤其是隐匿性）的要求非常高。那么暗网是一个不错的选择。<br><br>但是像俺这样的博客，不适合用暗网来搭建。<br>因为俺的读者群里面，有很多是技术菜鸟。<br>而且暗网 ......</a><img src="zz2_files/external_link.gif"></div></div><div class="comment-block" id="comment-1413550827056"><div class="comment-header"><img src="zz2_files/anon36.png" class="avatar"><cite class="user">匿名</cite><span class="datetime">十月 17, 2014</span></div><div class="comment-text"><a target="_blank" href="2014/10/custom-blogger-ui.md?comment=1413550827056">我还是之前的那位（香港占中博文119楼） chrome 31便携版  windows 7 .也就是在浏览页面时感觉有点卡(切换页面时不顺畅），然后就“假死“了</a><img src="zz2_files/external_link.gif"></div></div><div class="comment-block" id="comment-1413550618947"><div class="comment-header"><img src="zz2_files/Thinker_002.jpg" class="avatar"><cite class="user">编程随想</cite><span class="datetime">十月 17, 2014</span></div><div class="comment-text"><a title="TO 7单元的网友
+GAE 确实可以用来做服务端的开发。但是 GAE 跟 Blogspot 整合有点麻烦。
+俺写的博文，内容都是存储在 Blogspot 上的，用户的评论也是。
+真要搞，办法倒是有，比如说：
+先在 GAE 上抓取 Blogspot 上的内容（用 API），然后再由 GAE 重构 HTML 页面并输出。
+这样生成的页面，可以降低 JS 的比例" target="_blank" href="2014/10/custom-blogger-ui.md?comment=1413550618947">TO 7单元的网友<br>GAE 确实可以用来做服务端的开发。但是 GAE 跟 Blogspot 整合有点麻烦。<br>俺写的博文，内容都是存储在 Blogspot 上的，用户的评论也是。<br>真要搞，办法倒是有，比如说：<br>先在 GAE 上抓取 Blogspot 上的内容 ......</a><img src="zz2_files/external_link.gif"></div></div></div>
+  <div class="comments-warning">
+    <div style="display:none;">
+      已经过滤了 <b><span class="spam-count"></span></b> 条疑似垃圾广告
+    </div>
+    <noscript>
+      <b>你的浏览器不支持 JavaScript 脚本&#65292;<br/>所以无法显示&#8220;最新评论&#8221; :(</b>
+    </noscript>
+  </div>
+</div>
+
+
+<style type="text/css">
+
+#tweets .comments-toolbar,
+#tweets .comments-auto-load,
+#tweets .comments-content,
+#tweets .comments-warning {
+  margin: 10px 0px;
+}
+
+#tweets .comments-content .comment-block {
+  padding: 8px 0px;
+}
+
+/*--@ Comment header @--*/
+#tweets .comments-content .comment-header img.avatar {
+  width: 36px;
+  height: 36px;
+  max-width: 36px;
+  max-height: 36px;
+  border: none;
+}
+#tweets .comments-content .comment-header cite.user {
+  font-weight: bold;
+  margin-left: 12px;
+}
+#tweets .comments-content .comment-header .datetime {
+  margin-left: 12px;
+}
+
+</style>
+
+<noscript>
+<style type="text/css">
+
+#tweets a.refresh {
+  display: none !important;
+}
+
+</style>
+</noscript>
+</div>
+<div class="clear"></div>
+<span class="widget-item-control">
+<span class="item-control blog-admin">
+<a class="quickedit" href="http://www.blogger.com/rearrange?blogID=5235590154125226279&amp;widgetType=HTML&amp;widgetId=HTML4&amp;action=editWidget&amp;sectionId=sidebar" onclick='return _WidgetManager._PopupConfig(document.getElementById("HTML4"));' target="configHTML4" title="修改">
+<img alt="" src="zz2_files/icon18_wrench_allbkg.png" width="18" height="18">
+</a>
+</span>
+</span>
+<div class="clear"></div>
+</div><div class="widget HTML" id="HTML6">
+<div class="widget-content">
+<script type="text/javascript">
+jQuery(function($)
+{
+  function init()
+  {
+    var arrMaximDefault = [
+      "一个人的价值, 在于他贡献了什么, 而不在于他获得了什么&#12290;	@爱因斯坦",
+      "我从来不把安逸和快乐看作是生活目的本身, 对这种伦理基础, 我称之为'猪栏的理想'&#12290;	@爱因斯坦",
+      "未经反思自省的人生不值得去过	The unexamined life is not worth living.	@苏格拉底 (哲学之父)",
+      "大多数人在20到30岁就已经过完自己的一生&#12290;	一过了这个年龄段, 他们就变成自己的影子, 以后的生命只是在不断重复自己&#12290;	@&#12298;约翰.克里斯朵夫&#12299;罗曼.罗兰",
+      "活着, 如同生命最后一天般活着;	学习, 如同永远活着般学习&#12290;	@圣雄甘地 (印度国父)",
+      "在这个世界上, 人所处的绝境, 在很多情况下, 都不是生存的绝境, 而是精神的绝境!",
+      "人生中最大的两个财富是: 你的才华和你的时间&#12290;	才华越来越多而时间越来越少&#12290;我们的一生就是用时间来换取才华&#12290;",
+      "Stay hungry. Stay foolish.	@史蒂夫.乔布斯引自&#12298;全球概览&#12299;",
+      "这辈子没法做太多的事情, 所以每一件都要做到精彩绝伦!	@史蒂夫.乔布斯",
+      "我每天都自问: '如果今天是我生命的最后一天, 我还会做今天打算做的事情吗?'	@史蒂夫.乔布斯  2009/01/4.md",
+      "想得到你从未拥有过的东西, 就必须做你从未做过的事情&#12290;",
+      "预测未来最好的方法就是去创造未来	@林肯 (美国前总统)",
+      "没有人可以回到过去重新开始, 但谁都可以从现在开始, 书写一个全然不同的结局!",
+      "人生最大的一种痛, 不是失败, 而是没有经历自己想要经历的一切&#12290;",
+      "你若不想做, 总能找到借口; 你若想做, 总会找到方法	@阿拉伯谚语",
+      "宁鸣而死 不默而生	@范仲淹",
+      "获得信任的技巧就是避免使用任何技巧",
+      "判断一个人的人品, 不是看他好起来做什么好事, 而是看他坏起来&#12304;不做&#12305;什么坏事&#12290;",
+      "不要去欺骗别人 -- 因为你能骗到的人, 都是相信你的人&#12290;",
+      "想要成功, 就要学会在机遇从头顶上飞过时跳起来并抓住它&#12290;	这样逮到机遇的概率才大!	@比尔.盖茨",
+      "授人以鱼不如授人以渔!	授人以鱼只救一时之急, 授人以渔则可解一生之需&#12290;	(这也是俺博客的宗旨)"
+    ];
+
+    var arrMaximThink = [
+      "兴趣是最好的老师	@爱因斯坦  2009/01/1.md",
+      "知识上的投资总能得到最好的回报&#12290;	@本杰明.富兰克林 (美国开国元勋 物理学家 作家)  2013/09/knowledge-structure.md",
+      "学习不是填满水桶, 而是点燃火焰!	Education is not the filling of a pail but the lighting of a fire.	@叶芝 (爱尔兰诗人)",
+      "我唯一能确定的就是自己的无知	@苏格拉底 (哲学之父)",
+      "真正的无知不是知识的贫乏, 而是拒绝获取知识!	@波普尔 (哲学家 思想家)",
+      "读书是在别人思想的帮助下建立自己的思想	@尼古拉.鲁巴金  (俄国作家)  2013/04/how-to-read-book.md",
+      "不要盲目地崇拜任何权威, 因为你总能找到相反的权威&#12290;	@罗素 (哲学家 数学家)  2014/05/fans-and-idolatry.md",
+      "仅仅凭借信仰跟从就等于盲从	To follow by faith alone is to follow blindly.	@本杰明.富兰克林 (美国开国元勋 物理学家 作家)",
+      "想象力比知识更重要!	因为知识是有限的, 而想象力概括着世界的一切, 推动着进步, 并且是知识进化的源泉&#12290;	@爱因斯坦",
+      "你要按你所想的去生活; 否则, 你迟早会按你所生活的去想!",
+      "大多数人宁愿死去, 也不愿思考&#12290; -- 事实上他们也确实到死都没有思考&#12290;	@罗素 (哲学家 数学家)",
+      "对知识分子而言, 成为思维的精英比成为道德的精英更重要&#12290;	@王小波 (作家)",
+      "只有两样东西可能是无限的: 宇宙的大小和人类的愚蠢&#12290;不过, 对于前者我不太确定 :)	@爱因斯坦"
+    ];
+
+    var arrMaximProgram = [
+      "没有银弹(万能药)	NO silver bullet	@Fred Brooks (图灵奖得主 &#12298;人月神话&#12299;作者)  2009/03/book-review-mythical-man-month.md",
+      "编程的艺术就是处理复杂性的艺术	@Edsger Dijkstra (图灵奖得主)",
+
+      "简单即是美	Simple is beautiful",
+      "简单是可靠的先决条件	Simplicity is prerequisite for reliability.	@Edsger Dijkstra (图灵奖得主)",
+      "优秀软件的作用是让复杂的东西看起来简单	@Grady Booch (UML创始人之一)",
+      "设计软件有两种方法: 一种是简单到极致而明显没有缺陷; 另一种是复杂到极致以至于没有明显的缺陷&#12290;前者要难得多!	@C.A.R.Hoare",
+
+      "优秀的设计在不断地演化	糟糕的设计在不断地打补丁",
+      "最纯粹&#12289;最抽象的设计难题就是设计桥梁&#12290;你面对的问题是: 如何用最少的材料, 跨越给定的距离&#12290;	@保罗.格雷汉姆 (知名黑客 硅谷牛人)",
+      "在不同的层次审视你的设计",
+      "在软件'可重用'之前先得'可用'	@Ralph Johnson (设计模式四人帮之一)",
+      "软件设计就像做爱, 一次犯错, 你要用余下的一生来维护&#12290;	@Michael Sinz",
+      "更好的工具未必能做出更好的设计",
+
+      "好的程序员是那种过单行道马路都要往两边看的人	@Doug Linder",
+      "好的程序代码本身就是最好的文档	@&#12298;代码大全&#12299;Steve McConnell",
+      "假如程序代码和注释不一致, 那么很可能两者都是错的!	@Norm Schryer",
+      "你写下的任何代码, 在六个月以后去看的话, 都像是别人写的&#12290;	@Tom Cargill",
+      "程序必须首先让人类可以理解, 然后顺便让机器能执行&#12290;	@&#12298;SICP&#12299;",
+
+      "不能影响你编程观点的语言, 不值得你去学&#12290;	@Alan Perlis",
+      "世界上只有两种编程语言: 要么充满了抱怨; 要么没人使用&#12290;	@Bjarne Stroustrup (C++之父)",
+      "没有哪种编程语言能阻止程序员写出糟糕的代码, 不管这种语言的结构有多么好&#12290;	@Larry Flon",
+      "C语言诡异离奇, 缺陷重重, 但却获得了巨大的成功 &#65306;)	@Dennis Ritchie (C语言之父 Unix之父)",
+      "(相对C而言)在C++里, 想搬起石头砸自己的脚更为困难了&#12290;	不过一旦你真这么做了, 整条腿都得报销!	@Bjarne Stroustrup (C++之父)",
+      "Java与JavaScript的关系, 如同雷锋与雷峰塔的关系",
+
+      "在理论上, 理论和实践是没有差异的; 但在实践中, 是有的&#12290;	In theory, there is no difference between theory and practice. But in practice, there is.	@Snepscheut",
+      "在进度落后的项目中增加人手只会导致进度更加落后	@Fred Brooks (图灵奖得主 &#12298;人月神话&#12299;作者)  2009/03/book-review-mythical-man-month.md",
+      "用代码行数测算软件开发进度如同按重量测算飞机的制造进度	@比尔.盖茨",
+      "在水上行走和按需求文档开发软件都很容易 -- 前提是它们都处于冻结状态	@Edward V Berard",
+      "乐观主义是软件开发的职业病, 用户反馈则是其治疗方法&#12290;	@Kent Beck (Extreme Programming之父)",
+      "软件开发是一场程序员和上帝的竞赛:	程序员要开发出更大更好&#12289;连傻瓜都会用的软件; 而上帝在努力创造更傻的傻瓜&#12290;	到目前为止, 一直是上帝赢&#12290;	@Rick Cook",
+
+      "如果建筑工人像程序员写软件那样盖房子, 那第一只飞来的啄木鸟就能毁掉人类文明&#12290;	@Gerald Weinberg (软件工程大牛)",
+      "如果调试(debug)是去除bug的过程, 那么编程就是制造bug的过程&#12290;	@Edsger Dijkstra (图灵奖得主)",
+      "要在自己的代码里找出一个bug是十分困难的&#12290;而当你认为你的代码没有错误时, 那就更难了&#12290;	@&#12298;代码大全&#12299;Steve McConnel",
+      "调试代码比新编写代码更困难&#12290;	因此, 如果你尽自己所能写出了最复杂的代码, 你将没有更大的智慧去调试它&#12290;",
+
+      "过早的优化是万恶之源	Premature optimization is the root of all evil.	@Donald Knuth (算法大牛 图灵奖得主)",
+      "Tape is Dead, Disk is Tape, Flash is Disk, RAM Locality is King!	@Jim Gray (数据库大牛 图灵奖得主)",
+
+      "软件就像'性', 免费的时候更好!	Software is like sex; it's better when it's free.	@Linus Torvalds (Linux之父)"
+    ];
+
+    var arrMaximPolity = [
+      "在民主国家, 最高原则是全民的利益而不是统治者的利益&#12290;	服从民主国家的统治权并不会使人变为奴隶, 而是使人变为公民&#12290;	@斯宾诺莎 (哲学家)",
+      "国家为人而立, 而非人为国家而活&#12290;	国家的最高使命是保护个人, 使其有机会发展成为有创造才能的人&#12290;	@爱因斯坦",
+      "如果政府不能解决问题, 那它本身就成为问题!	@里根 (美国前总统)",
+      "民众不应该害怕他们的政府, 政府才应该害怕它的民众!	People should not be afraid of their governments. Governments should be afraid of their people.	@&#12298;V怪客&#65295;V字仇杀队&#12299;  2011/11/film-v-for-vendetta.md",
+      "制造恐惧是专制政府的终极武器	@&#12298;V怪客&#65295;V字仇杀队&#12299;  2011/11/film-v-for-vendetta.md",
+      "宪法的基本原则是: 个人可以做任何事情, 除非法律禁止; 政府不能做任何事情, 除非法律许可&#12290;	@约翰.洛克 (哲学家 思想家)",
+      "财产不应公有, 权力不应私有&#12290;否则将会坠入地狱&#12290;	@约翰.洛克 (哲学家 思想家)",
+      "爱国者的责任就是保护国家不受政府侵犯	@托马斯&#183;潘恩 (美国政治思想家)",
+      "没有投票权的征税就是暴政	@詹姆斯.奥蒂斯 (美国独立时期评论家)",
+      "当法律失去公正, 则反抗成为义务&#12290;	When injustice becomes law, resistance becomes duty.",
+
+      "牺牲基本自由来换取暂时的安全, 最后既得不到安全也得不到自由!	@本杰明.富兰克林 (美国开国元勋 物理学家 作家)",
+      "现在有人对你们说: '牺牲你们个人的自由, 去求国家的自由!'	我要对你们说: '争取个人的自由, 就是争取国家的自由; 争取个人的人格, 就是争取国家的国格&#12290;自由平等的国家不是一群奴才建造得起来的!'	@胡适 (思想家)  2013/11/weekly-share-57.md",
+      "美国人来了, 有面包有自由; 苏俄来了, 有面包无自由; 中共来了, 无面包无自由!	@胡适 (思想家)  2014/07/artists-and-ccp.md",
+      "若批评不自由, 则赞美无意义!	@法国&#12298;费加罗报&#12299;的宗旨",
+      "法律本身并不能保证言论自由; 要做到这一点, 必须所有人都有包容精神&#12290;	Laws alone can not secure freedom of expression;	in order that every man present his views without penalty there must be spirit of tolerance in the entire population.	@爱因斯坦",
+      "解放一个习惯于被奴役的民族比奴役一个习惯于自由的民族更难	@孟德斯鸠 (启蒙思想家)",
+      "将愚人从他们所敬拜的锁链下解放出来是非常困难的	@伏尔泰 (启蒙思想家)",
+
+      "专政与民主是对立的统一, 人民民主是基础, 只有充分民主才能有专政, 离开民主就是法西斯专政!	@胡耀邦谈'人民民主专政'",
+      "如果人民不欢迎我们, 我们就该下台了!	@胡耀邦",
+      "民主是自下而上争取的, 不是自上而下给与的!	@方励之 (科学家 政治异议人士)",
+
+      "教育的价值在于培训思维, 而不在于传授事实&#12290;	The value of a college education is not the learning of many facts but the training of the mind to think.	@爱因斯坦",
+      "花在孩子身上的钱和孩子的修养之间没有任何关系, 甚至成反比&#12290;	在子女教育方面, 父母应该投入的是时间, 而不是金钱&#12290;	@大前研一 (日本经济评论家)",
+      "小时候一个劲地教你做好人, 长大了一个劲地教你做坏人	这就是中国式教育",
+
+      "你可以暂时地蒙骗所有人, 也可以永久地蒙骗部分人, 但不可能永久地蒙骗所有人&#12290;	You can fool all the people some of the time, some of the people all the time, but you cannot fool all the people all the time.	@林肯 (美国前总统)",
+      "党可以宣布'2+2=5', 而你就不得不相信它&#12290;	@&#12298;1984&#12299;乔治.奥威尔  2009/06/book-review-1984.md",
+      "在大欺骗的时代, 说出真相就是革命行为!	@乔治.奥威尔 (&#12298;1984&#12299;作者)",
+      "艺术家用谎言揭露真相, 政治家用谎言掩盖真相&#12290;	Artists use lies to tell the truth, while politicians use them to cover the truth up.	@&#12298;V怪客&#65295;V字仇杀队&#12299;  2011/11/film-v-for-vendetta.md",
+      "任何专制国家的教育, 其目的都是在极力降低国民的心智&#12290;	@孟德斯鸠 (启蒙思想家)",
+      "当你试图了解你的祖国, 你已经走上了犯罪道路!	@艾未未 (艺术家 持不同政见者)",
+      "古代愚民政策是不许民众受教育, 现代愚民政策是只许民众受洗脑教育",
+      "洗脑教育要塑造的, 不是铁屋中沉睡的人, 而是装睡的人&#12290;	因为沉睡的人你总有办法唤醒, 但是你永远无法唤醒装睡的人!",
+      "世上最难的两件事: 把自己的思想装进别人的脑袋, 把别人的钞票装进自己的口袋 -- 共产党都做到了!",
+      "孔丘&#12289;朱熹的奴隶少了, 却添上了一班马克思&#12289;克鲁泡特金的奴隶&#12290;	@胡适 (思想家)",
+      "革命以前, 做奴隶; 革命后不久, 受了奴隶的骗, 变成他们的奴隶!	@鲁迅",
+      "全中国只有一所学校, 就是党校 -- 其它的学校都是分校!	@陈丹青 (艺术家)",
+      "以前学英语是为了更好地了解外国; 现在学英语是为了更好地了解中国!",
+
+      "共产主义是一种伪科学, 演变成一种伪宗教, 最终表现为僵化的集权式的邪恶政治集团!	@Richard Pipes (&#12298;共产主义实录&#12299;作者)",
+      "作为一名预言家, 马克思失败的原因, 完全在于历史主义的贫乏&#12290;	@&#12298;历史决定论的贫困&#12299;波普尔 (哲学家 思想家)",
+      "总是使一个国家变成人间地狱的东西, 恰恰是人们试图将其变成天堂&#12290;	@荷尔德林 (哈耶克的&#12298;通往奴役之路&#12299;第2章把此句作为引言)",
+      "如何判断什么样的人是共产主义者呢, 共产主义者就是那些阅读马克思和列宁学说的人;	那如何判断反共产主义者呢&#65292;反共产主义者是那些真正理解了马克思和列宁学说的人&#12290;	@里根 (美国前总统)",
+      "一个人如果30岁以前没有相信过共产主义, 他缺乏良心; 如果到30岁以后还相信共产主义, 他没有头脑&#12290;	@克列蒙梭 (法国政治家)",
+      "共产主义最大的优越性体现在: 可以克服别的主义下根本不存在的困难&#12290;",
+
+      "一百年了都没长进 -- 上面还是慈禧, 下面还是义和团!	@资中筠 (中国社科院学者)",
+      "如果让中宣部的官员和卫生部的官员对调, 那么中国既有了言论自由, 也有了食品安全&#12290;",
+      "中共是这样的政党 -- 既千方百计阻止你知道真相, 又千方百计指责你不明真相 :)",
+      "中国共产党是一心一意为人民服务的政党 -- 你想不让它服务都不行 :)",
+      "'中国模式'的核心竞争力就是压榨劳动力	@谢国忠 (经济学家)",
+      "不是具有中国特色的社会主义, 而是具有中国特色的社会达尔文主义!",
+      "欧美的精英们已经不再为生存而担忧, 不用因恐惧而说话&#12290;而中国的精英们还在为民主自由而耗尽精力甚至生命!",
+      "如果鲁迅活在这个年代: 他的博客首先会被和谐, 然后被请喝茶谈话, 最后以煽动颠覆国家罪被捕入狱...",
+      "一个国家的监狱里有一个良心犯, 这个国家就不会有良心; 有二个, 这个国家就让人恶心; 有三个, 这就不是国家; 有四个, 亡国就是解放&#12290;	@昂山素季 (缅甸民运领袖)",
+      "道德在书本里, 榜样在电视里, 国土在肺里, 爱情在房产证里, 幸福感在梦里...	这就是中国特色",
+      "拜金不可怕, 可怕的是在一个不吃不喝也要几百年才能买房的社会却不许拜金;	低俗不可怕, 可怕的是在一个几千万男生找不到女友, 同龄少女都被老男人包养的国度却不准低俗!",
+      "郭敬明和唐骏的共同点是: 他们这类人越成功, 就说明我们这个社会越失败!",
+      "中国没有多少'人民内部矛盾', 主要是'党和人民的矛盾'&#12290;党反复提'人民内部矛盾', 其实是挑拨离间!",
+      "天朝知识分子分三类: 1 沉默的大多数 2 公共知识分子 3 '公公'知识分子",
+
+      "权力导致腐败, 绝对的权力导致绝对的腐败!	@阿克顿勋爵 (政治思想家)",
+      "一切拥有权力的人都有滥用权力为自己谋求私利的倾向	@孟德斯鸠 (启蒙思想家)  2014/07/corruption-and-form-of-government.md",
+      "一群亿万富豪在人民大会堂里开两会 -- 他们管自己叫'无产阶级先锋队'  2012/03/national-people-congress.md",
+      "中国人民是伟大的	用全球7%的耕地养活了全球50%的公务员, 并承受全球70%的官员腐败...",
+
+      "罗马城之所以是这样的罗马城是因为市民就是这样的市民!	This City is what it is because our citizens are what they are.	@柏拉图",
+      "一个肮脏的国家, 如果人人讲规则而不是空谈道德, 最终会变成一个有人味儿的正常国家, 道德自然会逐渐回归;	反之, 一个干净的国家, 如果人人都不讲规则却大谈道德&#12289;谈高尚, 天天没事儿就谈道德规范, 人人大公无私, 最终这个国家会堕落成为一个伪君子遍布的肮脏国家&#12290;	@胡适 (思想家)  2013/11/weekly-share-57.md",
+      "你要看一个国家的文明, 只需考察三件事: 第一看他们怎样待小孩子; 第二看他们怎样待女人; 第三看他们怎样利用闲暇的时间&#12290;	@胡适 (思想家)",
+      "做奴隶虽然不幸, 但并不可怕, 因为知道挣扎, 毕竟还有挣脱的希望;	若是从奴隶生活中寻出美来, 赞叹, 陶醉, 就是万劫不复的奴才了!	@鲁迅  2012/06/stockholm-syndrome.md",
+      "自有历史以来, 中国人是一向被同族屠戮&#12289;奴隶&#12289;敲掠&#12289;刑辱&#12289;压迫下来的, 非人类所能忍受的楚痛, 也都身受过&#12290;	每一考查, 真教人觉得不像活在人间&#12290;	@鲁迅",
+      "信仰不能当饭吃, 所以不重要; 民主不能当饭吃, 所以不重要; 自由不能当饭吃, 所以不重要......	对于中国人来说, 不能当饭吃的, 都不重要&#12290;	我们信奉了猪的生活原则, 也就得到了猪的命运 -- 迟早给别人当饭吃",
+
+      "真的猛士敢于在一个不正常的国家做一个正常的人",
+      "一旦你习惯了戴面具的生活, 你的脸将变得跟面具一样&#12290;	@&#12298;V怪客&#65295;V字仇杀队&#12299;  2010/11/institutionalize.md",
+      "每当有事情发生, 懦夫会问: '这么做安全吗?' 患得患失者会问: '这么做明智吗?' 虚荣者会问: '这么做受欢迎吗?' 但是良知只会问: '这么做正确吗?'	@马丁.路德.金 (美国人权领袖)",
+      "雪崩时, 没有一片雪花觉得自己有责任&#12290;	@伏尔泰 (启蒙思想家)",
+      "千万别以为自己可以逃避, 我们的每一步都决定着最后的结局, 我们的脚正在走向自己选定的终点&#12290;	@米兰.昆德拉 (作家)",
+      "人道主义的含义是: 从不以人作为牺牲来达到某一目的!	@施韦策 (诺贝尔和平奖得主)",
+      "所谓'摸着石头过河'就是: 群众们都过河了, 官员们还在那里假装摸石头!"
+    ];
+
+    var arrMaximHistory = [
+      "谁控制过去, 谁就控制未来; 谁控制现在, 谁就控制过去&#12290;	Who controls the past controls the future; who controls the present controls the past.	@&#12298;1984&#12299;乔治.奥威尔  2009/06/book-review-1984.md",
+      "以铜为镜, 可以正衣冠; 以史为镜, 可以知兴替; 以人为镜, 可以明得失&#12290;	@李世民 (唐太宗)",
+      "人类从历史学到的唯一教训就是: 人类没有从历史中学到任何教训&#12290;	@汤因比 (历史学家)",
+      "人们总以为自己生活的时代糟糕透顶, 总是向往过去的黄金时代&#12290;	但在我们如今认为是身处黄金年代的那些人看来, 他们当时所处的世界同样是苍白无力的&#12290;	@伍迪.艾伦",
+      "中国人最悲哀的就是: 刚被历史的车轮碾过, 还没来得及爬起来, 发现历史在倒车..."
+    ];
+
+    var arrMaximGFW = [
+      "自由有许多困难, 民主亦非完美&#12290;然而, 我们从未建造一堵墙, 把我们的人民关在里面, 不准他们离开&#12290;	@&#12298;在柏林墙下的演说&#12299;肯尼迪 (美国前总统)  2009/07/break-through-berlin-wall.md",
+      "这些(监狱的)围墙很有趣&#12290;起初你痛恨它; 然后你逐渐习惯它; 足够长时间后, 你开始依赖它 -- 这就是体制化!	@电影&#12298;肖申克的救赎&#12299;  2010/11/institutionalize.md",
+      "Google重新发明了搜索, Facebook重新发明了社交, Apple重新发明了手机, Amazon重新发明了书籍...	天朝重新发明了局域网",
+      "翻墙和OX的相似之处:	一旦会做就老想做; 做第一次之后觉得天地豁然开朗; 每次做都有快感; 觉得不会做的都是SB!",
+      "GFW把中国人挡在了无数优秀网站之外, 仿佛在这些网站入口处设置了一道铁门, 上书八个大字:'华人与狗 不得入内'",
+      "几十年来, 朝鲜的领导人只有一个, 叫'金正日'; 几十年来, 天朝的领导人也只有一个, 叫'敏感词'",
+      "宁要社会主义的防火墙 不要资本主义的互联网"
+    ];
+
+    var arrMaximManagement = [
+      "用人不在于如何减少人的短处, 而在于如何发挥人的长处&#12290;	@彼得.德鲁克 (管理学之父)",
+      "企业最大的资产是人!	@松下幸之助 (号称日本经营之神)",
+      "你想雇用的人必须具备3种品质: 正直诚实&#12289;聪明能干和精力充沛&#12290;如果缺少第一种, 后两种品质会要你命!	@巴菲特  2009/04/defect-of-hire.md",
+      "以用户为中心, 其它一切纷至沓来!	@Google 信条",
+      "只有偏执狂才能生存!	@Andy Grove (英特尔创始人之一, 前任CEO)",
+      "领袖和跟风者的区别就在于创新!	@史蒂夫.乔布斯",
+      "我的管理风格既不是美国的个人主义, 也不是日本的共识主义, 而是独特的达尔文主义(适者生存)!	@比尔.盖茨",
+      "我们没有不懂技术的管理人员 -- 因为寻求技术和管理的平衡毫不费力!	@比尔.盖茨",
+      "伟大的车工值得给他几倍于普通车工的薪水&#12290;但一个伟大的程序员, 其价值相当于普通程序员的1万倍!	@比尔.盖茨",
+      "当你用一个手指指着某人时, 请注意其它三个手指在指哪儿&#12290;	@Gerald Weinberg (软件工程大牛)  2009/07/book-review-are-your-lights-on.md",
+      "唯一不变的是变化本身!"
+    ];
+
+    var arrMaximEconomy = [
+      "我也会有恐惧和贪婪, 只不过是在大众贪婪时恐惧, 在大众恐惧时贪婪!	@巴菲特",
+      "控制风险的最好办法是深入思考, 而不是投资组合&#12290;	@巴菲特",
+      "价值投资不能保证我们盈利, 但价值投资给我们提供了通向成功的唯一机会&#12290;	@巴菲特",
+      "我从事投资时, 会观察一家公司的全貌; 而大多数投资人只盯着它的股价&#12290;	@巴菲特",
+      "投资成功与否并非取决于你了解的东西, 而在于你能否老老实实地承认你所不知道的东西&#12290;	投资人并不需要做对很多事情, 重要的是不要犯重大的错误&#12290;	@巴菲特",
+      "所谓'市场效率学说'之类的投资教条, 不过是为了增加投资的神秘性, 好让投资顾问得以从中牟利罢了&#12290;	@巴菲特",
+      "退潮时, 便可知道谁在裸泳&#12290;	@巴菲特",
+      "短期而言, 股票市场是个投票机; 长期而言, 股票市场是个称重器&#12290;	@本杰明.格雷厄姆",
+      "投资是预测资产收益的活动, 而投机是预测市场心理的活动&#12290;	@凯恩斯",
+      "投资的风险来自于: 你不知道你在做什么 :)	@巴菲特"
+    ];
+
+
+    var sLabels = "";
+    $("span.post-labels").children("a").each(
+      function(nIndex)
+      {
+        sLabels += $(this).md()+"\n";
+      }
+    );
+    var arrMaxim = arrMaximDefault;
+    if(sLabels.indexOf("学会思考") >= 0)
+    {
+      arrMaxim = arrMaxim.concat(arrMaximThink);
+    }
+    if(sLabels.indexOf("翻墙") >= 0)
+    {
+      arrMaxim = arrMaxim.concat(arrMaximGFW);
+    }
+    if(sLabels.indexOf("政治") >= 0)
+    {
+      arrMaxim = arrMaxim.concat(arrMaximPolity);
+    }
+    if(sLabels.indexOf("历史") >= 0)
+    {
+      arrMaxim = arrMaxim.concat(arrMaximHistory);
+    }
+    if(sLabels.indexOf("编程") >= 0)
+    {
+      arrMaxim = arrMaxim.concat(arrMaximProgram);
+    }
+    if(sLabels.indexOf("管理") >= 0)
+    {
+      arrMaxim = arrMaxim.concat(arrMaximManagement);
+    }
+    if(sLabels.indexOf("经济") >= 0)
+    {
+      arrMaxim = arrMaxim.concat(arrMaximEconomy);
+    }
+
+    var str = arrMaxim[Math.floor(Math.random() * arrMaxim.length)];
+    str = str.replace(/\t/g, "<br/>");
+    str = str.replace(/@/g, "&#8212;&#8212;");
+    var chLeft = String.fromCharCode(60);
+    var chRight = String.fromCharCode(62);
+    str = str.replace("http:", chLeft+"a href='http:");
+    str = str.replace("html", "html'"+chRight+"相关帖子"+chLeft+"/a"+chRight);
+    $("div.descriptionwrapper").children("p.description").md(str);
+  }
+
+  $(document).ready(
+    function()
+    {
+      try
+      {
+        init();
+      }
+      catch(err)
+      {
+      }
+    }
+  );
+
+});
+</script>
+</div>
+<div class="clear"></div>
+<span class="widget-item-control">
+<span class="item-control blog-admin">
+<a class="quickedit" href="http://www.blogger.com/rearrange?blogID=5235590154125226279&amp;widgetType=HTML&amp;widgetId=HTML6&amp;action=editWidget&amp;sectionId=sidebar" onclick='return _WidgetManager._PopupConfig(document.getElementById("HTML6"));' target="configHTML6" title="修改">
+<img alt="" src="zz2_files/icon18_wrench_allbkg.png" width="18" height="18">
+</a>
+</span>
+</span>
+<div class="clear"></div>
+</div></div>
+</div>
+<!-- spacer for skins that want sidebar and main to be the same height-->
+<div class="clear">&nbsp;</div>
+</div>
+<!-- end content-wrapper -->
+</div></div>
+<!-- end outer-wrapper -->
+<script type="text/javascript">
+if (window.jstiming) window.jstiming.load.tick('widgetJsBefore');
+</script><script type="text/javascript" src="zz2_files/2499618864-widgets.js"></script>
+<script gapi_processed="true" type="text/javascript" src="zz2_files/plusone.js"></script><iframe tabindex="-1" style="width: 1px; height: 1px; position: absolute; top: -100px;" src="zz2_files/postmessageRelay.htm" id="oauth2relay794871038" name="oauth2relay794871038"></iframe>
+<script type="text/javascript">
+if (typeof(BLOG_attachCsiOnload) != 'undefined' && BLOG_attachCsiOnload != null) { window['blogger_templates_experiment_id'] = "templatesV1";window['blogger_blog_id'] = '5235590154125226279';BLOG_attachCsiOnload('item_'); }_WidgetManager._Init('//www.blogger.com/rearrange?blogID\x3d5235590154125226279','//program-think.blogspot.com/2014/10/weekly-share-74.md','5235590154125226279');
+_WidgetManager._SetDataContext([{'name': 'blog', 'data': {'blogId': '5235590154125226279', 'bloggerUrl': 'http://www.blogger.com', 'title': '编程随想的博客', 'pageType': 'item', 'postId': '3544317389143776752', 'url': '2014/10/weekly-share-74.md', 'canonicalUrl': '2014/10/weekly-share-74.md', 'canonicalHomepageUrl': '', 'homepageUrl': '', 'blogspotFaviconUrl': 'favicon.ico', 'enabledCommentProfileImages': true, 'adultContent': false, 'disableAdSenseWidget': false, 'analyticsAccountNumber': '', 'searchLabel': '', 'searchQuery': '', 'pageName': '每周转载&#65306;香港占中民主运动的外媒报道和&#12304;大量&#12305;照片&#65288;9-29至10-2&#65289;', 'pageTitle': '编程随想的博客: 每周转载&#65306;香港占中民主运动的外媒报道和&#12304;大量&#12305;照片&#65288;9-29至10-2&#65289;', 'encoding': 'UTF-8', 'locale': 'zh_CN', 'localeUnderscoreDelimited': 'zh_cn', 'isPrivate': false, 'isMobile': false, 'isMobileRequest': false, 'mobileClass': '', 'isPrivateBlog': false, 'languageDirection': 'ltr', 'feedLinks': '\74link rel\75\42alternate\42 type\75\42application/atom+xml\42 title\75\42编程随想的博客 - Atom\42 href\75\42feeds/posts/default\42 /\76\n\74link rel\75\42alternate\42 type\75\42application/rss+xml\42 title\75\42编程随想的博客 - RSS\42 href\75\42feeds/posts/default?alt\75rss\42 /\76\n\74link rel\75\42service.post\42 type\75\42application/atom+xml\42 title\75\42编程随想的博客 - Atom\42 href\75\42http://www.blogger.com/feeds/5235590154125226279/posts/default\42 /\76\n\n\74link rel\75\42alternate\42 type\75\42application/atom+xml\42 title\75\42编程随想的博客 - Atom\42 href\75\42feeds/3544317389143776752/comments/default\42 /\76\n', 'meTag': '', 'openIdOpTag': '', 'postImageUrl': 'http://lh4.googleusercontent.com/OWzTND9EqjWkR_wFw8nGcd2OXr8nNff2BQDxwvpvqO5IHJI10bPiY9W4LGMMXf1iyfyb8u3eZbxHsow2bnumKku1ZiDV01fFhXVBKFc4ZgeH2DQ5_e-QOM7skmld4efIRU5e', 'latencyHeadScript': '\74script type\75\42text/javascript\42\76(function() { var b\75window,f\75\42chrome\42,g\75\42tick\42,k\75\42jstiming\42;(function(){function d(a){this.t\75{};this.tick\75function(a,d,c){var e\75void 0!\75c?c:(new Date).getTime();this.t[a]\75[e,d];if(void 0\75\75c)try{b.console.timeStamp(\42CSI/\42+a)}catch(h){}};this[g](\42start\42,null,a)}var a;b.performance\46\46(a\75b.performance.timing);var n\75a?new d(a.responseStart):new d;b.jstiming\75{Timer:d,load:n};if(a){var c\75a.navigationStart,h\75a.responseStart;0\74c\46\46h\76\75c\46\46(b[k].srt\75h-c)}if(a){var e\75b[k].load;0\74c\46\46h\76\75c\46\46(e[g](\42_wtsrt\42,void 0,c),e[g](\42wtsrt_\42,\42_wtsrt\42,h),e[g](\42tbsd_\42,\42wtsrt_\42))}try{a\75null,\nb[f]\46\46b[f].csi\46\46(a\75Math.floor(b[f].csi().pageT),e\46\0460\74c\46\46(e[g](\42_tbnd\42,void 0,b[f].csi().startE),e[g](\42tbnd_\42,\42_tbnd\42,c))),null\75\75a\46\46b.gtbExternal\46\46(a\75b.gtbExternal.pageT()),null\75\75a\46\46b.external\46\46(a\75b.external.pageT,e\46\0460\74c\46\46(e[g](\42_tbnd\42,void 0,b.external.startE),e[g](\42tbnd_\42,\42_tbnd\42,c))),a\46\46(b[k].pt\75a)}catch(p){}})();b.tickAboveFold\75function(d){var a\0750;if(d.offsetParent){do a+\75d.offsetTop;while(d\75d.offsetParent)}d\75a;750\76\75d\46\46b[k].load[g](\42aft\42)};var l\75!1;function m(){l||(l\75!0,b[k].load[g](\42firstScrollTime\42))}b.addEventListener?b.addEventListener(\42scroll\42,m,!1):b.attachEvent(\42onscroll\42,m);\n })();\74/script\076', 'mobileHeadScript': '', 'view': '', 'dynamicViewsCommentsSrc': '//www.blogblog.com/dynamicviews/4224c15c4e7c9321/js/comments.js', 'dynamicViewsScriptSrc': '//www.blogblog.com/dynamicviews/76f25a6f2e06af76', 'plusOneApiSrc': 'https://apis.google.com/js/plusone.js', 'sf': 'n', 'tf': ''}}, {'name': 'skin', 'data': {'vars': {'mainHoverLinkColor': '#88BBFF', 'sidebarHoverLinkColor': '#88BBFF', 'sidebarBgColor': '#FFFFFF', 'mainVisitedLinkColor': '#800080', 'sidebarTitleColor': '#000000', 'mainTextColor': '#000000', 'bodyFont': 'normal normal 100% \47Trebuchet MS\47, verdana, sans-serif', 'sidebarVisitedLinkColor': '#800080', 'dateHeaderColor': '#808080', 'endSide': 'right', 'startSide': 'left', 'sidebarLinkColor': '#0066FF', 'sidebarTextColor': '#000000', 'mainBgColor': '#F0F0F0', 'mainLinkColor': '#0066FF'}, 'override': ''}}, {'name': 'view', 'data': {'classic': {'name': 'classic', 'url': '?view\75classic'}, 'flipcard': {'name': 'flipcard', 'url': '?view\75flipcard'}, 'magazine': {'name': 'magazine', 'url': '?view\75magazine'}, 'mosaic': {'name': 'mosaic', 'url': '?view\75mosaic'}, 'sidebar': {'name': 'sidebar', 'url': '?view\75sidebar'}, 'snapshot': {'name': 'snapshot', 'url': '?view\75snapshot'}, 'timeslide': {'name': 'timeslide', 'url': '?view\75timeslide'}}}]);
+_WidgetManager._RegisterWidget('_HTMLView', new _WidgetInfo('HTML2', 'sidebar', null, document.getElementById('HTML2'), {}, 'displayModeFull'));
+_WidgetManager._RegisterWidget('_HTMLView', new _WidgetInfo('HTML3', 'sidebar', null, document.getElementById('HTML3'), {}, 'displayModeFull'));
+_WidgetManager._RegisterWidget('_HTMLView', new _WidgetInfo('HTML8', 'sidebar', null, document.getElementById('HTML8'), {}, 'displayModeFull'));
+_WidgetManager._RegisterWidget('_TextView', new _WidgetInfo('Text1', 'sidebar', null, document.getElementById('Text1'), {}, 'displayModeFull'));
+_WidgetManager._RegisterWidget('_LinkListView', new _WidgetInfo('LinkList2', 'sidebar', null, document.getElementById('LinkList2'), {}, 'displayModeFull'));
+_WidgetManager._RegisterWidget('_LinkListView', new _WidgetInfo('LinkList6', 'sidebar', null, document.getElementById('LinkList6'), {}, 'displayModeFull'));
+_WidgetManager._RegisterWidget('_LinkListView', new _WidgetInfo('LinkList7', 'sidebar', null, document.getElementById('LinkList7'), {}, 'displayModeFull'));
+_WidgetManager._RegisterWidget('_LinkListView', new _WidgetInfo('LinkList8', 'sidebar', null, document.getElementById('LinkList8'), {}, 'displayModeFull'));
+_WidgetManager._RegisterWidget('_LinkListView', new _WidgetInfo('LinkList5', 'sidebar', null, document.getElementById('LinkList5'), {}, 'displayModeFull'));
+_WidgetManager._RegisterWidget('_LinkListView', new _WidgetInfo('LinkList9', 'sidebar', null, document.getElementById('LinkList9'), {}, 'displayModeFull'));
+_WidgetManager._RegisterWidget('_LinkListView', new _WidgetInfo('LinkList1', 'sidebar', null, document.getElementById('LinkList1'), {}, 'displayModeFull'));
+_WidgetManager._RegisterWidget('_LinkListView', new _WidgetInfo('LinkList4', 'sidebar', null, document.getElementById('LinkList4'), {}, 'displayModeFull'));
+_WidgetManager._RegisterWidget('_LinkListView', new _WidgetInfo('LinkList3', 'sidebar', null, document.getElementById('LinkList3'), {}, 'displayModeFull'));
+_WidgetManager._RegisterWidget('_HTMLView', new _WidgetInfo('HTML7', 'sidebar', null, document.getElementById('HTML7'), {}, 'displayModeFull'));
+_WidgetManager._RegisterWidget('_LabelView', new _WidgetInfo('Label1', 'sidebar', null, document.getElementById('Label1'), {}, 'displayModeFull'));
+_WidgetManager._RegisterWidget('_PopularPostsView', new _WidgetInfo('PopularPosts1', 'sidebar', null, document.getElementById('PopularPosts1'), {}, 'displayModeFull'));
+_WidgetManager._RegisterWidget('_BlogArchiveView', new _WidgetInfo('BlogArchive2', 'sidebar', null, document.getElementById('BlogArchive2'), {'languageDirection': 'ltr'}, 'displayModeFull'));
+_WidgetManager._RegisterWidget('_HTMLView', new _WidgetInfo('HTML1', 'sidebar', null, document.getElementById('HTML1'), {}, 'displayModeFull'));
+_WidgetManager._RegisterWidget('_HTMLView', new _WidgetInfo('HTML5', 'sidebar', null, document.getElementById('HTML5'), {}, 'displayModeFull'));
+_WidgetManager._RegisterWidget('_HTMLView', new _WidgetInfo('HTML4', 'sidebar', null, document.getElementById('HTML4'), {}, 'displayModeFull'));
+_WidgetManager._RegisterWidget('_HTMLView', new _WidgetInfo('HTML6', 'sidebar', null, document.getElementById('HTML6'), {}, 'displayModeFull'));
+_WidgetManager._RegisterWidget('_HeaderView', new _WidgetInfo('Header1', 'main', null, document.getElementById('Header1'), {}, 'displayModeFull'));
+_WidgetManager._RegisterWidget('_BlogView', new _WidgetInfo('Blog1', 'main', null, document.getElementById('Blog1'), {'cmtInteractionsEnabled': false, 'lightboxEnabled': true, 'lightboxModuleUrl': 'https://www.blogger.com/static/v1/jsbin/578552831-lbx__zh_cn.js', 'lightboxCssUrl': 'https://www.blogger.com/static/v1/v-css/2392111094-lightbox_bundle.css'}, 'displayModeFull'));
+</script>
+
+</body></html>
