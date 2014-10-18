@@ -19,7 +19,7 @@
 <div class="copyright">
 <h4>版权声明</h4>
 本博客所有的原创文章，作者皆保留版权。转载必须包含本声明，保持本文完整，并以超链接形式注明作者<a href="mailto:program.think@gmail.com">编程随想</a>和本文原始网址：<br>
-<a href="/2012/01/stockdale-paradox.md">2012/01/stockdale-paradox.html</a>
+<a href="/2012/01/stockdale-paradox.md">2012/01/stockdale-paradox.md</a>
 </div>
 </div>
 </body>

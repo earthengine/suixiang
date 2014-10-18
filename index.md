@@ -90,108 +90,108 @@
 <div class="widget-content">
 <h2>推荐帖子(翻墙技术)</h2>
 <ul>
-<li><a href='2009/05/how-to-break-through-gfw.html'>如何翻墙(全方位入门扫盲)</a></li>
-<li><a href='2011/09/gfw-faq.html'>常见翻墙问题答疑</a></li>
-<li><a href='2011/03/how-to-get-gfw-tools.html'>获取翻墙软件方法大全</a></li>
+<li><a href='2009/05/how-to-break-through-gfw.md'>如何翻墙(全方位入门扫盲)</a></li>
+<li><a href='2011/09/gfw-faq.md'>常见翻墙问题答疑</a></li>
+<li><a href='2011/03/how-to-get-gfw-tools.md'>获取翻墙软件方法大全</a></li>
 <li><a href='https://code.google.com/p/program-think/wiki/Software'>翻墙软件汇总下载 @ 俺的网盘</a></li>
-<li><a href='2013/01/cross-host-use-gfw-tool.html'>多台电脑如何共享翻墙通道</a></li>
-<li><a href='2013/11/tor-faq.html'>关于 TOR 的常见问题解答</a></li>
-<li><a href='2009/07/break-through-berlin-wall.html'>学习一下德国人民的翻墙精神</a></li>
+<li><a href='2013/01/cross-host-use-gfw-tool.md'>多台电脑如何共享翻墙通道</a></li>
+<li><a href='2013/11/tor-faq.md'>关于 TOR 的常见问题解答</a></li>
+<li><a href='2009/07/break-through-berlin-wall.md'>学习一下德国人民的翻墙精神</a></li>
 </ul>
 <h2>推荐帖子(网络安全)</h2>
 <ul>
-<li><a href='2010/06/howto-prevent-hacker-attack-0.html'>如何防止黑客入侵(系列)</a></li>
-<li><a href='2013/06/privacy-protection-0.html'>如何保护隐私(系列)</a></li>
-<li><a href='2010/04/howto-cover-your-tracks-0.html'>如何隐藏你的踪迹，避免跨省追捕(系列)</a></li>
-<li><a href='2012/10/system-vm-0.html'>扫盲操作系统虚拟机(系列)</a></li>
-<li><a href='2011/05/recommend-truecrypt.html#index'>TrueCrypt 的扫盲教程和高级教程</a></li>
-<li><a href='2011/05/file-encryption-overview.html'>文件加密的扫盲介绍</a></li>
-<li><a href='2013/07/online-backup-virtual-encrypted-disk.html'>文件备份技巧：组合“虚拟加密盘”和“网盘”</a></li>
-<li><a href='2013/02/file-integrity-check.html'>扫盲文件完整性校验——关于散列值和数字签名</a></li>
-<li><a href='2009/05/social-engineering-0-overview.html'>社会工程学扫盲(系列)</a></li>
-<li><a href='2013/02/weekly-share-41.html'>天朝御用骇客是如何暴露的？</a></li>
+<li><a href='2010/06/howto-prevent-hacker-attack-0.md'>如何防止黑客入侵(系列)</a></li>
+<li><a href='2013/06/privacy-protection-0.md'>如何保护隐私(系列)</a></li>
+<li><a href='2010/04/howto-cover-your-tracks-0.md'>如何隐藏你的踪迹，避免跨省追捕(系列)</a></li>
+<li><a href='2012/10/system-vm-0.md'>扫盲操作系统虚拟机(系列)</a></li>
+<li><a href='2011/05/recommend-truecrypt.md#index'>TrueCrypt 的扫盲教程和高级教程</a></li>
+<li><a href='2011/05/file-encryption-overview.md'>文件加密的扫盲介绍</a></li>
+<li><a href='2013/07/online-backup-virtual-encrypted-disk.md'>文件备份技巧：组合“虚拟加密盘”和“网盘”</a></li>
+<li><a href='2013/02/file-integrity-check.md'>扫盲文件完整性校验——关于散列值和数字签名</a></li>
+<li><a href='2009/05/social-engineering-0-overview.md'>社会工程学扫盲(系列)</a></li>
+<li><a href='2013/02/weekly-share-41.md'>天朝御用骇客是如何暴露的？</a></li>
 </ul>
 <h2>推荐帖子(学会思考)</h2>
 <ul>
-<li><a href='2013/04/how-to-read-book.html'>《如何阅读一本书》——书评及内容纲要</a></li>
-<li><a href='2010/10/book-review-asking-right-questions.html'>书评：《学会提问——批判性思维指南》</a></li>
-<li><a href='2013/09/knowledge-structure.html'>如何完善自己的知识结构</a></li>
-<li><a href='2009/02/study-technology-in-three-steps.html'>学习技术的三部曲：WHAT、HOW、WHY</a></li>
-<li><a href='2012/03/think-what-how-why.html'>用提问促进思维——再谈 WHAT HOW WHY 三部曲</a></li>
-<li><a href='2013/05/difference-between-fact-and-opinion.html'>批判性思维扫盲：学会区分"事实"与"观点"</a></li>
-<li><a href='2014/01/doublethink.html'>比"欺骗"更有效的洗脑手法——基于"双重思想"的思维控制</a></li>
-<li><a href='2014/02/brainwash-and-idiot.html'>聊聊洗脑和脑残——分析"脑残的起源"和"脑残的觉醒"</a></li>
-<li><a href='2009/07/book-review-are-your-lights-on.html'>书评：《你的灯亮着吗？——找到问题的真正所在》</a></li>
-<li><a href='2010/07/silent-proof.html'>思维的误区：忽视沉默的大多数</a></li>
-<li><a href='2011/03/logical-fallacies.html'>扫盲逻辑谬误——以五毛言论为反面教材</a></li>
+<li><a href='2013/04/how-to-read-book.md'>《如何阅读一本书》——书评及内容纲要</a></li>
+<li><a href='2010/10/book-review-asking-right-questions.md'>书评：《学会提问——批判性思维指南》</a></li>
+<li><a href='2013/09/knowledge-structure.md'>如何完善自己的知识结构</a></li>
+<li><a href='2009/02/study-technology-in-three-steps.md'>学习技术的三部曲：WHAT、HOW、WHY</a></li>
+<li><a href='2012/03/think-what-how-why.md'>用提问促进思维——再谈 WHAT HOW WHY 三部曲</a></li>
+<li><a href='2013/05/difference-between-fact-and-opinion.md'>批判性思维扫盲：学会区分"事实"与"观点"</a></li>
+<li><a href='2014/01/doublethink.md'>比"欺骗"更有效的洗脑手法——基于"双重思想"的思维控制</a></li>
+<li><a href='2014/02/brainwash-and-idiot.md'>聊聊洗脑和脑残——分析"脑残的起源"和"脑残的觉醒"</a></li>
+<li><a href='2009/07/book-review-are-your-lights-on.md'>书评：《你的灯亮着吗？——找到问题的真正所在》</a></li>
+<li><a href='2010/07/silent-proof.md'>思维的误区：忽视沉默的大多数</a></li>
+<li><a href='2011/03/logical-fallacies.md'>扫盲逻辑谬误——以五毛言论为反面教材</a></li>
 </ul>
 <h2>推荐帖子(心理学)</h2>
 <ul>
-<li><a href='2010/02/about-mental-model.html'>认识你自己——有关心智模式的扫盲介绍</a></li>
-<li><a href='2012/12/emperor-complex.html'>天朝民众的心理分析：圣君情结</a></li>
-<li><a href='2012/06/stockholm-syndrome.html'>天朝民众的心理分析：斯德哥尔摩综合症</a></li>
-<li><a href='2014/05/fans-and-idolatry.html'>不要成为“粉丝”——谈谈“偶像崇拜”的成因和危害</a></li>
-<li><a href='2009/05/halo-effect.html'>光环效应引发的认知误区</a></li>
-<li><a href='2010/04/how-to-attribute-success-failure.html'>你是怎么看待成败的——兼谈有效归因</a></li>
-<li><a href='2012/01/stockdale-paradox.html'>如何面对困境——兼谈"斯托克戴尔悖论"</a></li>
-<li><a href='2012/06/book-review-road-less-traveled.html'>书评：《少有人走的路——心智成熟的旅程》</a></li>
+<li><a href='2010/02/about-mental-model.md'>认识你自己——有关心智模式的扫盲介绍</a></li>
+<li><a href='2012/12/emperor-complex.md'>天朝民众的心理分析：圣君情结</a></li>
+<li><a href='2012/06/stockholm-syndrome.md'>天朝民众的心理分析：斯德哥尔摩综合症</a></li>
+<li><a href='2014/05/fans-and-idolatry.md'>不要成为“粉丝”——谈谈“偶像崇拜”的成因和危害</a></li>
+<li><a href='2009/05/halo-effect.md'>光环效应引发的认知误区</a></li>
+<li><a href='2010/04/how-to-attribute-success-failure.md'>你是怎么看待成败的——兼谈有效归因</a></li>
+<li><a href='2012/01/stockdale-paradox.md'>如何面对困境——兼谈"斯托克戴尔悖论"</a></li>
+<li><a href='2012/06/book-review-road-less-traveled.md'>书评：《少有人走的路——心智成熟的旅程》</a></li>
 </ul>
 <h2>推荐帖子(政治)</h2>
 <ul>
-<li><a href='2011/06/june-fourth-incident-0.html'>回顾六四(系列)</a></li>
-<li><a href='2011/12/revolution-0.html'>谈革命(系列)</a></li>
-<li><a href='2013/12/political-concepts-state-citizenship-etc.html'>政治常识扫盲：理清"国家、政体、公民、政府、政党"等概念</a></li>
-<li><a href='2014/02/freedom-of-speech.html'>政治常识扫盲：澄清"言论自由"的各种误区</a></li>
-<li><a href='2013/11/political-reform-or-economic-reform.html'>若政治制度不公平，则经济改革无意义</a></li>
-<li><a href='2013/04/more-supervision-less-thankfulness.html'>对政府——多些"监督问责"，少些"煽情感动"</a></li>
-<li><a href='2012/07/form-of-government.html'>扫盲常见的政治体制</a></li>
-<li><a href='2012/07/form-of-government-in-china.html'>聊聊天朝的政治体制</a></li>
-<li><a href='2013/03/princelings.html'>俺整理的《太子党关系网络》</a></li>
-<li><a href='2012/03/national-people-congress.html'> 看看全国人大代表都是啥货色——兼谈"议会道路的改良"行不通</a></li>
-<li><a href='2012/07/tacitus-trap.html'>朝廷为何落入"塔西佗陷阱"</a></li>
-<li><a href='2012/07/weekly-share-12.html'>汇总天朝的雷人语录 (定期更新)</a></li>
-<li><a href='2013/02/film-soviet-story.html'>《苏维埃往事》——看清苏联和纳粹的共同本质</a></li>
-<li><a href='2012/10/history-of-red-khmers.html'>最"纯正"的共产主义政权——红色高棉简史</a></li>
-<li><a href='2010/11/institutionalize.html'>谈谈体制化，并推荐《肖申克的救赎》</a></li>
-<li><a href='2012/08/environment-pollution-in-china.html'>谈谈环保问题的根源和解决之道</a></li>
+<li><a href='2011/06/june-fourth-incident-0.md'>回顾六四(系列)</a></li>
+<li><a href='2011/12/revolution-0.md'>谈革命(系列)</a></li>
+<li><a href='2013/12/political-concepts-state-citizenship-etc.md'>政治常识扫盲：理清"国家、政体、公民、政府、政党"等概念</a></li>
+<li><a href='2014/02/freedom-of-speech.md'>政治常识扫盲：澄清"言论自由"的各种误区</a></li>
+<li><a href='2013/11/political-reform-or-economic-reform.md'>若政治制度不公平，则经济改革无意义</a></li>
+<li><a href='2013/04/more-supervision-less-thankfulness.md'>对政府——多些"监督问责"，少些"煽情感动"</a></li>
+<li><a href='2012/07/form-of-government.md'>扫盲常见的政治体制</a></li>
+<li><a href='2012/07/form-of-government-in-china.md'>聊聊天朝的政治体制</a></li>
+<li><a href='2013/03/princelings.md'>俺整理的《太子党关系网络》</a></li>
+<li><a href='2012/03/national-people-congress.md'> 看看全国人大代表都是啥货色——兼谈"议会道路的改良"行不通</a></li>
+<li><a href='2012/07/tacitus-trap.md'>朝廷为何落入"塔西佗陷阱"</a></li>
+<li><a href='2012/07/weekly-share-12.md'>汇总天朝的雷人语录 (定期更新)</a></li>
+<li><a href='2013/02/film-soviet-story.md'>《苏维埃往事》——看清苏联和纳粹的共同本质</a></li>
+<li><a href='2012/10/history-of-red-khmers.md'>最"纯正"的共产主义政权——红色高棉简史</a></li>
+<li><a href='2010/11/institutionalize.md'>谈谈体制化，并推荐《肖申克的救赎》</a></li>
+<li><a href='2012/08/environment-pollution-in-china.md'>谈谈环保问题的根源和解决之道</a></li>
 </ul>
 <h2>推荐帖子(历史)</h2>
 <ul>
-<li><a href='2011/06/june-fourth-incident-0.html'>回顾 六四(系列)</a></li>
-<li><a href='2012/05/three-years-famine-0.html'>谈谈三年大饥荒(系列)</a></li>
-<li><a href='2014/07/artists-and-ccp.html'>面对共产党——民国人文大师的众生相</a></li>
-<li><a href='2010/09/censorship-of-images.html'>看看真理部是如何PS照片的</a></li>
-<li><a href='2014/04/history-china-fallen-behind-europe.html'>中国是从哪个朝代开始落后于西方？</a></li>
-<li><a href='2013/08/korean-war.html'>谈谈真理部对朝鲜战争的忽悠</a></li>
-<li><a href='2011/03/ccp-vs-japanese.html'>谁是最可恨的人？——写给仇日愤青们</a></li>
-<li><a href='2010/09/sino-japanese-war.html'>谈谈真理部对抗战历史的篡改</a></li>
-<li><a href='2014/03/propaganda-for-patriotism.html'>分析爱国主义忽悠的常见类型——顺便戳穿几个流传很广的谣言</a></li>
+<li><a href='2011/06/june-fourth-incident-0.md'>回顾 六四(系列)</a></li>
+<li><a href='2012/05/three-years-famine-0.md'>谈谈三年大饥荒(系列)</a></li>
+<li><a href='2014/07/artists-and-ccp.md'>面对共产党——民国人文大师的众生相</a></li>
+<li><a href='2010/09/censorship-of-images.md'>看看真理部是如何PS照片的</a></li>
+<li><a href='2014/04/history-china-fallen-behind-europe.md'>中国是从哪个朝代开始落后于西方？</a></li>
+<li><a href='2013/08/korean-war.md'>谈谈真理部对朝鲜战争的忽悠</a></li>
+<li><a href='2011/03/ccp-vs-japanese.md'>谁是最可恨的人？——写给仇日愤青们</a></li>
+<li><a href='2010/09/sino-japanese-war.md'>谈谈真理部对抗战历史的篡改</a></li>
+<li><a href='2014/03/propaganda-for-patriotism.md'>分析爱国主义忽悠的常见类型——顺便戳穿几个流传很广的谣言</a></li>
 </ul>
 <h2>推荐帖子(编程技术)</h2>
 <ul>
-<li><a href='2012/05/weekly-share-5.html'>学习编程语言的3篇好文章</a></li>
-<li><a href='2009/01/choose-it-book.html'>如何选择IT技术书籍？</a></li>
-<li><a href='2009/02/how-to-choose-opensource-project.html'>如何选择开源项目？</a></li>
-<li><a href='2009/08/why-choose-python-0-overview.html'>为什么俺推荐Python(系列)</a></li>
-<li><a href='2009/03/producer-consumer-pattern-0-overview.html'>架构设计：生产者/消费者模式</a></li>
-<li><a href='2009/02/multi-process-vs-multi-thread.html'>架构设计：进程还是线程？</a></li>
-<li><a href='2009/02/cxx-object-destroy-overview.html'>C++对象是怎么死的？(系列)</a></li>
-<li><a href='2009/01/cxx-cross-platform-develop-0-overview.html'>C++的移植性和跨平台开发(系列)</a></li>
-<li><a href='2009/03/java-performance-tuning-0-overview.html'>Java性能优化(系列)</a></li>
-<li><a href='2009/01/defect-of-java-beginner-0-overview.html'>Java新手的通病(系列)</a></li>
+<li><a href='2012/05/weekly-share-5.md'>学习编程语言的3篇好文章</a></li>
+<li><a href='2009/01/choose-it-book.md'>如何选择IT技术书籍？</a></li>
+<li><a href='2009/02/how-to-choose-opensource-project.md'>如何选择开源项目？</a></li>
+<li><a href='2009/08/why-choose-python-0-overview.md'>为什么俺推荐Python(系列)</a></li>
+<li><a href='2009/03/producer-consumer-pattern-0-overview.md'>架构设计：生产者/消费者模式</a></li>
+<li><a href='2009/02/multi-process-vs-multi-thread.md'>架构设计：进程还是线程？</a></li>
+<li><a href='2009/02/cxx-object-destroy-overview.md'>C++对象是怎么死的？(系列)</a></li>
+<li><a href='2009/01/cxx-cross-platform-develop-0-overview.md'>C++的移植性和跨平台开发(系列)</a></li>
+<li><a href='2009/03/java-performance-tuning-0-overview.md'>Java性能优化(系列)</a></li>
+<li><a href='2009/01/defect-of-java-beginner-0-overview.md'>Java新手的通病(系列)</a></li>
 </ul>
 <h2>推荐帖子(企业管理)</h2>
 <ul>
-<li><a href='2011/03/hiring-experience-0.html'>俺的招聘经验(系列)</a></li>
-<li><a href='2009/04/defect-of-hire.html'>招聘的误区</a></li>
-<li><a href='2009/03/80-20-principle-3-management-hire.html'>如何找到优秀的开发人才？</a></li>
-<li><a href='2009/03/80-20-principle-4-management-encourage.html'>如何发挥员工的积极性？</a></li>
+<li><a href='2011/03/hiring-experience-0.md'>俺的招聘经验(系列)</a></li>
+<li><a href='2009/04/defect-of-hire.md'>招聘的误区</a></li>
+<li><a href='2009/03/80-20-principle-3-management-hire.md'>如何找到优秀的开发人才？</a></li>
+<li><a href='2009/03/80-20-principle-4-management-encourage.md'>如何发挥员工的积极性？</a></li>
 </ul>
 <h2>推荐帖子(职场点滴)</h2>
 <ul>
-<li><a href='2009/01/0.html'>如何成为优秀开发人员(系列)</a></li>
-<li><a href='2009/11/job-hopping.html'>跳还是不跳，是一个问题？</a></li>
-<li><a href='2009/09/how-to-personal-branding.html'>如何包装个人品牌？</a></li>
+<li><a href='2009/01/0.md'>如何成为优秀开发人员(系列)</a></li>
+<li><a href='2009/11/job-hopping.md'>跳还是不跳，是一个问题？</a></li>
+<li><a href='2009/09/how-to-personal-branding.md'>如何包装个人品牌？</a></li>
 </ul>
 
 </div>
