@@ -15,7 +15,7 @@ for subdir,dirs,files in os.walk(rootdir):
 		lines=f.readlines()
 		pattern=re.compile(r'(https?[:][/][/][^\'\"<]*[.])md([\'\"])')
 		for line in lines:
-			newline=pattern.sub('\1html\2',line)
+			newline=pattern.sub(r'\1html\2',line)
 			w.write(newline)
 		f.close()
 		w.close()
