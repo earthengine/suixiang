@@ -39,7 +39,7 @@
 <br>
 <a name="head-2"></a><h2>★9-28 之前——香港学生的罢课和抗议</h2><br>
 <h3>◇香港学生率先发起罢课</h3><br>
-下面这张照片转载自——<a href="http://www.rfa.org/cantonese/news/HK-Student-Strike-09052014101553.md" target="_blank" rel="nofollow">学界反驳官媒指控否认罢课受人操纵 @ 自由亚洲电台/RFA</a><br>
+下面这张照片转载自——<a href="http://www.rfa.org/cantonese/news/HK-Student-Strike-09052014101553.html" target="_blank" rel="nofollow">学界反驳官媒指控否认罢课受人操纵 @ 自由亚洲电台/RFA</a><br>
 <center><img src="zz1_files/A-yBQ8YER2lvmikTxUZsyVFW0d-Pn9uivDflecCrxtQl83kYahWve00xxv2.jpeg" alt="不见图 请翻墙"></center><br>
 <b>大约在9月22日前后，香港的大学生开始罢课（详情参见俺前面给出的维基词条）</b><br>
 <br>
@@ -147,7 +147,7 @@
 <center><img src="zz1_files/7JWCDJsX88MbqJgiehMAePNCkQwrrfObWRLoYOlRBumgZZCDT4Txa6ELN6G.jpeg" alt="不见图 请翻墙"></center>示威者们堵截了一些道路，把民主派活动者里三层外三层围起来。<br>
 <br>
 <h3>◇《纽约时报》的报道和照片（洋文）</h3><br>
-以下照片转载自——<a href="http://www.nytimes.com/2014/09/29/world/asia/clashes-in-hong-kong.md" target="_blank" rel="nofollow">Crackdown on Protests by Hong Kong Police Draws More to the Streets @ NYTimes</a><br>
+以下照片转载自——<a href="http://www.nytimes.com/2014/09/29/world/asia/clashes-in-hong-kong.html" target="_blank" rel="nofollow">Crackdown on Protests by Hong Kong Police Draws More to the Streets @ NYTimes</a><br>
 （编程随想注：这批照片的尺寸太大，考虑到大伙儿的翻墙流量不高，缩小一半放上来）<br>
 <br>
 <center><img src="zz1_files/_JQa10E2f2K35eeYe5jFZiU6ZflK5HqAihms9b2LftPQ6J2lWjqe3i17xEi.jpeg" alt="不见图 请翻墙"></center><center><img src="zz1_files/YoMapI6EWF0oQPNT-lIQZSxsbQRKvxSOdCLad-vZ_p2bMdOHR76xU_OTHvw.jpeg" alt="不见图 请翻墙"></center><center><img src="zz1_files/eOKhYAtftHWWzOgzDB9HLSoTru7Sqboz2txZzq4_L2OYOhGIR1KKVc39kz7.jpeg" alt="不见图 请翻墙"></center><center><img src="zz1_files/JPowRJO0keehpmqGNP_QVKY1LBq_g2bjHEb94-FqXPq2nzCPl9AlE5wl-6w.jpeg" alt="不见图 请翻墙"></center>（编程随想注：这张照片让俺想起“<a href="2011/06/june-fourth-incident-0.md">六四</a>”老照片中的一张——天安门广场上拿冲锋枪的一排士兵）<br>
@@ -548,7 +548,7 @@ GB，通过邀请能扩16GB。我搜了一下，貌似没有流量限制。 http
 <iframe allowtransparency="true" class="blogger-iframe-colorize blogger-comment-from-post" id="comment-editor" name="comment-editor" src="zz1_files/comment-iframe.htm" width="100%" height="275px" frameborder="0"></iframe>
 <script type="text/javascript" src="zz1_files/3995214906-comment_from_post_iframe.js"></script>
 <script type="text/javascript">
-      BLOG_CMT_createIframe('https://www.blogger.com/rpc_relay.md');
+      BLOG_CMT_createIframe('https://www.blogger.com/rpc_relay.html');
     </script>
 </div>
 <p></p>

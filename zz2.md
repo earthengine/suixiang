@@ -41,7 +41,7 @@
 尤其是当日夜间的集会场面很壮观。</b><br>
 <br>
 <h3>◇《纽约时报》的报道和照片（洋文）</h3><br>
-以下照片转载自——<a href="http://www.nytimes.com/2014/09/30/world/asia/the-hong-kong-protests-what-you-should-know.md" target="_blank" rel="nofollow">Protests in Hong Kong Have Roots in China’s ‘Two Systems’ @ NYTimes</a><br>
+以下照片转载自——<a href="http://www.nytimes.com/2014/09/30/world/asia/the-hong-kong-protests-what-you-should-know.html" target="_blank" rel="nofollow">Protests in Hong Kong Have Roots in China’s ‘Two Systems’ @ NYTimes</a><br>
 （编程随想注：这批照片的尺寸太大，考虑到大伙儿的翻墙流量不高，缩小一半放上来）<br>
 <br>
 <center><img src="zz2_files/OWzTND9EqjWkR_wFw8nGcd2OXr8nNff2BQDxwvpvqO5IHJI10bPiY9W4LGM.jpeg"></center><br>
@@ -71,7 +71,7 @@
 <a href="http://www.dw.de/a-17961070" target="_blank" rel="nofollow">郑宇硕：我们不甘心作顺民 @ 德国之声</a><br>
 <center><img src="zz2_files/-e-wMF6JJV1suilcrz7vezphjd3JgkdPtsibF_H20m3Nt2C_GGLRMl92c9z.jpeg"></center><br>
 <h3>◇《芝加哥论坛报》的报道和照片</h3><br>
-以下照片转载自——<a href="http://www.chicagotribune.com/news/nationworld/chi-hong-kong-protests-20141002-story.md" target="_blank" rel="nofollow">Hong Kong leader refuses to resign but offers talks with protesters @ Chicago Tribune</a><br>
+以下照片转载自——<a href="http://www.chicagotribune.com/news/nationworld/chi-hong-kong-protests-20141002-story.html" target="_blank" rel="nofollow">Hong Kong leader refuses to resign but offers talks with protesters @ Chicago Tribune</a><br>
 （编程随想注：这篇报道有超过50张照片，俺挑选了其中一部分【可能是】29日夜间集会相关的照片）<br>
 <br>
 <center><img src="zz2_files/wrMXGXIpSLArpBvAo9_Z2R1gQ2N838nA1gpZ1FGffhEqvPU25WiB_Y9uB2B.jpeg"></center><br>
@@ -80,11 +80,11 @@
 <center><img src="zz2_files/GJGYeqas_0nqrp3HqMAiIQ47TfDmW3HKWmJfl_7SefE8IzZ7atP8InFQ35F.jpeg"></center><br>
 <center><img src="zz2_files/1hCuAXw6Q1dEFw7roSOcSs_h9B2zScPdaekWDAPtpoYq5oK7bsHMc9R8V5Y.jpeg"></center><br>
 <h3>◇美国之音的报道和照片</h3><br>
-<a href="http://www.voachinese.com/content/us-media-hongkong-20140929/2466601.md" target="_blank" rel="nofollow">美国媒体看香港“占中” @ 美国之音/VOA</a><br>
+<a href="http://www.voachinese.com/content/us-media-hongkong-20140929/2466601.html" target="_blank" rel="nofollow">美国媒体看香港“占中” @ 美国之音/VOA</a><br>
 <center><img src="zz2_files/izjuCX2hxke9IEOCmyf2M5ObIwEZaqn-g2lsD2bihQKZ6I37Pna32yGCiNz.jpeg"></center><br>
-<a href="http://www.voachinese.com/content/media-watch-hk-protest-and-mainland-reaction-20140929/2466039.md" target="_blank" rel="nofollow">媒体观察——公民抗命，香港暴热，大陆冰冷 @ 美国之音/VOA</a><br>
+<a href="http://www.voachinese.com/content/media-watch-hk-protest-and-mainland-reaction-20140929/2466039.html" target="_blank" rel="nofollow">媒体观察——公民抗命，香港暴热，大陆冰冷 @ 美国之音/VOA</a><br>
 <center><img src="zz2_files/fdb6LY84xUDEqOEKuGteg55DZzskuySps5N636mCekKCMKDVGaF9n2ge4rc.jpeg"></center><br>
-<a href="http://www.voachinese.com/media/video/voaweishi-20140929-voaconnects-haiyan/2465901.md" target="_blank" rel="nofollow">（视频）现场直击：香港占中扩大，群众集结各地 @ 美国之音/VOA</a><br>
+<a href="http://www.voachinese.com/media/video/voaweishi-20140929-voaconnects-haiyan/2465901.html" target="_blank" rel="nofollow">（视频）现场直击：香港占中扩大，群众集结各地 @ 美国之音/VOA</a><br>
 <br>
 <h3>◇其它外媒报道</h3><br>
 <a href="http://cn.wsj.com/gb/20140929/bch075501.asp" target="_blank" rel="nofollow">香港抗议人群扩大 防暴警察撤离 @ 华尔街日报/WSJ</a><br>
@@ -130,7 +130,7 @@
 <center><img src="zz2_files/DVBBEhnA1t5lAJ1YSxv8gIs5BNZYXylF-9QcYITfX1vYI_kX0RP4s63_gr1.jpeg"></center>除了黄丝带之外，雨伞也成为香港抗议活动中的主要标志。<br>
 <br>
 <h3>◇自由亚洲电台的报道和照片</h3><br>
-以下照片转载自——<a href="http://www.rfa.org/mandarin/yataibaodao/gangtai/xl1-09302014103849.md" target="_blank" rel="nofollow">占中第三日 “三罢”持续 “十一”将迎来抗命高潮 @ 自由亚洲电台/RFA</a><br>
+以下照片转载自——<a href="http://www.rfa.org/mandarin/yataibaodao/gangtai/xl1-09302014103849.html" target="_blank" rel="nofollow">占中第三日 “三罢”持续 “十一”将迎来抗命高潮 @ 自由亚洲电台/RFA</a><br>
 <br>
 <center><img src="zz2_files/qcgb4WotafJznYh-I9QxXd3r4WYwuo7aaKycDbJVL3SrAx7JZZdmXiycjPe.jpeg"></center>通往政府总部的天桥挂满条幅标语<br>
 <br>
@@ -150,7 +150,7 @@
 <br>
 <a href="http://cn.nytimes.com/china/20140930/c30block/" target="_blank" rel="nofollow">中国官方对香港“占中”报道严加管控 @ 纽约时报</a><br>
 <br>
-<a href="http://www.voachinese.com/content/hk-protest-echoed-in-china-20140930/2467597.md" target="_blank" rel="nofollow">大陆人士挺港遭禁 习近平面临抉择关口 @ 美国之音/VOA</a><br>
+<a href="http://www.voachinese.com/content/hk-protest-echoed-in-china-20140930/2467597.html" target="_blank" rel="nofollow">大陆人士挺港遭禁 习近平面临抉择关口 @ 美国之音/VOA</a><br>
 <br>
 <a href="http://minzhuzhongguo.org/ArtShow.aspx?AID=45141" target="_blank" rel="nofollow">香港占领中环第三天：民众雨中坚守 @ 民主中国</a><br>
 <center><img src="zz2_files/IriaeC8gSZiObKZAR2QaD8KkDGBTOMo3G9xGLv6C26x6-q-iAk11Tht0adL.jpeg"></center>（暴雨降临金钟“占领区”，市民们纷纷举起了雨伞，并未离开）<br>
@@ -215,7 +215,7 @@
 <center><img src="zz2_files/WYDlVQwLJDxGJgs_JG6Bx35XLnBhg2kwqW8jrFsm-gX4qt1LvnePC0rPWiz.jpeg"></center>不少占中示威民众，则象前些天一样，继续清理街头留下的垃圾，保持场地整洁。<br>
 <br>
 <h3>◇《每日邮报》的报道和照片（洋文）</h3><br>
-以下照片转载自——<a href="http://www.dailymail.co.uk/news/article-2775508/Lightning-rain-fail-deter-resolute-Hong-Kong-protesters.md" target="_blank" rel="nofollow">Hong Kong protesters threaten to occupy government buildings amid China hack fears @ Daily Mail Online</a><br>
+以下照片转载自——<a href="http://www.dailymail.co.uk/news/article-2775508/Lightning-rain-fail-deter-resolute-Hong-Kong-protesters.html" target="_blank" rel="nofollow">Hong Kong protesters threaten to occupy government buildings amid China hack fears @ Daily Mail Online</a><br>
 <br>
 <center><img src="zz2_files/0meXPKlfrRaCJj0zjc7Etg_uY9HkcQKqFRrvV6quCTxC6t_emFScQSvRCM9.jpeg"></center>这张是在香港政府总部外的集会<br>
 <br>
@@ -274,13 +274,13 @@
 <br>
 <center><img src="zz2_files/nXKK6156on5IiV6W--_3LQW1GJSfPkGAj7C9I1WODIKq_X8qqYZo-oAfK-S.jpeg"></center>舞台上的標語「台港連線，隔岸聲援，香港危城告急，十月公民抗命」，顯示了這場活動的宗旨，也為台灣與香港串起追求民主的決心。<br>
 <br>
-以下照片转载自——<a href="http://www.rfa.org/mandarin/yataibaodao/gangtai/zaa-10022014115652.md" target="_blank" rel="nofollow">数千华人在伦敦中国大使馆前集会声援香港“雨伞革命” @ 自由亚洲电台/RFA</a><br>
+以下照片转载自——<a href="http://www.rfa.org/mandarin/yataibaodao/gangtai/zaa-10022014115652.html" target="_blank" rel="nofollow">数千华人在伦敦中国大使馆前集会声援香港“雨伞革命” @ 自由亚洲电台/RFA</a><br>
 （编程随想注：这批照片的尺寸太大，考虑到大伙儿的翻墙流量不高，俺缩小到 1/4 放上来）<br>
 <br>
 <center><img src="zz2_files/-8UiV4aP7Znf7zt1Ahp4IPFN8eoEp0pF7dWeIsZ3nwC8AJz204OuDdYQAw-.jpeg"></center><br>
 <center><img src="zz2_files/rqfMjHwZwBDeF_tjApwXEtx7f-51nVK4U03fcp8sEd3pYeYNSyTOt159EQZ.jpeg"></center><br>
 <center><img src="zz2_files/vn6q9I_YeCi7sXERfqg1qV8Utd95lZEZlOXlTU3wdomRJUzZCO5yyoke1xr.jpeg"></center><br>
-<a href="http://www.rfa.org/cantonese/news/world-reax-09302014105722.md" target="_blank" rel="nofollow">海外组织国庆日示威声援香港 @ 自由亚洲电台/RFA</a><br>
+<a href="http://www.rfa.org/cantonese/news/world-reax-09302014105722.html" target="_blank" rel="nofollow">海外组织国庆日示威声援香港 @ 自由亚洲电台/RFA</a><br>
 <br>
 <h3>◇《纽约时报》的报道和照片——抗议活动井然有序</h3><br>
 以下照片转载自——<a href="http://cn.nytimes.com/china/20141001/c01protesters/" target="_blank" rel="nofollow">香港民主示威者迄今秩序井然 @ 纽约时报</a><br>
@@ -291,9 +291,9 @@
 这场运动迄今注重卫生、行为有礼、垃圾分类并有自发的医疗队，传达了抗议者的决心。<br>
 <br>
 <h3>◇其它外媒报道</h3><br>
-<a href="http://www.rfa.org/mandarin/yataibaodao/zhengzhi/yf1-10012014101832.md" target="_blank" rel="nofollow">中国官媒再狠批“占中” 多名发起人受到死亡威胁 @ 自由亚洲电台/RFA</a><br>
+<a href="http://www.rfa.org/mandarin/yataibaodao/zhengzhi/yf1-10012014101832.html" target="_blank" rel="nofollow">中国官媒再狠批“占中” 多名发起人受到死亡威胁 @ 自由亚洲电台/RFA</a><br>
 <br>
-<a href="http://www.rfa.org/mandarin/yataibaodao/meiti/vt-10012014150636.md" target="_blank" rel="nofollow">网络热贴：香港占中行动持续进行 《人民日报》称港澳国庆喜气浓 @ 自由亚洲电台/RFA</a><br>
+<a href="http://www.rfa.org/mandarin/yataibaodao/meiti/vt-10012014150636.html" target="_blank" rel="nofollow">网络热贴：香港占中行动持续进行 《人民日报》称港澳国庆喜气浓 @ 自由亚洲电台/RFA</a><br>
 （编程随想注：在咱们天朝，真理部控制下的党国喉舌，渲染“喜大普奔”的假象是它们惯用的伎俩）<br>
 <br>
 <a href="http://www.dw.de/a-17965769" target="_blank" rel="nofollow">梁振英在履行对香港的职责时彻底失败了 @ 德国之声</a><br>
@@ -321,7 +321,7 @@
 <center><img src="zz2_files/dorK8BhKHf2pftPSAYkjm1MVTYUfujiTv5Ay7sTGzASaCk5WCYOSANPTK7b.jpeg"></center>抗议者回收垃圾塑料瓶。<br>
 <br>
 <h3>◇自由亚洲电台的报道和照片</h3><br>
-以下照片转载自——<a href="http://www.rfa.org/mandarin/yataibaodao/gangtai/xl1-10022014102245.md" target="_blank" rel="nofollow">占中第五日包围特首办 行动正式升级 @ 自由亚洲电台/RFA</a><br>
+以下照片转载自——<a href="http://www.rfa.org/mandarin/yataibaodao/gangtai/xl1-10022014102245.html" target="_blank" rel="nofollow">占中第五日包围特首办 行动正式升级 @ 自由亚洲电台/RFA</a><br>
 <br>
 <center><img src="zz2_files/tgL-ZllYxBKaOf8LgiVNT4M7L68ftvCALTdIFTLI2LZAiztN33ln1cYgxUx.jpeg"></center>金钟集会现场<br>
 <br>
@@ -363,11 +363,11 @@
 <h3>◇其它外媒报道</h3><br>
 <a href="http://www.bbc.co.uk/zhongwen/simp/press_review/2014/10/141002_press_hongkong_china_panic" target="_blank" rel="nofollow">英媒：北京担心香港抗议蔓延大陆 @ 英国广播公司/BBC</a><br>
 <br>
-<a href="http://www.voachinese.com/content/hongkong-protest-20141002/2470067.md" target="_blank" rel="nofollow">美国专家：武力镇压香港抗议代价巨大 @ 美国之音/VOA</a><br>
+<a href="http://www.voachinese.com/content/hongkong-protest-20141002/2470067.html" target="_blank" rel="nofollow">美国专家：武力镇压香港抗议代价巨大 @ 美国之音/VOA</a><br>
 <br>
 <a href="http://cn.nytimes.com/china/20141002/c02leung/" target="_blank" rel="nofollow">梁振英在侍奉北京和香港之间走钢丝 @ 纽约时报</a><br>
 <br>
-<a href="http://www.voachinese.com/content/hk-protest-20141002/2469714.md" target="_blank" rel="nofollow">中共党报社论力挺梁振英 @ 美国之音/VOA</a><br>
+<a href="http://www.voachinese.com/content/hk-protest-20141002/2469714.html" target="_blank" rel="nofollow">中共党报社论力挺梁振英 @ 美国之音/VOA</a><br>
 <br>
 <a href="http://www.dw.de/a-17969305" target="_blank" rel="nofollow">最后通牒到期前，梁振英会见媒体 @ 德国之声</a><br>
 <br>
@@ -375,13 +375,13 @@
 <br>
 <a href="http://www.chinese.rfi.fr/%E4%B8%AD%E5%9B%BD/20141002-%E5%8D%A0%E4%B8%AD%E8%BF%90%E5%8A%A8%E7%A4%BA%E5%A8%81%E8%80%85%E5%8C%85%E5%9B%B4%E4%BA%86%E7%89%B9%E9%A6%96%E6%A2%81%E6%8C%AF%E8%8B%B1%E5%8A%9E%E5%85%AC%E5%8C%BA%E4%B8%8E%E8%AD%A6%E6%96%B9%E5%AF%B9%E5%B3%99" target="_blank" rel="nofollow">占中运动示威者包围特首梁振英办公区 与警方对峙 @ 法广/RFI</a><br>
 <br>
-<a href="http://www.voachinese.com/content/hongkong-occupy-central-20141002/2469848.md" target="_blank" rel="nofollow">香港占中运动逼迫梁振英辞职 @ 美国之音/VOA</a><br>
+<a href="http://www.voachinese.com/content/hongkong-occupy-central-20141002/2469848.html" target="_blank" rel="nofollow">香港占中运动逼迫梁振英辞职 @ 美国之音/VOA</a><br>
 <br>
 <a href="http://www.chinese.rfi.fr/%E4%B8%AD%E5%9B%BD/20141002-%E6%B3%95%E5%AA%92%EF%BC%9A%E9%A6%99%E6%B8%AF%E6%9C%AC%E5%8F%AF%E4%BB%A5%E4%B8%BA%E4%B8%AD%E5%9B%BD%E6%B0%91%E4%B8%BB%E5%8C%96%E7%A4%BA%E8%8C%83" target="_blank" rel="nofollow">法媒：香港本可以为中国民主化示范 @ 法广/RFI</a><br>
 <br>
-<a href="http://www.voachinese.com/content/hk-students-react-20141002/2470780.md" target="_blank" rel="nofollow">梁振英拒辞职 学生继续示威 @ 美国之音/VOA</a><br>
+<a href="http://www.voachinese.com/content/hk-students-react-20141002/2470780.html" target="_blank" rel="nofollow">梁振英拒辞职 学生继续示威 @ 美国之音/VOA</a><br>
 <br>
-<a href="http://www.voachinese.com/content/china-hk-protests-analysis-20141002/2470777.md" target="_blank" rel="nofollow">中共提升对香港占中的批评调门 令人不禁联想天安门事件 @ 美国之音/VOA</a><br>
+<a href="http://www.voachinese.com/content/china-hk-protests-analysis-20141002/2470777.html" target="_blank" rel="nofollow">中共提升对香港占中的批评调门 令人不禁联想天安门事件 @ 美国之音/VOA</a><br>
 <br>
 <a href="http://www.chinese.rfi.fr/%E4%B8%AD%E5%9B%BD/20141002-%E9%A6%99%E6%B8%AF%E5%8F%8D%E5%8D%A0%E4%B8%AD%E8%88%86%E8%AE%BA%E6%B6%8C%E5%8A%A8-%E7%BE%A4%E4%BC%97%E6%96%97%E7%BE%A4%E4%BC%97%E5%8F%AF%E8%83%BD%E6%80%A7%E5%A2%9E%E5%A4%A7" target="_blank" rel="nofollow">香港反占中舆论涌动 群众斗群众可能性增大 @ 法广/RFI</a><br>
 <br>

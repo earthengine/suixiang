@@ -43,7 +43,7 @@
 <br />　　据说，当Google跟Moto谈判时，微软也在谈。但是微软跟Google的出发点不同——微软只是想花钱搞到Moto的专利。如果说，Google的唯一目的就是专利，那它完全可以像微软那样，只花几十亿美金去搞专利，没必要把整个公司都买下来。所以，Google在看中专利的同时，可能还看中了Moto的其它资产。
 <br />
 <br /><h3>◇此地无银的官方声明</h3>
-<br />　　Google的官方声明（原文在"<a href="http://googleblog.blogspot.com/2011/08/supercharging-android-google-to-acquire.md" target="_blank" rel="nofollow">这里</a>"）一再强调，收购是为了专利，并且信誓旦旦地保证：会让Android继续保持开放，Google自己不会进入硬件领域同现有的Android硬件厂商竞争。眼下的这一幕，不禁让人想起Google最近几年来的一些言行。
+<br />　　Google的官方声明（原文在"<a href="http://googleblog.blogspot.com/2011/08/supercharging-android-google-to-acquire.html" target="_blank" rel="nofollow">这里</a>"）一再强调，收购是为了专利，并且信誓旦旦地保证：会让Android继续保持开放，Google自己不会进入硬件领域同现有的Android硬件厂商竞争。眼下的这一幕，不禁让人想起Google最近几年来的一些言行。
 <br />
 <br />　　当初Google把Firefox的主力程序员挖走，业界就有小道消息说，Google要自己搞浏览器。Google官方立马辟谣说不会。结果捏，现在Chrome的市场份额第三，直追名列第二的Firefox。
 <br />　　当初业界传闻Google要搞办公软件，Google官方立马辟谣说不会。结果捏，不久就推出了Google Docs。

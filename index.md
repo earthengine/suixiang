@@ -65,7 +65,7 @@
 <div class="widget-content">
 <a href="http://feeds2.feedburner.com/programthink" target="_blank" title="RSS ¶©ÔÄ">
 <img src="images/feed-icon-animated.gif" alt="RSS ¶©ÔÄ" border="0"></a>¡¡¡¡¡¡
-<a href="http://program-think.blogspot.com/2013/06/email-subscription.md" title="ÓÊ¼þ¶©ÔÄ">
+<a href="http://program-think.blogspot.com/2013/06/email-subscription.html" title="ÓÊ¼þ¶©ÔÄ">
 <img src="images/email-icon.png" alt="ÓÊ¼þ¶©ÔÄ" border="0"></a><br>
 </div>
 </div>
