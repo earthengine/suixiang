@@ -8,7 +8,7 @@ for subdir,dirs,files in os.walk(rootdir):
 		m = re.match('.*[.]md$',file)
 		if m == None:
 			continue
-		fn = subdir + ‘/' + file;
+		fn = subdir + '/' + file;
 		os.rename(fn,fn+'.orig')
 		f=open(fn+'.orig','r')
 		w=open(fn,'w')
